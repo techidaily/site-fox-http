@@ -1,6 +1,6 @@
-# TechiDaily
+# Fox Http Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://fox-http.techidaily.com](https://fox-http.techidaily.com)
 
 ## Publish
 

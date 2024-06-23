@@ -8,8 +8,8 @@ const fs = require('fs');
 const path = require('path');
 const https = require('https');
 
-const indexNowKey = 'ec9c9516ea82433086d979e16e1960e0'; // 替换为你的API密钥
-const siteHostName = 'android-transfer.techidaily.com'; // 替换为你的网站URL
+const indexNowKey = '1c0f563d299e4d79a5a30fe57be20634'; // 替换为你的API密钥
+const siteHostName = 'fox-http.techidaily.com'; // 替换为你的网站URL
 const groupItemCount = 100; // 每组最多个URL
 
 
