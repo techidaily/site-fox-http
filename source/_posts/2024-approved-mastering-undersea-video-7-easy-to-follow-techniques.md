@@ -1,0 +1,147 @@
+---
+title: "\"2024 Approved  Mastering Undersea Video  7 Easy-to-Follow Techniques\""
+date: 2024-06-22T17:08:47.335Z
+updated: 2024-06-23T17:08:47.335Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes 2024 Approved: Mastering Undersea Video: 7 Easy-to-Follow Techniques\""
+excerpt: "\"This Article Describes 2024 Approved: Mastering Undersea Video: 7 Easy-to-Follow Techniques\""
+keywords: "SeaVideoTechniques,UnderwaterVideomastery,DeepDiveEditingSteps,OceanClipGuidance,SubmergedFootageSkills,MarineFilmFundamentals,AquaticVideoTactics"
+thumbnail: https://thmb.techidaily.com/f8ea6bc64575a4f059dff23c3d5a8452f8167601d5f2b8cf93b8214a89c17a78.jpg
+---
+
+## Mastering Undersea Video: 7 Easy-to-Follow Techniques
+
+# How to Shoot Underwater Video Easily (with 7 Tips)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ If you’re interested in shooting underwater video without a big production budget, this article is for you.
+
+ With our help, you can shoot gorgeous underwater videos that look fantastic and can be shared across various social media channels including Facebook, Twitter and YouTube.
+
+ There are many tips you can learn from to get the results that you require, so read on to find out more about what you can do to shoot underwater video with ease.
+
+## Tips on shooting video underwater
+
+#### 1\. Frame your shots
+
+ It’s best to avoid shooting divers in mid-water. See if there is anything you can use to frame them, such as a wall, corals or marine life. It can take time to frame your divers, but try to get the best results you can to avoid being stuck with unsatisfactory footage further down the line.
+
+![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
+
+#### 2\. Get closer
+
+ You need to get as close to your subject as you possibly can. It may take several attempts to get it right, especially if you’ve just about got the shot you want but your subject inevitably floats or swims away.
+
+ Again, it’s wise to invest extra time in getting the close-up that you need. You can obtain crisp, high-quality images by removing as much of the water between your subject and the camera as you possibly can.
+
+ This will also make your images clearer and more colourful.
+
+![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
+
+#### 3\. Lighting is important
+
+ It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
+
+ Many pros use strobes to film at depth and in low light, but these can be expensive and hard to transport. They can also make your footage look less natural.
+
+ You can instead make use of natural sunlight, which should help you get the excellence you require even when you’re shooting at more than 30 metres depth. Deeper white balancing can be helpful during cloudy days.
+
+![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
+
+#### 4\. Stay steady
+
+ Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
+
+ To add greater stability to your camera, hold it as close to yourself as is realistically possible. Alternatively, consider using a tripod if you can. Keep your camera on your subject for as long as you need to, and try to wait for ten seconds without re-adjusting your camera at all.
+
+![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
+
+#### 5\. Be careful of other divers
+
+ Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
+
+![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
+
+#### 6\. Wide angle
+
+ If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
+
+![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+#### 7\. Shoot the best colour
+
+ You will be able to include the full spectrum of colour by remaining in the first five metres of the water. Fascinating marine life can be found in shallow reefs. The deeper you go, the more colour you are likely to lose.
+
+ Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
+
+![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
+
+## Edit your footage
+
+ To make your underwater videos good rather than great, it’s important that the editing process is of the highest quality.
+
+ When you invest in a leading editing solution, you can add a variety of effects to your film and iron out various errors. You can add music to create extra atmosphere and make it more professional. Don’t go overboard with effects and transitions as this can negatively impact the quality of your film.
+
+ You could change the video speed at various points and look at online tutorials to derive as much value from your editing software as possible without using unnecessary effects for the sake of it. Many amateur film producers have seen their footage go viral, with some even licensing their clips out to shows and documentaries.
+
+ If you’re planning on making a DVD of your work, consider adding extras to the product such as highlights or photos. Filmora is a popular editing software solution that will help you add an extra dash of magic to your work.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/top-8-stabilizers-optimal-tools-for-4k-camera-shooting-for-2024/"><u>Top 8 Stabilizers  Optimal Tools for 4K Camera Shooting for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-gently-lower-sound-amplitude-tutorial/"><u>[New] Gently Lower Sound Amplitude Tutorial</u></a></li>
+<li><a href="https://fox-http.techidaily.com/10-must-know-iphone-x-tricks-to-enhance-usage-for-2024/"><u>10 Must-Know iPhone X Tricks to Enhance Usage for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-nikon-d500-review-breaking-boundaries-in-4k/"><u>In 2024, Nikon D500 Review  Breaking Boundaries in 4K</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlining-your-websites-visual-content-via-cropping-for-2024/"><u>Streamlining Your Website's Visual Content via Cropping for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-best-7-streaming-tools-for-mac-users/"><u>[New] In 2024, Best 7 Streaming Tools for Mac Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-expert-recommended-5-top-drones-on-market/"><u>2024 Approved  Expert-Recommended 5 Top Drones on Market</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-should-you-monitor-off-facebook-a-guide-for-users/"><u>[New] 2024 Approved  Should You Monitor Off-Facebook? A Guide for Users</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-honor-magic5-ultimate-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-upgrade-your-content-creation-process-via-youtube-studio/"><u>[Updated] Upgrade Your Content Creation Process via YouTube Studio</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/sidestep-social-snubs-10-proven-steps-for-fb-freedom-for-2024/"><u>Sidestep Social Snubs  10 Proven Steps for Fb Freedom for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-raw-to-radiant-youtubes-art-of-visual-aesthetic/"><u>[Updated] From Raw to Radiant  Youtube's Art of Visual Aesthetic</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/starting-with-the-basics-of-av1-codec-for-2024/"><u>Starting with the Basics of AV1 Codec for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-motorola-edge-2023-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Motorola Edge 2023 Device</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-best-5-frame-sequence-recorder-fast-and-easy/"><u>[Updated] 2024 Approved  Best 5-Frame Sequence Recorder - Fast & Easy</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-invisible-intensity-covert-volume-reduction-in-garageband/"><u>2024 Approved  Invisible Intensity  Covert Volume Reduction in Garageband</u></a></li>
+</ul></div>

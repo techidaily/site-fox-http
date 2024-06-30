@@ -1,0 +1,101 @@
+---
+title: "\"[Updated] In 2024, Mastering Footage  Select Best Gimbals & Handhelds Guide\""
+date: 2024-06-22T18:19:40.446Z
+updated: 2024-06-23T18:19:40.446Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [Updated] In 2024, Mastering Footage: Select Best Gimbals & Handhelds Guide\""
+excerpt: "\"This Article Describes [Updated] In 2024, Mastering Footage: Select Best Gimbals & Handhelds Guide\""
+keywords: "Top Gimbal Brands,Gimbal Shopping Tips,Best Handheld Rigs,Pro Filming Techniques,Quality Footage Basics,Premium Gimbals Guide,Choosing Right Cameras"
+thumbnail: https://thmb.techidaily.com/b2d930dc9f54bd4e0c530d86c2a348d9ac40f0a9ccacade9f15d83732ceb2db8.jpg
+---
+
+## Mastering Footage: Select Best Gimbals & Handhelds Guide
+
+When a YouTube video is shaky it’s hard to focus on what is happening in it. Camera shake is a huge distraction and, if it is a persistent problem in your YouTube videos, it will be hard to get subscribers. Shakiness is an easy problem to correct. With a bit of equipment, or a bit of creativity, it is easy to make sure your YouTube videos are nice and smooth.
+
+## Best Camera Stabilizers for YouTube
+
+This article will talk about different types of equipment you can use to stabilize your camera. For vloggers on a budget, there is even one tip on stabilizing your camera without camera equipment. Here are some of the best stabilizers for YouTube videos:
+
+### 1\. Tripod
+
+A tripod is a three-legged stand you can mount your camera to. The height of a tripod can be adjusted so you can set your camera up at the level that works best for you. Because tripods can stand alone you can set your camera up to record yourself without needing a helper.
+
+Tripods are the best choice for vlogs that revolve around you standing (or sitting) and delivering information, like opinion or beauty vlogs.
+
+### 2\. Monopod
+
+A monopod is like a tripod in the sense that you can adjust its height, but unlike a tripod a monopod has only one leg and cannot stand by itself. You will need a helper to stay with your camera if you plan to film yourself using a monopod. A monopod is more portable than a tripod, though, and can be used in a wider variety of places. You can even use a monopod to record aerial shots just by picking it up.
+
+### 3\. Pistol Grip
+
+A pistol grip is a handle you mount your camera to the top of. You can carry your camera around on top of the pistol grip, or you can mount the grip itself to your tripod or monopod. Once the grip is mounted you can use it to more easily control your camera movements. This is a great way to get even, steady, camera pans.
+
+### 4\. Selfie Stick
+
+A selfie stick is a long pole you mount your smartphone to one end of in order to take selfies from farther away. Selfie sticks also make great stabilizers if you are shooting video on your smartphone. To stabilize your smartphone place the handle of your selfie stick on the ground as if it were a monopod. When you are shooting using a selfie stick you can also hold it up in the air to get interesting high angle shots.
+
+Some YouTubers even like to shoot selfie-style vlogs where the hold the selfie stick just like they are taking a photo of themselves.
+
+### 5\. OIS – Optical Image Stabilization
+
+‘Optical Image Stabilization’ is fairly new hardware which is built in to a lot of new smartphones, like the iPhone 6S Plus and the Samsung Galaxy S6 Edge Plus. OIS reduces camera shake by a lot, although it is still a good idea to stabilize your smartphone while you record. OIS will also help you take sharper still photos without using any software.
+
+### 6\. Tables, Desks, Trees, ect
+
+If you do not have equipment, or cannot bring it where you want to shoot, then you can still record steady footage. You just have to get creative with where you put your camera. Any stable surface will do. You can set your camera down on a shelf in your house, a picnic bench, or up in a tree.
+
+If you are able to lean your elbows onto a desk or table while you hold your camera then that will also significantly cut down on camera shake. This works best for footage you are not in, or which you can have a helper film for you. If you are open to shooting a selfie-style vlog then you can use anything you can rest your hand on, like a fence or a railing.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/exquisite-series-for-animating-fonts/"><u>Exquisite Series for Animating Fonts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-best-front-row-non-sports-options/"><u>In 2024, Best Front Row Non-Sports Options</u></a></li>
+<li><a href="https://fox-http.techidaily.com/through-virtual-lenses-a-historical-view-for-2024/"><u>Through Virtual Lenses  A Historical View for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-noir-effects-in-adobe-premiere-for-2024/"><u>[New] Noir Effects in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-guide-to-the-lg-bp350-visual-experience/"><u>[Updated] Ultimate Guide to the LG BP350 Visual Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leveraging-ergonomics-for-superior-team-dynamics-in-the-workplace/"><u>[New] In 2024, Leveraging Ergonomics for Superior Team Dynamics in the Workplace</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-linking-giants-a-step-by-step-guide-to-merging-instagram-and-tiktok/"><u>[Updated] Linking Giants  A Step-by-Step Guide to Merging Instagram and TikTok</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-cameras-for-slow-motion-animations-for-2024/"><u>[Updated] Master Cameras for Slow-Motion Animations for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-simplifying-the-process-of-creating-time-lapses-with-gopro/"><u>[Updated] Simplifying the Process of Creating Time Lapses with GoPro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/arcane-acoustics-how-legit-is-the-vocal-transformation-application-look-elsewhere-for-2024/"><u>Arcane Acoustics  How Legit Is the Vocal Transformation Application? Look Elsewhere for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-expert-edits-at-a-click-2-ways-to-rule-the-world-of-tiktok-reactions-with-filmora/"><u>[Updated] In 2024, Expert Edits at a Click – 2 Ways to Rule the World of TikTok Reactions with Filmora</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-15-top-mobiles-elevating-dji-video-production-value/"><u>In 2024, 15 Top Mobiles Elevating DJi Video Production Value</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-honor-x9a-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Honor X9a to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-art-of-instagram-story-layering-a-visual-journey-for-2024/"><u>The Art of Instagram Story Layering  A Visual Journey for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-15-best-ways-to-watch-nba-live-stream/"><u>[Updated] 15 Best Ways To Watch NBA Live Stream</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/undead-uprising-your-essential-compilation-of-zombie-gaming-for-2024/"><u>Undead Uprising  Your Essential Compilation of Zombie Gaming for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-isolating-still-images-from-motion-in-windows-11-photos/"><u>[New] Isolating Still Images From Motion in Windows 11 Photos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-android-users-ultimate-selection-top-10-fb-video-extractor-tools/"><u>[Updated] In 2024, Android Users' Ultimate Selection  Top 10 FB Video Extractor Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-voice-inputs-powerpoint-speech-to-text-guide-for-2024/"><u>Unlocking Voice Inputs  PowerPoint Speech-to-Text Guide for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-uniting-playlists-and-pals-a-guide-to-spotifydiscord-integration/"><u>[New] In 2024, Uniting Playlists & Pals  A Guide to Spotify/Discord Integration</u></a></li>
+</ul></div>
