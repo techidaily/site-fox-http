@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, In Pursuit with Panasonic’s HX-A1 Wearable Cameras\""
-date: 2024-06-22T17:08:05.629Z
-updated: 2024-06-23T17:08:05.629Z
+date: 2024-07-07T15:37:33.092Z
+updated: 2024-07-08T15:37:33.092Z
 tags: 
   - screen-recording
   - ai video
@@ -96,7 +96,7 @@ thumbnail: https://thmb.techidaily.com/8437f38447ce38f499b6100252361ad0a548e9cd2
 
 #### Wind jammer and strap adapter
 
- Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
+ Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all ![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Features
 

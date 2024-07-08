@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Selective Slideshow Software for Xr/XS/X Models for 2024"
-date: 2024-06-22T18:11:05.305Z
-updated: 2024-06-23T18:11:05.305Z
+date: 2024-07-07T15:37:30.649Z
+updated: 2024-07-08T15:37:30.649Z
 tags: 
   - screen-recording
   - ai video
@@ -91,7 +91,7 @@ Note: The information is written using the iOS 13 version of the Photos app.
 
 Note: if you have added some videos with background noise in the slideshow, you will hear the background noise and music at the same time. In this case, you may need to [remove and mute the background noise from the video](https://tools.techidaily.com/wondershare/filmora/download/) first. You can use Filmora to do that on Windows and Mac computers. Or you can add photos only to the Slideshow.
 
-Apple has added the Memories feature in the Photos app since iOS 10\. The Memories will display curated collections of significant people, place and holidays automatically. Previously, we’ve posted an article about [how to change and add music to Memory video on iPhone](https://tools.techidaily.com/wondershare/filmora/download/), click to read the detailed information about[how to edit Memory slideshow video](https://tools.techidaily.com/wondershare/filmora/download/).
+Apple has added the Memories feature in the Photos app since iOS 10\. The Memories will display curated collections of significant people, place and holidays automatically. Previously, we’ve posted an article about [how to change and add music to Memory video on iPhone](https://tools.techidaily.com/wondershare/filmora/download/), click to read the detailed information about [how to edit Memory slideshow video](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ## Part 2: 6 Best Apps for Making Photo Slideshows With Music on iPhone 11/XR/XS/X/8/7/6
 
