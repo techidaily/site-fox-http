@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Harnessing the Power of Yi's 4K Video and Motion Controls"
-date: 2024-06-22T18:28:28.533Z
-updated: 2024-06-23T18:28:28.533Z
+date: 2024-07-13T23:37:02.987Z
+updated: 2024-07-14T23:37:02.987Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/c9b8fd1733901244b30160c420a56660fbc286946
 
 # Yi 4K + Action Camera Complete Review
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -114,10 +117,16 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -144,3 +153,73 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-guide-making-your-gifs-into-stickers-via-discordwhatsapp/"><u>2024 Approved  The Ultimate Guide  Making Your GIFs Into Stickers via Discord/WhatsApp</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-precision-cutting-on-iphone-best-practices-and-apps/"><u>2024 Approved  Precision Cutting on iPhone  Best Practices and Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-tell-fake-instagram-followers-fast-and-free/"><u>[New] 2024 Approved  How to Tell Fake Instagram Followers (Fast and Free)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed-for-2024/"><u>[Updated] Crack the Code of Content  Top 6 YouTuber Personality Tests Revealed for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simplified-hdr-an-in-depth-examination/"><u>2024 Approved  Simplified HDR  An In-Depth Examination</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-breakthrough-ideas-to-amplify-brand-impact-on-reddit/"><u>[New] Breakthrough Ideas to Amplify Brand Impact on Reddit</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-the-potential-of-closeup-cinematography/"><u>2024 Approved  Unlocking the Potential of Closeup Cinematography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simplify-passport-photography-with-these-top-10-low-cost-solutions/"><u>2024 Approved  Simplify Passport Photography with These Top 10 Low-Cost Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-securing-your-scene-minimize-camera-jostle/"><u>2024 Approved  Securing Your Scene  Minimize Camera Jostle</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-affordable-graphic-creation-free-discord-emblems-online/"><u>In 2024, Affordable Graphic Creation  FREE Discord Emblems Online</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabling-apple-iphone-14-pro-max-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling Apple iPhone 14 Pro Max Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sony-s6700-revised-whats-new/"><u>2024 Approved  Sony S6700 Revised - What's New?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-boost-your-farming-skills-with-stardews-top-7-mods/"><u>[Updated] 2024 Approved  Boost Your Farming Skills with Stardew's Top 7 Mods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-metrics-of-mastery-assessing-luminances-hdr-capabilities/"><u>2024 Approved  The Metrics of Mastery  Assessing Luminance's HDR Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simplify-broadcasting-merge-obs-and-streamlabs-mac/"><u>2024 Approved  Simplify Broadcasting  Merge OBS and Streamlabs (Mac)</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-10-exceptional-educational-sites-a-look-without-udemy/"><u>[New] 10 Exceptional Educational Sites  A Look without Udemy</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sketch-humorous-images-with-adobe/"><u>2024 Approved  Sketch Humorous Images with Adobe</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-top-10-hashtag-trackers-on-facebook-twitter-and-instagram-networks/"><u>2024 Approved  Top 10 Hashtag Trackers on Facebook, Twitter & Instagram Networks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-screenplay-crafting-site/"><u>2024 Approved  Ultimate Screenplay Crafting Site</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sky-high-data-capacity-at-zero-cost-top-20-free-cloud-storages-to-explore/"><u>2024 Approved  Sky-High Data Capacity at Zero Cost  Top 20 Free Cloud Storages to Explore</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-audience-accessibility-enhancement-adding-subtitles-and-closed-captions-on-youtube-for-2024/"><u>[New] Audience Accessibility Enhancement  Adding Subtitles and Closed Captions on YouTube for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-easy-guide-to-enhancing-images-via-iphone-cropping/"><u>2024 Approved  The Easy Guide to Enhancing Images via iPhone Cropping</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-rhythmic-raptor-rumba/"><u>2024 Approved  Rhythmic Raptor Rumba</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-essential-guide-to-metaverse-brand-strategies/"><u>2024 Approved  The Essential Guide to Metaverse Brand Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-secret-ingredient-to-success-15-activities-that-enhance-learning-while-listening-to-podcasts/"><u>2024 Approved  The Secret Ingredient to Success  15 Activities that Enhance Learning While Listening to Podcasts</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-discover-the-ultimate-10-audio-tools-for-professionals-on-both-oses/"><u>New 2024 Approved Discover the Ultimate 10 Audio Tools for Professionals on Both OSes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-proven-methods-to-improve-macro-video-quality-and-aesthetics/"><u>2024 Approved  Proven Methods to Improve Macro Video Quality and Aesthetics</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-time-travel-through-free-visual-storerooms/"><u>2024 Approved  Time Travel Through Free Visual Storerooms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-seamless-blending-of-voice-and-text-in-powerpoint-decks/"><u>2024 Approved  Seamless Blending of Voice and Text in PowerPoint Decks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-camcorders-for-high-quality-podcasts/"><u>2024 Approved  Ultimate Camcorders for High-Quality Podcasts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-live-streamer-showdown-pick-your-champion-between-wirecast-and-obs/"><u>[New] Live Streamer Showdown  Pick Your Champion Between Wirecast and OBS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-uncover-the-best-free-ultimate-3d-videos-playing-solutions/"><u>2024 Approved  Uncover the Best Free, Ultimate 3D Videos Playing Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-superior-sd-card-compatible-with-a7s-ii/"><u>2024 Approved  Superior SD Card Compatible with A7S II</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-most-innovative-5k-screens-ranked-8/"><u>2024 Approved  The Most Innovative 5K Screens Ranked #8</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-safeguarding-photos-best-software-guide-uncovered/"><u>2024 Approved  Safeguarding Photos  Best Software Guide Uncovered</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-essentials-of-combining-apple-music-and-videos/"><u>2024 Approved  The Essentials of Combining Apple Music & Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-solo-stardom-in-the-podcast-universe/"><u>2024 Approved  Solo Stardom in the Podcast Universe</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-blueprint-making-inspiring-lifestyle-broadcasts/"><u>[Updated] In 2024, Blueprint  Making Inspiring Lifestyle Broadcasts</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-nubia-z50s-pro-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Nubia Z50S Pro Quickly? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-strategies-to-procure-perfect-photographic-archives/"><u>2024 Approved  Strategies to Procure Perfect Photographic Archives</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-backup-blueprint-from-your-phone-to-your-snap-story/"><u>[New] Backup Blueprint  From Your Phone to Your Snap Story</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-strategic-campaign-planning-for-health-brands/"><u>2024 Approved  Strategic Campaign Planning for Health Brands</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-create-cinematic-magic-top-slow-motion-video-editors/"><u>New Create Cinematic Magic Top Slow Motion Video Editors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-storytelling-mastery-scriptwriting-secrets-revealed/"><u>2024 Approved  Storytelling Mastery  Scriptwriting Secrets Revealed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-efficiently-uploading-youtube-vids-to-insta-profile/"><u>[New] 2024 Approved  Efficiently Uploading YouTube Vids to Insta Profile</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-streamline-your-workflow-8-lightweight-video-editors/"><u>In 2024, Streamline Your Workflow 8 Lightweight Video Editors</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-reaction-video-creators-you-need-to-know-for-2024/"><u>Top Reaction Video Creators You Need to Know for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/can-a-128gb-drive-handle-huge-video-files/"><u>Can a 128GB Drive Handle Huge Video Files?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-roadmap-how-to-make-your-covers-shine/"><u>In 2024, The Roadmap  How To Make Your Covers Shine</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-discovering-the-top-6-innovative-tools-for-live-voice-modification-for-2024/"><u>New Discovering the Top 6 Innovative Tools for Live Voice Modification for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-a-guide-to-infusing-movement-into-images-in-illustrator/"><u>[New] 2024 Approved  A Guide to Infusing Movement Into Images in Illustrator</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-clear-path-to-crisp-videography-on-a-gopro/"><u>2024 Approved  The Clear Path to Crisp Videography on a GoPro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sci-fis-new-horizons-a-list-of-cinematic-journeys-in-the-metaverse/"><u>2024 Approved  Sci-Fi's New Horizons  A List of Cinematic Journeys in the Metaverse</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/capturing-your-laptop-simple-lenovo-steps/"><u>Capturing Your Laptop  Simple Lenovo Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-less-loved-aspects-of-virtual-worlds/"><u>2024 Approved  The Less-Loved Aspects of Virtual Worlds</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/edit-like-a-pro-fcp-audio-editing-techniques-for-video-creators/"><u>Edit Like a Pro FCP Audio Editing Techniques for Video Creators</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-maximizing-impact-with-tiktok-video-uploads-from-pcmac/"><u>[Updated] 2024 Approved  Maximizing Impact with TikTok Video Uploads From PC/Mac</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-mechanics-of-modern-photography-auto-smart-hdr-3-and-4-unveiled/"><u>2024 Approved  The Mechanics of Modern Photography  Auto, Smart HDR 3 & 4 Unveiled</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-the-potential-of-multi-stream-video-on-microsoft-edge/"><u>2024 Approved  Unlocking the Potential of Multi-Stream Video on Microsoft Edge</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-malfunctioning-your-drivers-with-windows-device-manager-on-windows-10-and-7-by-drivereasy-guide/"><u>How to identify malfunctioning your drivers with Windows Device Manager on Windows 10 & 7</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-volume-reduction-in-audio-designs-using-logic-pro/"><u>In 2024, Mastering Volume Reduction in Audio Designs Using Logic Pro</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/premier-font-design-software-for-discord-platforms-for-2024/"><u>Premier Font Design Software for Discord Platforms for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-brand-synergy-in-the-age-of-digital-partnerships/"><u>[New] Brand Synergy in the Age of Digital Partnerships</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-unlock-on-apple-iphone-12-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock On Apple iPhone 12? How to Fix it?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-what-are-your-rights-exploring-legalities-of-video-sharing-on-fb/"><u>[New] 2024 Approved  What Are Your Rights? Exploring Legalities of Video Sharing on FB</u></a></li>
+</ul></div>

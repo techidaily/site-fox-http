@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Visionary Writing Spanning Eight Cinematic Divisions\""
-date: 2024-06-22T17:55:16.574Z
-updated: 2024-06-23T17:55:16.574Z
+date: 2024-07-13T23:01:04.526Z
+updated: 2024-07-14T23:01:04.526Z
 tags: 
   - screen-recording
   - ai video
@@ -33,7 +33,7 @@ _Be it a blockbuster movie, an indie gem, a play on The Fringe, or the West End 
 
 ## Part 1\. Why did we pick these films?
 
-When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
+When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
@@ -183,6 +183,9 @@ Set: _A Park. Daytime in the present. It is a bucolic atmosphere in the middle o
 
 Level of difficulty: _6/10 – conversational, easy lines to remember and that also flow easily_
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
@@ -289,7 +292,7 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 ## Part 1\. Why did we pick these films?
 
-When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
+When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
@@ -459,6 +462,9 @@ This screenplay explores the relationship between two criminals – Denzel Washi
 
 _**2\. Casino Royale**_
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
 
 **Writers:** Robert Wade and Paul Haggis
@@ -485,6 +491,9 @@ Download the script here: <https://www.takarabio.com/documents/User%20Manual/RR0
 
 **_2\. UNBREAKABLE_**
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![unbreakable](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-14.jpg)
 
 **Writer:** M. Night Shyamalan
@@ -511,6 +520,9 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 
 **Writers:** Brenda Chapman, Barry Johnson, Andy Gaskill, Kevin Harkey, Tom Sito, Rick Maki, Burny Mattinson, Lorna Cook, Gary Trousdale, Jorgen Klubien, Larry Leker, Ed Gombert, Mark Kausler, Thom Enriquez, Jim Capobianco, Chris Sanders, Joe Ranft, Francis Glebas
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
 
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
@@ -566,3 +578,48 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win11.techidaily.com/elevate-editing-the-win11-list-of-premier-video-scripts/"><u>Elevate Editing: The Win11 List of Premier Video Scripts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-quest-for-perfect-balance-top-gimbals-in-dronescapes/"><u>The Quest for Perfect Balance  Top Gimbals in Dronescapes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlock-a-million-eyes-engaging-content-strategy/"><u>2024 Approved  Unlock a Million Eyes  Engaging Content Strategy</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-step-by-step-creating-your-own-chat-signal-ios-and-android-edition/"><u>2024 Approved  Step-by-Step  Creating Your Own Chat Signal - iOS & Android Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-smartphones-ultimate-guide-to-image-editing-and-annotation/"><u>2024 Approved  Smartphones' Ultimate Guide to Image Editing & Annotation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-quickest-quads-2022-olympics-skate/"><u>2024 Approved  The Quickest Quads  2022 Olympics Skate</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-social-media-sphere-speaking-up-to-fans/"><u>2024 Approved  The Social Media Sphere  Speaking Up to Fans</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-turning-xmlssattml-files-into-srt-formats-strategies-and-techniques/"><u>2024 Approved  Turning XML/SSA/TTML Files Into SRT Formats  Strategies and Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-best-child-safe-cameras-for-first-time-vloggers-and-puddles/"><u>2024 Approved  The Best Child-Safe Cameras For First-Time Vloggers & Puddles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-8-virtual-reality-vr-gaming-accessories/"><u>2024 Approved  Top 8 Virtual Reality (VR) Gaming Accessories</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-step-up-your-home-cinema-game-with-these-essential-tips/"><u>2024 Approved  Step Up Your Home Cinema Game with These Essential Tips</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unraveling-9-irritating-windows-11-layouts/"><u>Unraveling 9 Irritating Windows 11 Layouts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-kinemaster-way-to-enthralling-transitions/"><u>2024 Approved  The Kinemaster Way to Enthralling Transitions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamlining-video-conferencing-combining-skype-and-zoom-effortlessly/"><u>2024 Approved  Streamlining Video Conferencing  Combining Skype & Zoom Effortlessly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unleashing-creativity-with-pro-gopro-guidance/"><u>2024 Approved  Unleashing Creativity with Pro-GoPro Guidance</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-checklist-for-compelling-audio-intros/"><u>2024 Approved  The Ultimate Checklist for Compelling Audio Intros</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-motorola-moto-e13-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Motorola Moto E13 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveil-your-inner-artist-best-free-sketching-software-on-mac/"><u>[Updated] Unveil Your Inner Artist  Best Free Sketching Software on Mac</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/synchronizing-with-instagram-perfect-video-integration/"><u>Synchronizing With Instagram  Perfect Video Integration</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-iphone-manual-for-capturing-and-adjusting-pace-in-motion/"><u>2024 Approved  The Ultimate iPhone Manual for Capturing and Adjusting Pace in Motion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlock-the-best-live-stream-options-today/"><u>2024 Approved  Unlock the Best Live Stream Options Today</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-leaderboard-of-first-zeoid-innovations/"><u>2024 Approved  The Leaderboard of First Zeoid Innovations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-transform-your-in-game-identity-with-these-free-free-fire-vocal-hacks/"><u>2024 Approved  Transform Your In-Game Identity with These Free Free Fire Vocal Hacks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-selecting-the-supreme-top-5-4k-tvs-for-vivid-hues/"><u>2024 Approved  Selecting the Supreme  Top 5 4K TVs for Vivid Hues</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamline-your-channel-with-easy-image-upload/"><u>2024 Approved  Streamline Your Channel with Easy Image Upload</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-realtime-hd-uplift-for-pc-mac-and-online-devices/"><u>2024 Approved  RealTime HD Uplift for PC, Mac & Online Devices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-curate-christian-chimes-for-devotion/"><u>How to Curate Christian Chimes for Devotion</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-top-10-free-whiteboard-animation-tools-for-windows-and-mac/"><u>Updated 2024 Approved Top 10 Free Whiteboard Animation Tools for Windows and Mac</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-mastering-youtube-to-watch-facebook-content-on-apple-tv/"><u>In 2024, Mastering YouTube to Watch Facebook Content on Apple TV</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-nubia-z50s-pro-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Nubia Z50S Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-transforming-images-via-look-up-table-techniques-in-adobes-image-editor/"><u>2024 Approved  Transforming Images via Look-Up Table Techniques in Adobe's Image Editor</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-much-wealth-can-you-generate-on-youtube-using-cpm-in-2024/"><u>[New] How Much Wealth Can You Generate on YouTube Using CPM, In 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-leading-ps2-emulators-unveiled-for-iphone-and-ipad/"><u>2024 Approved  Leading PS2 Emulators Unveiled for iPhone and iPad</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pushing-boundaries-with-lightrooms-hdr-merging-capability/"><u>2024 Approved  Pushing Boundaries with Lightroom’s HDR Merging Capability</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pixel-to-passion-unlocking-new-forms-of-entertainment-with-vr/"><u>2024 Approved  Pixel to Passion  Unlocking New Forms of Entertainment with VR</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/cutting-edge-methods-for-capturing-your-playtime-for-2024/"><u>Cutting-Edge Methods for Capturing Your Playtime for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlock-efficiency-the-editors-guide-to-speed-control/"><u>2024 Approved  Unlock Efficiency  The Editor's Guide to Speed Control</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-hdr-camera-connoisseurs-handbook/"><u>2024 Approved  The HDR Camera Connoisseur's Handbook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-savvy-soccer-snatching-how-to-record-and-cut-cheap/"><u>2024 Approved  Savvy Soccer Snatching  How to Record and Cut Cheap</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/spotlight-on-snapchat-utilization-strategies/"><u>Spotlight on Snapchat  Utilization Strategies</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-xiaomi-redmi-note-12-proplus-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Xiaomi Redmi Note 12 Pro+ 5G Phone Network-Ready</u></a></li>
+</ul></div>

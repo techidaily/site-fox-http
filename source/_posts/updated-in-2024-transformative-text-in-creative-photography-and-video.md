@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Transformative Text in Creative Photography & Video"
-date: 2024-06-22T17:45:34.766Z
-updated: 2024-06-23T17:45:34.766Z
+date: 2024-07-13T22:50:33.423Z
+updated: 2024-07-14T22:50:33.423Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,9 @@ With that in mind, let's look at how you can apply text distortion in photograph
 
 Start Photoshop, and then click on the File menu. Select the New option and set parameters for your document, according to the space the text is going to occupy in its intended medium. In the Name field, type a name. You can also decide to leave the Photoshop default.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![text distortion in photo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-1.png)
 
 ### Step 2\
@@ -74,6 +77,9 @@ Click on the T icon located in the Tools panel. You can also click on the Window
 
 Check the list and right-click on the new text layer with a T icon symbol and the words you have typed. Select the Rasterize Layer option; this will turn the box with the T icon into a white and gray checkerboard.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to distort text in photo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-2.png)
 
 ### Step 6\
@@ -156,6 +162,18 @@ Zalgo Text Generator is an online tool that allows you to create glitch text. Th
 
 EnGFTO.com is an online text distorter that allows you to choose the text size and color and choose one of the available fonts. It comes with hundreds of text templates. You can also upload fonts, change the text style, and apply gradients. What's more? Users can add an outline to their text, change the background, and select the color of their text edges.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-12.png)
 
 ### 5\. Wavy Text Generator
@@ -280,6 +298,9 @@ This online tool provides photo editing and graphic design tools, and you can us
 
 ![online text distorter - picmonkey](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### 2.MockoFun
 
 Adding text along a curve is a great way to make a strong graphic statement. The tool lets you create a logo and include a circular distorted text. You can also add this effect to photos using MockoFun.com.
@@ -617,3 +638,58 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-easy-steps-for-leveraging-speech-to-text-in-google-documents-for-2024/"><u>[Updated] Easy Steps for Leveraging Speech-to-Text in Google Documents for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-selective-alarm-tones-optimal-websites-list/"><u>In 2024, Selective Alarm Tones  Optimal Websites List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-visionary-editing-the-pinnacle-15-gopro-cinematography-luts-reviewed/"><u>2024 Approved  Visionary Editing  The Pinnacle 15 GoPro Cinematography LUTs Reviewed</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-make-your-text-glow-10-best-neon-text-generators-online-updated-2023/"><u>Updated Make Your Text Glow 10 Best Neon Text Generators Online (Updated 2023)</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-the-ultimate-guide-to-text-tracking-software/"><u>Updated The Ultimate Guide to Text Tracking Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-first-times-guide-to-essential-gopro-extras/"><u>[Updated] In 2024, First Time's Guide to Essential GoPro Extras</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-rated-4k-video-conversion-software-2023-edition/"><u>Top-Rated 4K Video Conversion Software 2023 Edition</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-bandicut-video-editor-review/"><u>In 2024, Bandicut Video Editor Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-hustle-smart-listen-hard-top-tasks-for-podcast-enthusiasts/"><u>[Updated] In 2024, Hustle Smart, Listen Hard  Top Tasks for Podcast Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-mastering-obs-and-streamlabs-mac-integration/"><u>In 2024, Mastering OBS & Streamlabs Mac Integration</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-virtual-worlds-unleashed-predicted-best-psvr-gaming-experiences/"><u>[Updated] In 2024, Virtual Worlds Unleashed  Predicted Best PSVR Gaming Experiences</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-step-by-step-to-a-tailored-facebook-memory-reel/"><u>[Updated] In 2024, Step-by-Step to a Tailored Facebook Memory Reel</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-discovering-new-ways-to-use-bandicam-a-deep-dive/"><u>[New] Discovering New Ways to Use Bandicam – A Deep Dive</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-ultimate-desktop-and-mobile-discord-recorders-reviewed/"><u>[New] Ultimate Desktop & Mobile Discord Recorders Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveiling-the-hidden-gem-best-free-text-to-speech-macapps-for-2024/"><u>[Updated] Unveiling the Hidden Gem  Best Free Text to Speech macApps for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-understanding-film-a-beginners-guide-to-essential-shots/"><u>[New] In 2024, Understanding Film  A Beginner's Guide to Essential Shots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-quick-tips-for-saving-the-world-with-a-smile/"><u>In 2024, Quick Tips for Saving the World with a Smile</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-walkthrough-for-movie-making-on-windows-8/"><u>[Updated] The Ultimate Walkthrough for Movie Making on Windows 8</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-masterful-selection-8-top-free-3d-video-players-windows-and-mac-for-2024/"><u>[Updated] Masterful Selection  8 Top Free 3D Video Players Windows & Mac for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premier-5-digital-camera-background-swap-tools-iphone-photos/"><u>Premier 5 Digital Camera Background Swap Tools  IPhone Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultra-hd-marvel-hp-dreamcolor-z32-x-analysis/"><u>[New] Ultra HD Marvel  HP DreamColor Z32 X Analysis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-space-saver-strategies-pioneering-the-best-cloud-platforms-for-2024/"><u>[New] Space-Saver Strategies  Pioneering the Best Cloud Platforms for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-new-tech-horizon-with-microsofts-hololens-review/"><u>[New] In 2024, The New Tech Horizon with Microsoft's HoloLens Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveiling-the-best-apps-to-master-sound-transformation-for-2024/"><u>[Updated] Unveiling the Best Apps to Master Sound Transformation for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/step-by-step-to-stunning-photomontages/"><u>Step-by-Step to Stunning Photomontages</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-magic-in-marketing-top-20-keyphrases/"><u>2024 Approved  Unlocking Magic in Marketing - Top 20 Keyphrases</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-guide-to-converting-mp4-to-mp3-best-converters-and-methods-for-2024/"><u>Updated The Ultimate Guide to Converting MP4 to MP3 Best Converters and Methods for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-decoding-the-meaning-and-usage-facebooks-icon-in-chat/"><u>[New] Decoding the Meaning and Usage  Facebook's Icon in Chat</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-vivo-v27-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Vivo V27 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-srt-extensions-on-operating-systems/"><u>In 2024, Navigating SRT Extensions on Operating Systems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-windows-8-video-editor-pro/"><u>[Updated] Windows 8 Video Editor Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-5-digital-tools-for-enhancing-web-streams/"><u>2024 Approved  Top 5 Digital Tools for Enhancing Web Streams</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-oppo-a38-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Oppo A38 Phone Network-Ready</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-leading-voice-modifying-apps-magical-calls-and-more/"><u>[Updated] In 2024, Leading Voice-Modifying Apps  Magical Calls & More</u></a></li>
+<li><a href="https://fox-http.techidaily.com/recovery-of-windows-photo-viewer-functionality-on-win10-for-2024/"><u>Recovery of Windows Photo Viewer Functionality on Win10 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-optimizing-viewing-experience-video-filters-for-all-screens/"><u>In 2024, Optimizing Viewing Experience  Video Filters for All Screens</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/android-and-iphone-the-ultimate-guide-to-saving-tiktok/"><u>Android & iPhone  The Ultimate Guide to Saving TikTok</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-most-wallet-friendly-cloud-haven-for-mass-datasets/"><u>The Most Wallet-Friendly Cloud Haven for Mass Datasets</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-infinix-hot-40-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/pureimage-the-backdrop-cutter/"><u>PureImage  The Backdrop Cutter</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-blueprint-to-surge-in-youtubers-popularity/"><u>[New] The Blueprint to Surge in Youtubers' Popularity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-exploring-hololens-by-microsoft-a-3d-dream-come-true/"><u>In 2024, Exploring HoloLens by Microsoft  A 3D Dream Come True</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unlock-iphones-full-potential-4-pro-tips-for-brightening-hdr-in-premiere/"><u>[Updated] In 2024, Unlock iPhone's Full Potential  4 Pro Tips for Brightening HDR in Premiere</u></a></li>
+<li><a href="https://fox-http.techidaily.com/historys-high-scorers-on-reddit-top-10-list/"><u>History's High Scorers on Reddit - Top 10 List</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-explore-a-variety-of-inexpensive-camera-models-suitable-for-making-slow-motion-footage-without-compromising-quality-for-2024/"><u>Updated Explore a Variety of Inexpensive Camera Models Suitable for Making Slow-Motion Footage without Compromising Quality for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-video-enthusiasts-guide-to-the-best-photo-backdrop-swappers/"><u>[Updated] Video Enthusiasts' Guide to the Best Photo Backdrop Swappers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-20-mobiles-perfecting-dji-visual-content-for-2024/"><u>[New] Top 20 Mobiles Perfecting DJi Visual Content for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-10-affordable-iphone-apps-your-guide-to-free-photo-arrangement-and-editing-for-2024/"><u>[Updated] Top 10 Affordable iPhone Apps – Your Guide to Free Photo Arrangement & Editing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-promotional-planning-perfection/"><u>[Updated] In 2024, Promotional Planning Perfection</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-eye-catching-graphic-principles-for-podcast-titles/"><u>[Updated] 2024 Approved  Eye-Catching Graphic Principles for Podcast Titles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-step-by-step-mastery-how-to-design-your-vr-alter-egos-efficiently/"><u>[Updated] 2024 Approved  Step-by-Step Mastery  How to Design Your VR Alter Egos Efficiently</u></a></li>
+</ul></div>

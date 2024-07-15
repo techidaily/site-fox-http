@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Exploring Obscured Feedback on YouTube Videos\""
-date: 2024-06-29T19:01:52.640Z
-updated: 2024-06-30T19:01:52.640Z
+date: 2024-07-13T23:57:09.651Z
+updated: 2024-07-14T23:57:09.651Z
 tags: 
   - screen-recording
   - ai video
@@ -99,6 +99,9 @@ To see videos/comments you liked or disliked, please follow these steps as conti
 
 Step4 In the **Google My Activity** tab, click **Other activity**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
@@ -147,6 +150,9 @@ Because understanding how to comment is only one aspect of the issue; very impor
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Did you know what a Highlighted comment is?
 
 A highlighted comment on YouTube aims to draw the content creator's attention with an automated feature.
@@ -181,6 +187,9 @@ But, if you want to retrace the videos you commented on and the videos/comments 
 
 Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
 Step2 Scroll down a little bit and click the **More** button.
@@ -199,6 +208,9 @@ To see videos/comments you liked or disliked, please follow these steps as conti
 
 Step4 In the **Google My Activity** tab, click **Other activity**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
@@ -284,3 +296,53 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nubia-red-magic-9-proplus-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Nubia Red Magic 9 Pro+ Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-record-twitch-stream-5-solutions/"><u>[New] 2024 Approved  Record Twitch Stream [5 Solutions]</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-vivo-y100i-power-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Vivo Y100i Power 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-tier-templates-for-zooid-introduction/"><u>[New] In 2024, Top-Tier Templates for Zooid Introduction</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-video-on-twitter-top-converter-picks-for-2024/"><u>[New] Mastering Video on Twitter  Top Converter Picks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-in-depth-theta-s-evaluation-overview/"><u>In 2024, In-Depth Theta S Evaluation Overview</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-samsung-galaxy-s8-setting-new-standards-for-4k-video/"><u>In 2024, Samsung Galaxy S8  Setting New Standards for 4K Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-syma-x5c-exposed-perfect-pick-for-novice-aerial-enthusiasts/"><u>In 2024, Syma X5C Exposed  Perfect Pick for Novice Aerial Enthusiasts</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-avs-video-editor-a-review-of-its-performance-and-capabilities/"><u>2024 Approved AVS Video Editor A Review of Its Performance and Capabilities</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/essential-guide-to-dslr-and-live-streaming-on-computers-for-2024/"><u>Essential Guide to DSLR and Live Streaming on Computers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-outdoor-gadgets-for-making-road-trip-videos/"><u>[New] Outdoor Gadgets for Making Road-Trip Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-capture-and-record-screens-free-and-plain/"><u>[New] In 2024, Capture and Record Screens, Free & Plain</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-picks-for-faith-based-ringtones-online-for-2024/"><u>Top Picks for Faith-Based Ringtones Online for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-asmrists-aiding-the-nighttime-ritual/"><u>[New] In 2024, Top ASMRists Aiding the Nighttime Ritual</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/from-click-to-chatter-turning-titles-into-talk-on-fb-for-2024/"><u>From Click to Chatter  Turning Titles Into Talk on FB for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-from-zero-to-hero-on-instagram-fame/"><u>In 2024, From Zero to Hero on Instagram Fame</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-full-fledged-vsco-editing-encyclopedia/"><u>In 2024, Full Fledged VSCO Editing Encyclopedia</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-crafting-unified-visuals-on-your-computer/"><u>2024 Approved  Crafting Unified Visuals on Your Computer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-5-low-cost-drones-maximum-performance-on-a-shoestring/"><u>[New] 2024 Approved  5 Low-Cost Drones  Maximum Performance on a Shoestring</u></a></li>
+<li><a href="https://video-capture.techidaily.com/privacy-protection-in-videos-a-guide-to-obscuring/"><u>Privacy Protection in Videos  A Guide to Obscuring</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-how-to-embark-on-the-facebook-experience-for-2024/"><u>[New] How to Embark on the Facebook Experience for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlining-communication-the-art-of-using-zoom-in-win11-for-2024/"><u>Streamlining Communication  The Art of Using Zoom in Win11 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-low-profile-youtubing-broadcasting-without-a-huge-sublist/"><u>In 2024, Low Profile YouTubing  Broadcasting without a Huge Sublist</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-essential-six-digital-forums-driving-corporate-growth-and-engagement/"><u>[New] 2024 Approved  Essential Six Digital Forums Driving Corporate Growth & Engagement</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-discover-the-best-sound-recording-applications-for-pc-users-top-10/"><u>New Discover the Best Sound Recording Applications for PC Users (Top 10)</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oppo-k11-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo K11 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-canva-meme-generator/"><u>[New] Canva Meme Generator</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elevate-your-video-presentations-applying-zoom-filters-guide/"><u>[New] In 2024, Elevate Your Video Presentations  Applying Zoom Filters Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-understanding-how-asmr-can-benefit-your-life-for-2024/"><u>[New] Understanding How ASMR Can Benefit Your Life for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-color-grading-movies-with-efficient-luts-usage/"><u>[New] Color Grading Movies with Efficient Luts Usage</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-v30-pro-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo V30 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-writers-journey-through-podcast-production/"><u>[Updated] In 2024, The Writer's Journey Through Podcast Production</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-dominance-index-top-ten-royale-survival-games/"><u>[New] Dominance Index  Top Ten Royale Survival Games</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/top-8-free-soundscape-resources-for-audio-enhancement-for-2024/"><u>Top 8 Free Soundscape Resources for Audio Enhancement for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-from-setup-to-streaming-the-definitive-guide-for-live-tv-screen-sharing-on-windows/"><u>[Updated] In 2024, From Setup to Streaming  The Definitive Guide for Live TV Screen-Sharing on Windows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-free-and-open-airwaves-at-home-internet-radio-recordings-explained/"><u>[New] In 2024, Free and Open Airwaves at Home - Internet Radio Recordings Explained</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-djis-minis-and-air-2-free-fun-luts-for-ultimate-mixes/"><u>[New] In 2024, DJI's Minis & Air 2  Free, Fun LUTS for Ultimate Mixes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-joining-the-digital-dialogue-facebook-basics-for-2024/"><u>[Updated] Joining the Digital Dialogue (Facebook Basics) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-iphone-shot-success-adopt-these-10-key-photographic-rules/"><u>[New] In 2024, IPhone Shot Success  Adopt These 10 Key Photographic Rules</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-live-streaming-showdown-obs-vs-wirecast-faceoff/"><u>[New] Live Streaming Showdown  OBS vs Wirecast Faceoff</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-do-evaluation-blogs-get-payments-for-products-for-2024/"><u>[New] Do Evaluation Blogs Get Payments for Products for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-ultimate-mic-selection-for-podcasters-for-2024/"><u>[New] The Ultimate Mic Selection for Podcasters for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-enhancing-video-content-top-formats-on-youtube/"><u>[Updated] Enhancing Video Content  Top Formats on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-premium-5-android-capture-and-screen-save-apps/"><u>[Updated] Premium 5 Android Capture & Screen Save Apps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-15-pro-max-official-method-to-unlock-your-apple-iphone-15-pro-max-by-drfone-ios/"><u>How To Unlock Apple iPhone 15 Pro Max Official Method to Unlock Your Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-2019-evolution-of-vegaspro/"><u>[New] 2024 Approved  The 2019 Evolution of VegasPro</u></a></li>
+</ul></div>

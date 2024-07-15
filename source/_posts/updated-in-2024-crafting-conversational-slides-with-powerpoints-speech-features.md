@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting Conversational Slides with PowerPoint's Speech Features"
-date: 2024-06-22T17:15:51.603Z
-updated: 2024-06-23T17:15:51.603Z
+date: 2024-07-13T22:18:20.453Z
+updated: 2024-07-14T22:18:20.453Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,9 @@ Please note that “enabling speech-to-text” in PowerPoint differs from “usi
 
 Once you activate the dictation from the command button, you can use the speech-to-text feature anywhere you can type on Mac - this applies to PowerPoint. However, you may need some tweaking on PowerPoint to finally use the feature as you prepare your slides.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Enable speech-to-text on Windows**
 
 Aside from the regular Cortana speech recognition on Windows, you can use the speech-to-text feature on PowerPoint. PowerPoint supports “speech-to-text” when you use the program; however, activating the Windows device through the **built-in speech recognition** makes the process easy and effective. Some windows PC, just like Mac, lets you first activate the speech recognition function before you proceed and use it on PowerPoint.
@@ -57,6 +60,9 @@ Aside from the regular Cortana speech recognition on Windows, you can use the sp
 
 ![click on the search button](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How do I dictate PowerPoint for Mac?
 
 It is easy to use PowerPoint on a Mac after activating the **“dictation”** button.
@@ -65,6 +71,18 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 
 * Sign in to the PowerPoint on your Mac device, and locate the customized **quick access toolbar.** The quick access toolbar includes **“more commands”** and other options.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![more commands and other options](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-5.jpg)
 
 * Reselect the option to “**all commands**.” The “all commands” should be enabled because they include many other commands, but you may not activate the options without selecting them.
@@ -137,6 +155,9 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
 ## FAQs
@@ -157,9 +178,9 @@ You can use your device's in-built microphone. However, you may need external ge
 
 Speech-to-text is an additional feature for all users. Typing is, however, the default practice.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Make PPT Videos Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -183,3 +204,51 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-tecno-pova-6-pro-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Tecno Pova 6 Pro 5G? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/launch-free-dvd-playback-capabilities-on-windowsmac-laptops-for-2024/"><u>Launch Free DVD Playback Capabilities on Windows/Mac Laptops for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-starter-camera-picks-top-takes-2024/"><u>[New] Starter Camera Picks  Top Takes 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-todays-virtual-realty-hardware-exploration/"><u>2024 Approved  Today’s Virtual Realty  Hardware Exploration</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-have-you-ever-heard-bokeh-effects-for-videos-do-you-know-that-you-can-make-your-own-bokeh-video-easily-with-some-software-this-article-will-introduc/"><u>In 2024, Have You Ever Heard Bokeh Effects for Videos? Do You Know that You Can Make Your Own Bokeh Video Easily with some Software. This Article Will Introduce You How to Make a Bokeh Effect Video with Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-harnessing-metaverse-promotion-power/"><u>In 2024, Harnessing Metaverse Promotion Power</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-master-money-making-on-reddit-in-just-a-few-simple-steps/"><u>[New] 2024 Approved  Master Money-Making on Reddit in Just a Few Simple Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/visual-voyage-from-realistic-images-to-animated-marvels-on-pcmac-for-2024/"><u>Visual Voyage  From Realistic Images to Animated Marvels on PC/Mac for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-retrace-mechanic-setup/"><u>2024 Approved  Retrace Mechanic Setup</u></a></li>
+<li><a href="https://fox-http.techidaily.com/curated-list-of-premium-iphone-x7-camera-improvers/"><u>Curated List of Premium iPhone X/7 Camera Improvers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-revolutionize-replies-enhancing-interaction-on-telegram-platforms/"><u>[Updated] Revolutionize Replies  Enhancing Interaction on Telegram Platforms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-alternatives-to-xsplit-for-digital-media-masters-for-2024/"><u>[New] Alternatives to Xsplit for Digital Media Masters for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-maximize-views-magnify-impact-youtube-marketing-essentials/"><u>2024 Approved  Maximize Views, Magnify Impact (YouTube Marketing Essentials)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-essential-screen-recording-tips-for-windows-8-pros/"><u>In 2024, Essential Screen Recording Tips for Windows 8 Pros</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-sdr-vs-hdri-elevating-your-content-with-advanced-color-techniques-for-2024/"><u>[Updated] SDR Vs. HDRI  Elevating Your Content with Advanced Color Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-weave-melodies-with-visuals-on-powerpoint/"><u>[New] 2024 Approved  Weave Melodies with Visuals on PowerPoint</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-7-types-of-color-grading-for-you-to-try/"><u>[New] 2024 Approved  7 Types of Color Grading for You to Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-unwanted-statuses-8-top-removal-techniques/"><u>Banishing Unwanted Statuses: 8 Top Removal Techniques</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-laying-down-an-elegant-tiktok-credits-panel/"><u>[Updated] In 2024, Laying Down an Elegant TikTok Credits Panel</u></a></li>
+<li><a href="https://fox-access.techidaily.com/best-subtitle-converters-win-and-mac-edition-leading-8-sbt-to-srtr-tools-for-2024/"><u>Best Subtitle Converters  Win & Mac Edition, Leading 8 SBT to SRTR Tools for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-infinix-hot-30-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Infinix Hot 30 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-captivating-clips-select-5-brightening-apps/"><u>2024 Approved  Captivating Clips  Select 5 Brightening Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/optimized-video-engagement-with-peak-post-times/"><u>Optimized Video Engagement with Peak Post Times</u></a></li>
+<li><a href="https://fox-http.techidaily.com/boost-your-images-advanced-online-photoshop-cropping-tips-for-2024/"><u>Boost Your Images  Advanced Online Photoshop Cropping Tips for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/immersive-escapades-testing-the-latest-lg-vr-headset-for-2024/"><u>Immersive Escapades  Testing the Latest LG VR Headset for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-100-working-method-for-adding-link-to-tiktok-bio/"><u>[New] 100%% Working Method for Adding Link to TikTok Bio</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-speedy-guide-crafting-images-into-stellar-youtube-thumbnail-pics/"><u>2024 Approved  Speedy Guide  Crafting Images Into Stellar YouTube Thumbnail Pics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-accompanying-audio-whatsapp-statement-boost/"><u>[New] 2024 Approved  Accompanying Audio  WhatsApp Statement Boost</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ultimate-8-choice-of-cameras-for-excellent-video-feeds/"><u>In 2024, Ultimate 8 Choice of Cameras for Excellent Video Feeds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-swift-shift-from-srt-to-text-your-modern-guide-for-speed/"><u>[New] 2024 Approved  Swift Shift From SRT to Text  Your Modern Guide for Speed</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-iphone-xr-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For iPhone XR</u></a></li>
+<li><a href="https://fox-http.techidaily.com/discovering-the-best-streamers-for-real-time-tv-for-2024/"><u>Discovering the Best Streamers for Real-Time TV for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-accessing-global-events-facebook-live-on-roku-devices/"><u>[New] Accessing Global Events  Facebook Live on Roku Devices</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-the-art-of-windows-assistance-entry/"><u>Mastering the Art of Windows Assistance Entry</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-powering-up-your-action-footage-one-gadget-at-a-time/"><u>In 2024, Powering Up Your Action Footage, One Gadget at a Time</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-enhance-channel-rankings-ethically/"><u>In 2024, How to Enhance Channel Rankings Ethically?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-honor-x7b-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Honor X7b Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-useful-guide-to-speed-updown-videos-in-camtasia/"><u>Updated 2024 Approved Useful Guide to Speed Up/Down Videos in Camtasia</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/analyzing-the-impact-of-reduced-photo-jiggles-in-adobe/"><u>Analyzing the Impact of Reduced Photo Jiggles in Adobe</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-continuous-media-logging-firms/"><u>[Updated] In 2024, Continuous Media Logging Firms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/deciphering-digital-realms-virtualitys-cousins-vr-ar-and-mr/"><u>Deciphering Digital Realms  Virtuality's Cousins (VR, AR, & MR)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-discover-the-best-of-photo-stickering-ios-and-android-leaders/"><u>In 2024, Discover the Best of Photo Stickering  IOS & Android Leaders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-guide-to-mastering-final-cut-pro-essentials-for-2024/"><u>[Updated] Ultimate Guide to Mastering Final Cut Pro Essentials for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-art-of-digital-cinema-a-detailed-analysis-of-lgs-31mu97-b-monitor/"><u>[Updated] The Art of Digital Cinema - A Detailed Analysis of LG’s 31MU97-B Monitor</u></a></li>
+</ul></div>

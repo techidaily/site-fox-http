@@ -1,7 +1,7 @@
 ---
 title: "[New] Swift Skim Windows File Compilation"
-date: 2024-06-22T17:46:12.978Z
-updated: 2024-06-23T17:46:12.978Z
+date: 2024-07-13T22:51:14.240Z
+updated: 2024-07-14T22:51:14.240Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/6a18129a35160648e7ff206817c86c3e7a35764f1
 
 Windows operating system comes with an inbuilt file preview feature embedded in Explorer. This feature lets you preview documents and images before uploading them on apps like Skype, Facebook, and more. But what happens if you want to preview videos, audio, spreadsheets, ZIP, and more? In that case, install **QuickLook for Windows**. So, what exactly is **QuickLook for Windows 10,** and where can you get this app? For answers and more, read to the end.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Download Quick Look App on Microsoft Store
 
 If your computer is always handling documents, spreadsheets, PDFs, presentations, images, and other files, it’s probably time to install **QuickLook for Mac** and Windows. This intelligent program lets you quickly preview files without opening them on separate apps. Just think of it as the “file viewer” feature on Windows File Explorer, which allows you to view files before loading online or opening them on local apps. Of course, this can help you know which app can open the file and if it’s the correct file to open.
@@ -40,6 +43,9 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Get the App on GitHub
 
 If you can’t find QuickLook on Microsoft Store for one reason or another, download the program from GitHub. It’s an open-source community where millions of software developers converge to distribute and share their work. Here, you can download and install multiple desktop programs and plugins for free. However, you must be a registered member to contribute any content.
@@ -52,6 +58,9 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
@@ -70,6 +79,9 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: Frequently Asked Questions
 
 #### 1\. Which digital file formats are compatible with QuickLook?
@@ -117,3 +129,54 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-easy-guide-to-using-your-phone-as-an-alternative-camera/"><u>[Updated] Easy Guide to Using Your Phone as an Alternative Camera</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-enhancing-visual-detail-in-videoleap-videos/"><u>In 2024, Enhancing Visual Detail in Videoleap Videos</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-making-an-impact-with-your-youtube-shorts-content/"><u>In 2024, Making an Impact with Your YouTube Shorts Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-guide-to-unwavering-visual-captures/"><u>[New] A Guide to Unwavering Visual Captures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-key-applications-for-superior-vtuber-audible-identity/"><u>[Updated] In 2024, Key Applications for Superior Vtuber Audible Identity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-efficient-video-mastery-merging-windows-11-and-storyremix-technologies/"><u>[Updated] In 2024, Efficient Video Mastery  Merging Windows 11 and StoryRemix Technologies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-innovative-iphone-and-ipad-video-players-the-10-best-options-for-2024/"><u>[New] Innovative iPhone & iPad Video Players  The 10 Best Options for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-videohub-app-critique-compendium/"><u>In 2024, VideoHub App Critique Compendium</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-developing-optimal-canon-chrono-recordings/"><u>[New] In 2024, Developing Optimal Canon Chrono Recordings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-optimize-youtube-submissions-for-extended-films/"><u>[New] In 2024, How to Optimize YouTube Submissions for Extended Films</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlocking-success-in-live-streaming-of-cricket-matches/"><u>2024 Approved  Unlocking Success in Live Streaming of Cricket Matches</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-boosting-visuals-implementing-filters-on-devices-for-2024/"><u>[New] Boosting Visuals  Implementing Filters on Devices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-complete-look-at-color-correction-for-gopro-videos/"><u>[New] A Complete Look at Color Correction for GoPro Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-leading-tactics-sourcing-high-quality-photo-and-video-backdrops-for-2024/"><u>[New] Leading Tactics  Sourcing High-Quality Photo & Video Backdrops for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-skype-call-chronicles-20plus-strategies-for-savvy-windowsmac-users-for-2024/"><u>[New] Skype Call Chronicles  20+ Strategies for Savvy Windows/Mac Users for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/highpoint-artist-toolkit-review/"><u>Highpoint Artist Toolkit Review</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/infinite-snaps-ensuring-a-lasting-snapchat-connection-for-2024/"><u>Infinite Snaps  Ensuring a Lasting Snapchat Connection for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-new-era-vr-game-engines-whats-revolutionary/"><u>[Updated] New Era VR Game Engines  What's Revolutionary ?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-iphone-guide-inverting-your-media-files/"><u>In 2024, IPhone Guide  Inverting Your Media Files</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-designing-dynamic-movie-synopses/"><u>In 2024, Designing Dynamic Movie Synopses</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-crafting-compelling-content-strategies-for-snapbiz/"><u>In 2024, Crafting Compelling Content  Strategies for SnapBiz</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-giggle-guides-essential-websites-for-humorous-ringtones/"><u>[Updated] In 2024, Giggle Guides  Essential Websites for Humorous Ringtones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-list-of-iphone-selfie-perks-8/"><u>2024 Approved  The Ultimate List of IPhone Selfie Perks #8</u></a></li>
+<li><a href="https://fox-http.techidaily.com/discovering-the-top-rated-free-srt-translation-websites-for-2024/"><u>Discovering the Top-Rated Free SRT Translation Websites for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-vr-bikes-to-check-out/"><u>[New] 2024 Approved  Top VR Bikes to Check Out</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-ultimate-strategy-for-selecting-a-premium-stream-service/"><u>[New] In 2024, The Ultimate Strategy for Selecting a Premium Stream Service</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-breakdown-average-monthly-earning-for-podcasters/"><u>[New] In 2024, Breakdown  Average Monthly Earning for Podcasters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-gopro-hero5-black-vs-yi-4k-latest-camera-showdown/"><u>[New] In 2024, GoPro Hero5 Black VS Yi 4K - Latest Camera Showdown</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-captivating-livestreams-with-zoom-for-youtube-audiences/"><u>2024 Approved  Crafting Captivating Livestreams with Zoom for YouTube Audiences</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-quest-for-enchanted-speech-is-the-magic-app-real-uncover-other-pathways/"><u>[Updated] In 2024, The Quest for Enchanted Speech  Is the Magic App Real? Uncover Other Pathways</u></a></li>
+<li><a href="https://fox-http.techidaily.com/arcane-acoustics-how-legit-is-the-vocal-transformation-application-look-elsewhere-for-2024/"><u>Arcane Acoustics  How Legit Is the Vocal Transformation Application? Look Elsewhere for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-choosing-the-right-medium-audio-vs-video-based-platforms-for-2024/"><u>[New] Choosing the Right Medium  Audio vs Video-Based Platforms for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-exploring-the-depths-top-10-unknown-features-in-vlc-player/"><u>[Updated] In 2024, Exploring the Depths  Top 10 Unknown Features in VLC Player</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-streamlining-youtube-videos-for-facebook-circulation/"><u>[Updated] In 2024, Streamlining YouTube Videos for Facebook Circulation</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/are-you-a-gaming-youtuber-or-content-creator-whose-main-game-is-cod-warzone-how-kickass-are-your-warzone-thumbnails-heres-a-guide-on-how-to-make-one-for-fre/"><u>Are You a Gaming YouTuber or Content Creator Whose Main Game Is COD Warzone? How Kickass Are Your Warzone Thumbnails? Heres a Guide on How to Make One for Free</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Tecno Phantom V Flip? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elite-catch-footage-cameras-top-5-list/"><u>Elite Catch Footage Cameras - Top 5 List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-capturing-details-with-intimate-filming-techniques/"><u>[New] 2024 Approved  Capturing Details with Intimate Filming Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crystal-clear-imagery-best-online-tools-for-clarity/"><u>2024 Approved  Crystal Clear Imagery  Best Online Tools for Clarity</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-tiktok-creators-guide-to-aspect-ratio-for-2024/"><u>Updated The TikTok Creators Guide to Aspect Ratio for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-smartphone-viewing-at-its-peak-top-10-free-video-streamers/"><u>[New] In 2024, Smartphone Viewing at Its Peak  Top 10 Free Video Streamers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/innovative-virtual-bike-trails-unveiled/"><u>Innovative Virtual Bike Trails Unveiled</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-tips-acquiring-high-quality-backdrop-visuals-for-2024/"><u>Top Tips  Acquiring High-Quality Backdrop Visuals for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/droning-for-the-young-and-novice-top-picks/"><u>Droning for the Young and Novice  Top Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ice-and-elegance-the-2022-winter-olympics-in-china-for-2024/"><u>Ice & Elegance  The 2022 Winter Olympics in China for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-nearby-nuances-in-your-minecraft-realm/"><u>2024 Approved  Navigating Nearby Nuances in Your Minecraft Realm</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-uncovering-the-essence-of-obss-screen-capture-features/"><u>[Updated] Uncovering the Essence of OBS's Screen Capture Features</u></a></li>
+</ul></div>

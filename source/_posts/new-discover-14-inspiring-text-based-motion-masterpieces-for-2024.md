@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Discover 14 Inspiring Text-Based Motion Masterpieces for 2024\""
-date: 2024-06-22T18:09:04.556Z
-updated: 2024-06-23T18:09:04.556Z
+date: 2024-07-13T23:16:08.409Z
+updated: 2024-07-14T23:16:08.409Z
 tags: 
   - screen-recording
   - ai video
@@ -86,10 +86,16 @@ Generally, in a slide out text animation, the text comes out of a border and the
 
 ![combined slide out animation](https://images.wondershare.com/filmora/article-images/2022/09/combined-slide-out-animation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. The Stomp Animation
 
 The stomp effect is quite eye-catching due to its dynamic nature. In this animation, the words come out from another word till the entire sentence is displayed. For example, you have a sentence of four words to display. So, you should show the first word and the second word will come out of the first word and the sequence will continue. If you have two words, you can show them coming out of one another from the middle.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![the stomp animation](https://images.wondershare.com/filmora/article-images/2022/09/the-stomp-animation.jpg)
 
 ### 4\. The Curtain Animation
@@ -98,6 +104,9 @@ In this animation, the moving boxes will slide in and slide out and in the proce
 
 ![the curtain animation](https://images.wondershare.com/filmora/article-images/2022/09/the-curtain-animation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Animated Text Outline Effect
 
 This is one of the stunning After Effects text animation examples whereby the outline of the text is made to animate with different colors so that the text becomes eye-catching. The text fill color should stay the same as the background so that only the outline is visible and the outline will be moving around one another.
@@ -240,6 +249,9 @@ Instead of bringing the entire sentence into focus, you can use a square box to 
 
 ![in and out focus text effect](https://images.wondershare.com/filmora/article-images/2022/09/in-and-out-focus-text-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. How to Make a Text Animation Video
 
 If you want to make all these interesting and amazing text animations in simple steps, you will need a super intuitive professional video editor. We recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) where there are literally unlimited text effects and animations available that you can use on your video instantly. You will get all the popular and latest text animations from its wide collection of text assets. Here are the steps to create a text animation video using Filmora.
@@ -291,3 +303,52 @@ We have discussed all the common type of text animations that are used to create
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-the-essence-of-kinemaster-and-evaluate-10-leading-online-game-alternatives/"><u>2024 Approved  Discover the Essence of KineMaster and Evaluate 10 Leading Online Game Alternatives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-advanced-tips-for-effective-chroma-keying-in-kinemaster/"><u>[Updated] Advanced Tips for Effective Chroma Keying in KineMaster</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-holographic-horizons-reimagined-movies/"><u>2024 Approved  Holographic Horizons  Reimagined Movies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-android-tutorial-reversed-video-display/"><u>[Updated] Android Tutorial  Reversed Video Display</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-reviving-the-workspace-dive-into-windows-10s-innovations/"><u>[Updated] In 2024, Reviving the Workspace  Dive Into Windows 10'S Innovations</u></a></li>
+<li><a href="https://win11.techidaily.com/instructions-for-completely-getting-rid-of-wsl-on-win-11/"><u>Instructions for Completely Getting Rid of WSL on Win 11</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-solo-artists-roadmap-to-auditory-fame/"><u>2024 Approved  The Solo Artist's Roadmap to Auditory Fame</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-apple-iphone-14-pro-max-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 6 Apps/Services to Trace Any Apple iPhone 14 Pro Max Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/removing-vibration-effects-from-drones-recordings/"><u>Removing Vibration Effects From Drones' Recordings</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/androids-step-by-step-to-rotate-and-unite-video-files-for-2024/"><u>Android's Step-by-Step to Rotate & Unite Video Files for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-ultimate-cheat-sheet-inserting-vimeo-videos-into-slides/"><u>[Updated] In 2024, The Ultimate Cheat Sheet  Inserting Vimeo Videos Into Slides</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-unraveling-the-mysteries-of-discord/"><u>[New] In 2024, Unraveling the Mysteries of Discord</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-elevate-your-content-20-exceptional-tiktok-captions-for-success/"><u>In 2024, Elevate Your Content  20 Exceptional TikTok Captions for Success</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-exclusive-list-20-complimentary-tools-for-fb-ad-producers/"><u>[New] In 2024, Exclusive List  20 Complimentary Tools for Fb Ad Producers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-simplifying-the-process-of-creating-time-lapses-with-gopro/"><u>[Updated] Simplifying the Process of Creating Time Lapses with GoPro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-blades-visual-journey-from-standard-to-stunning-4k-for-2024/"><u>[Updated] Blade's Visual Journey  From Standard to Stunning 4K for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ai-driven-high-quality-editing-platform/"><u>2024 Approved  AI-Driven High-Quality Editing Platform</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-poco-m6-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Poco M6 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-melody-on-calls-the-complete-guide-to-downloading-and-editing-tamil-tracks/"><u>[New] Melody on Calls  The Complete Guide to Downloading & Editing Tamil Tracks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-secure-and-updated-altering-numbers-in-tiktok-profiles/"><u>[Updated] In 2024, Secure and Updated  Altering Numbers in TikTok Profiles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/smartphone-lighting-kits-for-improved-footage-for-2024/"><u>Smartphone Lighting Kits for Improved Footage for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-poco-x5-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-xiaomi-redmi-note-12-4g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Xiaomi Redmi Note 12 4G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-itel-p55t-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Itel P55T FRP Bypass</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-optimal-display-technologies-srgb-over-rgb/"><u>[Updated] 2024 Approved  Optimal Display Technologies  Srgb over Rgb</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-finding-and-obtaining-free-image-frame-content-for-2024/"><u>[Updated] Finding and Obtaining Free Image Frame Content for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/breakdown-of-pewdiepies-monthly-earning-trends/"><u>Breakdown of PewDiePie's Monthly Earning Trends</u></a></li>
+<li><a href="https://fox-http.techidaily.com/yearly-top-unpacking-channel-guide-the-best-of-2024/"><u>Yearly Top-Unpacking Channel Guide - The Best of 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/how-to-trim-video-with-kapwing-editor-online-for-2024/"><u>How to Trim Video with Kapwing Editor Online for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-full-examination-of-djis-drone-inspire-1/"><u>2024 Approved  Full Examination of DJI's Drone, Inspire 1</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-stability-secrets-for-dynamic-photo-shoots-for-2024/"><u>[New] Stability Secrets for Dynamic Photo Shoots for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pinpointing-best-launch-dates-for-podcasts/"><u>2024 Approved  Pinpointing Best Launch Dates for Podcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-effortless-artistry-convert-photographs-to-cartoon-characters/"><u>[Updated] In 2024, Effortless Artistry  Convert Photographs to Cartoon Characters</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-visualcut-content-checker/"><u>In 2024, VisualCut Content Checker</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-exploring-the-depths-of-ifunnys-meme-experience/"><u>[Updated] In 2024, Exploring the Depths of iFunny's Meme Experience</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-essential-blueprint-for-home-based-podcasting-for-2024/"><u>The Essential Blueprint for Home-Based Podcasting for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-delving-into-magix-photo-organizer/"><u>[Updated] 2024 Approved  Delving Into MAGIX Photo Organizer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-obs-vs-wirecast-which-should-you-trust-for-live-for-2024/"><u>[Updated] OBS Vs. Wirecast - Which Should You Trust for Live for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-content-game-perfectly-tailored-youtube-shorts-thumbnails/"><u>[New] In 2024, Elevate Your Content Game  Perfectly Tailored YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-picks-for-top-rated-free-srt-translation-tools/"><u>2024 Approved  Ultimate Picks for Top-Rated Free SRT Translation Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-shape-business-visions-no-money-just-templates/"><u>2024 Approved  Shape Business Visions - No Money, Just Templates</u></a></li>
+<li><a href="https://fox-http.techidaily.com/perfecting-text-in-after-effects-the-best-10-for-2024/"><u>Perfecting Text in After Effects  The Best 10 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-discover-the-top-11-kid-videography-gear-for-initial-use/"><u>[Updated] 2024 Approved  Discover the Top 11 Kid Videography Gear for Initial Use</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-epicurean-lens-techniques-for-delicious-content/"><u>[Updated] In 2024, The Epicurean Lens  Techniques for Delicious Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-amass-higher-views-with-powerful-youtube-tags/"><u>[New] In 2024, Amass Higher Views with #Powerful YouTube Tags</u></a></li>
+</ul></div>

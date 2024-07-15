@@ -1,7 +1,7 @@
 ---
 title: "Ease Down Mix Levels with FL for 2024"
-date: 2024-06-22T17:10:30.158Z
-updated: 2024-06-23T17:10:30.158Z
+date: 2024-07-13T22:12:31.239Z
+updated: 2024-07-14T22:12:31.239Z
 tags: 
   - screen-recording
   - ai video
@@ -54,10 +54,16 @@ However, if you are looking forward to the alternative option for FL Studio, [Fi
 
 Step1 The first thing you have to do is successfully install the Filmora software on your pc or mac. Before fading audio, you should have some basic knowledge about the keyframes. After creating the audio keyframes, you will see an audio panel like the below surface.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
@@ -70,6 +76,9 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
@@ -98,6 +107,9 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
@@ -129,3 +141,47 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/in-2024-high-staking-habitats-critical-commentary/"><u>In 2024, HIGH-STAKING HABITATS  Critical Commentary</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-from-basics-to-bonus-elevate-your-cam-game/"><u>[New] In 2024, From Basics to Bonus  Elevate Your Cam Game</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-youtube-on-facebook-feeds/"><u>[Updated] Unlocking YouTube on Facebook Feeds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-action-camera-accessories-buying-guide-for-2024/"><u>[New] Action Camera Accessories Buying Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cutting-edge-strategies-for-flawless-custom-shorts-coverage/"><u>[Updated] In 2024, Cutting-Edge Strategies for Flawless Custom Shorts Coverage</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-innovative-strategies-for-captivating-handc-fb-campaigns/"><u>[Updated] In 2024, Innovative Strategies for Captivating H&C FB Campaigns</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-supreme-creation-studio-test/"><u>[Updated] Supreme Creation Studio Test</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-crafting-the-ideal-whatsapp-ringtone-ios-and-android-guide/"><u>In 2024, Crafting the Ideal WhatsApp Ringtone - iOS & Android Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-youtube-tactics-for-effective-brand-promotion-for-2024/"><u>1  Key YouTube Tactics for Effective Brand Promotion for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-adaptability-and-agility-key-attributes-for-thriving-in-a-changing-market-landscape/"><u>In 2024, Adaptability & Agility  Key Attributes for Thriving in a Changing Market Landscape</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-swift-fixes-to-rectify-non-sending-videos-on-the-social-networking-platform-iphoneandroid/"><u>2024 Approved  Swift Fixes to Rectify Non-Sending Videos on the Social Networking Platform iPhone/Android</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-livestream-perfection-selecting-your-go-to-platform/"><u>[New] Livestream Perfection  Selecting Your Go-To Platform</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-exploring-the-value-of-sns-hdr-and-its-market-rivals-for-2024/"><u>[New] Exploring the Value of SNS HDR and Its Market Rivals for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-free-online-compilation-of-copyright-free-charts-for-2024/"><u>[New] Free Online Compilation of Copyright-Free Charts for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-transforming-passion-into-a-fulfilling-design-career-for-2024/"><u>[New] Transforming Passion Into a Fulfilling Design Career for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unlocking-xcreative-hub-potential-a-full-guide-review/"><u>[Updated] 2024 Approved  Unlocking XCreative Hub Potential - A Full Guide Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unlock-expertise-proven-hidden-window-11-strategies-for-everyday-users/"><u>[New] Unlock Expertise  Proven, Hidden WINDOW 11 Strategies for Everyday Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-instagrams-guide-to-intellectual-property-in-music/"><u>In 2024, Instagram's Guide to Intellectual Property in Music</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-high-end-hardware-a-showcase-of-excellence/"><u>[Updated] 2024 Approved  High-End Hardware  A Showcase of Excellence</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-comprehensive-overview-dji-inspire-2/"><u>[New] 2024 Approved  Comprehensive Overview - DJI Inspire 2</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/smart-strategies-for-effective-windows-based-hp-printer-setups/"><u>Smart Strategies for Effective Windows-Based HP Printer Setups</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-guide-to-cost-free-text-animations-onlineoff/"><u>[Updated] Guide to Cost-Free Text Animations (Online/Off)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-visual-cutting-edge-extracting-frames-from-films-on-windows-10/"><u>In 2024, Visual Cutting Edge  Extracting Frames From Films on Windows 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-smilesphere-endless-possibrancies-in-meme-land/"><u>In 2024, SmileSphere  Endless Possibrancies in Meme Land</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enabling-creativity-with-free-online-and-offline-animation-methods/"><u>[Updated] 2024 Approved  Enabling Creativity with Free Online & Offline Animation Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-essential-seo-handbook-for-podcast-success/"><u>[Updated] 2024 Approved  The Essential Seo Handbook for Podcast Success</u></a></li>
+<li><a href="https://fox-http.techidaily.com/key-frames-per-second-in-superior-slow-motion-imaging/"><u>Key Frames per Second in Superior Slow Motion Imaging</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-spotlight-on-premium-360cameras-for-professionals/"><u>In 2024, Spotlight on Premium 360°Cameras for Professionals</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ultimate-selection-free-photo-enhancement-tools-for-iphones/"><u>[New] Ultimate Selection  Free Photo Enhancement Tools for iPhones</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-htc-u23-pro-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your HTC U23 Pro in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-enhance-channel-rankings-ethically-in-2024/"><u>[Updated] How to Enhance Channel Rankings Ethically, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-expert-techniques-for-streamers-on-macos/"><u>[Updated] In 2024, Expert Techniques for Streamers on macOS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-prime-pick-all-angle-action-cameras/"><u>[New] Prime Pick  All-Angle Action Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-explore-how-you-can-do-speech-to-text-in-powerpoint/"><u>In 2024, Explore How You Can Do Speech-To-Text in Powerpoint</u></a></li>
+<li><a href="https://extra-information.techidaily.com/identifying-the-best-iphone-watermarks-a-complete-guide/"><u>Identifying the Best iPhone Watermarks  A Complete Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-kinemasters-blueprint-for-smooth-video-flow-and-continuity/"><u>[Updated] In 2024, Kinemaster's Blueprint for Smooth Video Flow and Continuity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-tale-of-two-sides-in-the-vr-revolution-for-2024/"><u>The Tale of Two Sides in the VR Revolution for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-building-blocks-to-successful-video-editing-on-windows-8-for-2024/"><u>[Updated] Building Blocks to Successful Video Editing on Windows 8 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-list-for-first-time-film-makers-35mm-to-pands/"><u>[New] 2024 Approved  The Ultimate List for First-Time Film Makers (35Mm to P&S)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-complete-analysis-gopro-silver-edition-hero4-assessment/"><u>In 2024, Complete Analysis  GoPro Silver Edition HERO4 Assessment</u></a></li>
+</ul></div>

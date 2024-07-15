@@ -1,7 +1,7 @@
 ---
 title: "\"Incorporating Captions in Photography  A User-Friendly Guide on PC & Mac for 2024\""
-date: 2024-06-22T17:34:32.338Z
-updated: 2024-06-23T17:34:32.338Z
+date: 2024-07-13T22:38:41.014Z
+updated: 2024-07-14T22:38:41.014Z
 tags: 
   - screen-recording
   - ai video
@@ -24,6 +24,9 @@ But if you still have these questions in your mind that "How you can **add text 
 
 ## Add text using the photos program
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1.1 Add writing to photos on Mac
 
 You guys can add text to your photos using Mac's default photo editor in the Apple Photos app. Following are the steps you should follow to do it:
@@ -32,6 +35,9 @@ Step1Open the Apple Photos app on your Mac and select the picture you want to ed
 
 Step2Click the edit button there at the top.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click edit button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-1.jpg)
 
 Step3Now click the More icon, which is at the top right portion of it (it usually looks like an ellipsis), and then in the dropdown menu, click on the Markup option.
@@ -44,6 +50,9 @@ Step4Now click on the text button at the top left corner of the screen to add a 
 
 Step5You can drag this text box and place it wherever you want it in your image. Also, to choose the font style, size, and color, you can click on the Text Style icon and save your changes.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![place text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-4.jpg)
 
 ### 1.2 Add writing to photos on Windows 10/11
@@ -76,6 +85,9 @@ Step7To save your edited image, click on the Menu button at the top left corner 
 
 Step8Click any Save or Save as button to save the edited image.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click save button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-10.jpg)
 
 ## 5 Methods to add text on photos online
@@ -328,9 +340,9 @@ Cons
 
 The last words for today's topic here is that there are numerous solutions available nowadays if you want to add text to your images. Every one of them has pros and drawbacks. The best option would be to select the one of these that best fits your needs, offers you advantages over its drawbacks, and is known in the industry as Wondershare PixStudio. It is the greatest option for adding text to your images simply. Finally, we hope that this post has been helpful to everyone and that you have all enjoyed reading it.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 Pros
 
@@ -536,9 +548,9 @@ Cons
 
 The last words for today's topic here is that there are numerous solutions available nowadays if you want to add text to your images. Every one of them has pros and drawbacks. The best option would be to select the one of these that best fits your needs, offers you advantages over its drawbacks, and is known in the industry as Wondershare PixStudio. It is the greatest option for adding text to your images simply. Finally, we hope that this post has been helpful to everyone and that you have all enjoyed reading it.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -563,3 +575,57 @@ The last words for today's topic here is that there are numerous solutions avail
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/5-innovative-yt-tales-share-your-life-journey-for-2024/"><u>5 Innovative YT Tales  Share Your Life Journey for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/explore-the-power-of-pip-on-modern-edge-browser-for-2024/"><u>Explore the Power of PIP on Modern Edge Browser for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/accelerating-periscope-video-transmission-for-2024/"><u>Accelerating Periscope Video Transmission for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-elevating-vision-a-compre-written-by-jovita-lara-msn-student-arizona-state-university-for-2024/"><u>[Updated] Elevating Vision  A Compre Written By  Jovita Lara, MSN Student (Arizona State University) for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-from-youtube-to-mp4-in-no-time-expert-tips-for-selecting-a-converter/"><u>Updated In 2024, From YouTube to MP4 in No Time Expert Tips for Selecting a Converter</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/resolve-your-iphone-se-2022-keeps-asking-for-outlook-password-by-drfone-ios/"><u>Resolve Your iPhone SE (2022) Keeps Asking for Outlook Password</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unveiling-viewer-insights-understanding-subscriber-feedback-for-2024/"><u>[New] Unveiling Viewer Insights  Understanding Subscriber Feedback for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-kinemaster-techniques-and-top-10-online-rivals/"><u>[Updated] 2024 Approved  Mastering KineMaster  Techniques & Top 10 Online Rivals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/capturing-every-corner-our-top-picks-for-best-11-bridge-cameras-for-2024/"><u>Capturing Every Corner  Our Top Picks for Best 11 Bridge Cameras for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/mastering-the-art-of-iphoneipad-video-logging-for-2024/"><u>Mastering the Art of iPhone/iPad Video Logging for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-vivo-s18e-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Vivo S18e Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-no-more-complexities-record-with-nvidia/"><u>[New] No More Complexities  Record with NVIDIA</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-superior-style-for-text-mobility/"><u>In 2024, Superior Style for Text Mobility</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-delving-into-filmoras-appeal-its-essential-10-features/"><u>[Updated] 2024 Approved  Delving Into Filmora's Appeal  Its Essential 10 Features</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-transform-your-movie-grading-skills-using-cg-centrals-luts/"><u>[Updated] Transform Your Movie Grading Skills Using CG Central's Luts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unleash-your-pcs-hidden-treasures-with-new-windows-10-games/"><u>[Updated] In 2024, Unleash Your PC’s Hidden Treasures with New Windows 10 Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-optimal-display-choices-the-top-5-for-ps5-games/"><u>[Updated] In 2024, Optimal Display Choices  The Top 5 For PS5 Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-tech-in-cards-for-4k-video-editing/"><u>Best Tech in Cards  For 4K Video Editing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-navigating-the-world-of-quantum-hdr-imaging/"><u>[Updated] Navigating the World of Quantum HDR Imaging</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-editors-guide-to-age-old-vhs-effects-in-digital-video-production/"><u>[New] In 2024, The Editor's Guide to Age-Old VHS Effects in Digital Video Production</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-optimal-design-options-for-windows-users-no-cost-or-charged/"><u>In 2024, Optimal Design Options for Windows Users - No Cost or Charged</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-income-predictors-guide-top-6-for-tiktok-creators/"><u>[New] In 2024, Income Predictors Guide  Top 6 for TikTok Creators</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-64128gb-data-puzzle-solving-video-limits/"><u>In 2024, 64/128GB Data Puzzle  Solving Video Limits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-smooth-insertion-of-videos-into-your-custom-youtube-shelves-for-2024/"><u>[New] Smooth Insertion of Videos Into Your Custom YouTube Shelves for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-why-is-my-instagram-video-rotated-unnaturally-for-2024/"><u>[Updated] Why Is My Instagram Video Rotated Unnaturally for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-effortless-capture-iphones-dual-task-technique/"><u>[Updated] 2024 Approved  Effortless Capture  IPhone's Dual-Task Technique</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-charting-course-essential-steps-from-concept-to-content-creation-in-review-channels/"><u>[Updated] 2024 Approved  Charting Course  Essential Steps From Concept to Content Creation in Review Channels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-easy-steps-making-time-lapses-on-galaxy-phones-for-2024/"><u>[Updated] Easy Steps  Making Time-Lapses on Galaxy Phones for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlining-your-websites-visual-content-via-cropping-for-2024/"><u>Streamlining Your Website's Visual Content via Cropping for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-turn-swipes-to-love-powerful-tricks-and-ideas-for-standout-biographies/"><u>[Updated] In 2024, Turn Swipes to Love  Powerful Tricks and Ideas for Standout Biographies</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/top-10-photo-editing-software-options-beyond-windows-10-photos/"><u>Top 10 Photo Editing Software Options Beyond Windows 10 Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-artistic-awareness-accelerate-editing-in-the-photos-app-win10-style/"><u>[Updated] Artistic Awareness  Accelerate Editing in the Photos App, WIN10 Style</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-zoom-excellence-key-steps-to-maximize-video-format-shifts/"><u>[Updated] Zoom Excellence  Key Steps to Maximize Video Format Shifts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-direct-pathway-iphone-media-to-pc-transfer/"><u>2024 Approved  Direct Pathway  IPhone Media to PC Transfer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-simplify-video-annotation-adding-titles-and-captions-via-photos-win-11/"><u>[Updated] 2024 Approved  Simplify Video Annotation  Adding Titles & Captions via Photos Win 11</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-extended-scope-camera-platforms/"><u>2024 Approved  Extended Scope Camera Platforms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-no-pay-no-problem-get-your-free-passport-photo-creator-now-online-and-on-desktop/"><u>[Updated] In 2024, No Pay, No Problem  Get Your Free Passport Photo Creator Now Online & On Desktop</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-power-of-perception-iconic-podcast-design-tips/"><u>[Updated] 2024 Approved  The Power of Perception  Iconic Podcast Design Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-master-list-of-professional-windows-based-videography-tools/"><u>[New] Master List of Professional Windows-Based Videography Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-vsdm-video-capture-overview-thorough-scrutiny/"><u>[New] 2024 Approved  VSDM Video Capture Overview  Thorough Scrutiny</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unleash-potential-the-best-10-motivational-movies/"><u>Unleash Potential  The Best 10 Motivational Movies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-novices-navigate-for-speedy-snapchat-videos/"><u>2024 Approved  Novice's Navigate for Speedy Snapchat Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-science-behind-stopping-photo-booth-movies-for-2024/"><u>[New] The Science Behind Stopping Photo Booth Movies for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-new-age-of-memes-how-to-stand-out-in-the-metaverse-for-2024/"><u>The New Age of Memes  How to Stand Out in the Metaverse for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-key-steps-for-flawless-audio-segmentation-for-2024/"><u>[Updated] Key Steps for Flawless Audio Segmentation for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harnessing-the-power-of-audio-on-your-device-apples-podcast-download-guide/"><u>[New] Harnessing the Power of Audio on Your Device  Apple's Podcast Download Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-learn-to-negate-video-ordering-in-android/"><u>[Updated] Learn To Negate Video Ordering in Android</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-best-templates-no-cost-explore-premiere-pro-samples-free/"><u>In 2024, Best Templates, No Cost! Explore Premiere Pro Samples (FREE)</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Revealing the Mysteries of WhatsApp  Tricks & Features\""
-date: 2024-07-07T15:38:07.381Z
-updated: 2024-07-08T15:38:07.381Z
+date: 2024-07-13T23:57:49.283Z
+updated: 2024-07-14T23:57:49.283Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,9 @@ Just like the bold, you can also italicize your fonts by simply inserting Unders
 
 Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is also a functional tool for text corrections, used at large for online tutorials, editorials, or brainstorming. For adding Strikethrough use the Tilde Symbol (\~text\~) at the starting and end of your text.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Strikethrough](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-strikethrough.png)
 
 #### 4.Monospace
@@ -64,6 +67,9 @@ The monospace is a font stylization now available in WhatsApp that allows you to
 
 WhatsApp introduced the Blue Tick feature to notify users when their messages are not only delivered but are seen by the recipients. But it has also been the cause of fallouts between loved ones and even trouble at work for failing to respond despite a Blue Tick. Now you can control the fury with WhatsApp Text Tricks of disabling the Read Recipient feature. Go Settings >> Account >> Privacy >> Read Recipients. By doing this, you won’t be able to see your contact’s blue ticks as no one will be able to see yours. Unlike custom notifications, the Read Recipient feature applies to your entire contact list and cannot be used for one specific contact. The sender would see black double ticks even if you read the message.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
 
 #### 6.Pin Prioritized Contacts
@@ -78,6 +84,9 @@ Source: techmesto.com
 
 If you wish to save the chats that you exchanged with someone special, you can email the entire chat thread to yourself or someone else, you can even save it to Drive. Open the chat thread and tap on the 3 dots icon, then click >>More<< and then click on >>Export Chat<<. This will open a host of options allowing you to export your chat logs to a multitude of destinations.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
 #### 8.WhatsApp Font Tricks for Formatting
@@ -98,6 +107,9 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What are the Hidden Features of WhatsApp?
 
 Since most of the above-mentioned are owing to the tricks and trades of texting via WhatsApp, let us now jot down a WhatsApp hidden feature list that applies for general usability of the wonder-app. There are useful privacy settings and chat features that can make your user experience a lot more peaceful.
@@ -208,3 +220,56 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/2024-approved-survey-diverse-categories-in-visual-media-tech/"><u>2024 Approved  Survey  Diverse Categories in Visual Media Tech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-breaking-down-the-free-fcp-puzzle/"><u>[New] In 2024, Breaking Down The Free FCP Puzzle</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-optimize-clarity-mastering-close-up-techniques-in-videoleap-for-2024/"><u>[New] Optimize Clarity  Mastering Close-Up Techniques in Videoleap for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/iphones-and-gifs-storing-sharing-and-enjoying-animated-images-for-2024/"><u>IPhones and GIFs  Storing, Sharing & Enjoying Animated Images for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-online-communities-tailored-for-seniors/"><u>Top 5 Online Communities Tailored for Seniors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-guide-to-reducing-shakiness-on-your-gopro-movie-for-2024/"><u>[Updated] The Ultimate Guide to Reducing Shakiness on Your GoPro Movie for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/expert-analysis-of-samsung-photo-editor-prospects-and-constraints/"><u>Expert Analysis of Samsung Photo Editor Prospects & Constraints</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-precisely-how-to-disconnect-from-your-outdated-linkedin-account/"><u>[Updated] Precisely How To Disconnect From Your Outdated LinkedIn Account</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-top-platforms-for-amplifying-youtube-content/"><u>In 2024, Top Platforms for Amplifying YouTube Content</u></a></li>
+<li><a href="https://driver-install.techidaily.com/how-to-swiftly-restore-your-printers-functionality/"><u>How to Swiftly Restore Your Printer's Functionality</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-smoothie-your-phone-converting-iphones-jpegpng-to-pdf/"><u>[Updated] Smoothie Your Phone  Converting iPhone's JPEG/PNG to PDF</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-pc-videography-leveraging-windows-hdr-for-2024/"><u>[New] PC Videography  Leveraging Windows HDR for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-premier-recorder-clean-and-clear-android-edition-for-2024/"><u>[Updated] Premier Recorder  Clean and Clear Android Edition for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-new-horizons-in-graphic-design-post-acid/"><u>2024 Approved  New Horizons in Graphic Design Post-ACID</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-the-invisible-trail-fbs-preview-functionality-explained/"><u>[New] Navigating the Invisible Trail  FB's Preview Functionality Explained</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/optimize-memory-retention-using-mematics-solution-for-2024/"><u>Optimize Memory Retention Using Mematic's Solution for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/usbasp-driver-sync-with-diverse-windows-versions-achieved-solved/"><u>USBasp Driver Sync with Diverse Windows Versions Achieved [SOLVED]</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unleash-the-artistry-of-impressive-gopro-timelapse-videos/"><u>2024 Approved  Unleash the Artistry of Impressive GoPro Timelapse Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-from-ordinary-to-stunning-photo-tile-magic/"><u>2024 Approved  From Ordinary to Stunning  Photo Tile Magic</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-extended-exploration-gopro-slr4-silver-edition/"><u>In 2024, Extended Exploration  GoPro SLR4 Silver Edition</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-mac-centric-review-the-complete-guide-to-screenflow-v4/"><u>[New] 2024 Approved  Mac-Centric Review  The Complete Guide to ScreenFlow V4</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-androids-optimal-cloud-savers-updated-list/"><u>In 2024, Android's Optimal Cloud Savers Updated List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-banishing-curved-visuals-correcting-gopros-fish-eye/"><u>[New] In 2024, Banishing Curved Visuals  Correcting GoPro's Fish Eye</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-secrets-to-improve-your-gopro-videos-for-2024/"><u>[Updated] Top Secrets to Improve Your GoPro Videos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unraveling-metaverse-and-multimetase-distinctions-expert-explanation/"><u>[New] 2024 Approved  Unraveling Metaverse and Multimetase Distinctions (Expert Explanation)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/basics-of-evolving-media-and-graphics-for-2024/"><u>Basics of Evolving Media and Graphics for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-efficient-look-up-table-techniques-for-movies/"><u>[New] Efficient Look-Up Table Techniques for Movies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-perfecting-your-pics-kinemaster-methods-for-2024/"><u>[New] Perfecting Your Pics  KineMaster Methods for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-public-perceptions-unveiling-vllo-realities/"><u>[Updated] Public Perceptions  Unveiling VLLO Realities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-techniques-to-amplify-youtube-video-clarity/"><u>In 2024, Techniques to Amplify YouTube Video Clarity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dive-into-periscope-no-cost-entry-and-user-account-setup-steps-for-2024/"><u>Dive Into Periscope  No Cost Entry & User Account Setup Steps for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-key-sites-the-6-most-vital-platforms-for-b2b-relationships/"><u>2024 Approved  Key Sites  The 6 Most Vital Platforms for B2B Relationships</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-amplify-visual-content-embedding-audio-on-instagram-reels/"><u>In 2024, Amplify Visual Content  Embedding Audio on Instagram Reels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-superior-choices-elite-webcam-holders/"><u>[Updated] Superior Choices  Elite Webcam Holders</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-tecno-spark-10-pro-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Tecno Spark 10 Pro FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-xiaomi-mix-fold-3-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Xiaomi Mix Fold 3 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/macs-2023-update-youtube-audio-to-mp3-step-by-step/"><u>Mac's 2023 Update  YouTube Audio to MP3 Step-by-Step</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-photo-booth-woes-why-videos-halt/"><u>2024 Approved  Photo Booth Woes  Why Videos Halt?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-superior-choices-4k-screen-recorder-programs-for-2024/"><u>[New] Superior Choices  4K Screen Recorder Programs for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-share-worthiness-creator-for-2024/"><u>Ultimate Share Worthiness Creator for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-giroptics-virtual-sphere-breakdown/"><u>[New] Giroptic's Virtual Sphere Breakdown</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-crafting-cinematic-images-on-iphone-8-advanced-techniques/"><u>[New] In 2024, Crafting Cinematic Images on iPhone  8 Advanced Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-discovering-old-content-on-facebook-via-your-smartphonecomputer/"><u>[Updated] Discovering Old Content on Facebook via Your Smartphone/Computer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevate-your-interface-mastery-with-these-less-known-windows-11-strategies/"><u>In 2024, Elevate Your Interface Mastery with These Less-Known Windows 11 Strategies</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-infinix-zero-30-5g-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Infinix Zero 30 5G Photos  An Easy Method Explained.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-guide-to-thriving-amidst-the-world-of-podcasts/"><u>[New] 2024 Approved  The Ultimate Guide to Thriving Amidst the World of Podcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-cutting-corners-on-creative-work-lunapic-basics/"><u>[New] In 2024, Cutting Corners on Creative Work  LunaPic Basics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-grasping-fcp-obtain-it-at-no-cost/"><u>[New] 2024 Approved  Grasping FCP  Obtain It at No Cost</u></a></li>
+</ul></div>

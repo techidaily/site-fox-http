@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Vintage Viewing  A 1992 Goofy Film Retrospective\""
-date: 2024-06-22T17:55:41.466Z
-updated: 2024-06-23T17:55:41.466Z
+date: 2024-07-13T23:01:31.804Z
+updated: 2024-07-14T23:01:31.804Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,9 @@ Simply add video effects on Video with [Filmora Video Effect Editor](https://too
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How Was VHS Technology Used in Old Movies?
 
 VHS technology played a significant role in producing and viewing movies during its prime era. Before you apply **Goofy movie VHS effects** to your video, learn how they were used. Here are some ways this technology was used in old movies:
@@ -80,6 +83,9 @@ Such tapes became a valuable resource for film education and study. Film schools
 
 [Add VHS Effect](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -102,6 +108,9 @@ Drag and drop the "VHS Rewind" effect from the same tab onto the timeline. Furth
 
 Continue to drag and place the "Chromatic Aberration" effect over the previous layer. Set the parameters of Fade and Alpha, 0.05 and 60, respectively. Go to "Effects" and type "distortion" in the search bar and find the "VCR Distortion" effect. Then, drag the effect onto the timeline, place it over the previous layer, and change the alpha value to 25.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add chromatic aberration and distortion](https://images.wondershare.com/filmora/article-images/2023/add-chromatic-aberration-and-distortion.jpg)
 
 ##### Step 4Include the Glitch Distortion and Apply the Distort Effect
@@ -192,6 +201,9 @@ Continue to drag and place the "Chromatic Aberration" effect over the previous l
 
 Proceed to drag and drop the "Glitch Distortion" effect and place it over the previous layer. Also, adjust the alpha value of the effect to 30\. Continue to drag and drop the "Distort" effect to the timeline, and repeat the same process. However, set the following parameters Amplitude to 15, Frequency to 17, and “Opacity” to 0.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add glitch distortion to preset](https://images.wondershare.com/filmora/article-images/2023/add-glitch-distortion-to-preset.jpg)
 
 ##### Step 5Export Your Edited Video
@@ -227,3 +239,52 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-from-apple-iphone-se-2022ipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock from Apple iPhone SE (2022)/iPad/iPod</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-cost-effective-action-cams-unveiled-for-2024/"><u>[New] Cost-Effective Action Cams Unveiled for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-chromebook-voice-overhaul-guide-top-5-cloud-vocal-modification-tools-reviewed-for-2024/"><u>[Updated] Chromebook Voice Overhaul Guide  Top 5 Cloud Vocal Modification Tools Reviewed for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/windows-eliminate-fuzzy-visuals/"><u>Windows: Eliminate Fuzzy Visuals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/rise-to-greatness-the-best-inspiring-movies/"><u>Rise to Greatness  The Best Inspiring Movies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/seamless-soundscape-design-with-expert-crossfading-techniques-audacity-for-2024/"><u>Seamless Soundscape Design with Expert Crossfading Techniques (Audacity) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-androidiphones-leading-top-10-cost-free-photo-enhancements/"><u>[New] In 2024, Android/iPhone's Leading Top 10 Cost-Free Photo Enhancements</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-budget-savvy-shooters-top-5-under-200-cameras/"><u>[Updated] Budget-Savvy Shooters  Top 5 Under $200 Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-expert-tips-for-zoom-clarity-in-teams/"><u>[Updated] 2024 Approved  Expert Tips for Zoom Clarity in Teams</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-depth-assessment-gopro-silver-hero4-sliver-for-2024/"><u>[New] In-Depth Assessment  GoPro Silver Hero4 Sliver for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-realme-12plus-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Realme 12+ 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-boost-your-discord-experience-with-these-30-bots/"><u>[New] Boost Your Discord Experience with These 30 Bots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-bridging-independent-iphone-media-journeys/"><u>[Updated] In 2024, Bridging Independent iPhone Media Journeys</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-vector-art-basics-for-newcomers-diverse-forms-and-tools-for-2024/"><u>[New] Vector Art Basics for Newcomers, Diverse Forms and Tools for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-from-iphone-12-pro-by-drfone-ios/"><u>How to Fix when Apple Account Locked From iPhone 12 Pro?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-fish-tastic-top-5-action-cameras-for-catch/"><u>[Updated] In 2024, Fish-Tastic  Top 5 Action Cameras for Catch</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-revel-in-reality-an-extensive-review-of-lgs-high-fidelity-monitor-31mu97-b/"><u>[New] 2024 Approved  Revel in Reality - An Extensive Review of LG's High-Fidelity Monitor, 31MU97-B</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-creative-product-launches-for-2024/"><u>[New] Creative Product Launches for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-carving-out-your-place-in-the-design-world/"><u>[New] In 2024, Carving Out Your Place in the Design World</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pinnacle-websites-showcasing-diverse-text-styling-options-for-2024/"><u>Pinnacle Websites Showcasing Diverse Text Styling Options for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-probing-the-potential-of-samsungs-photo-editor-for-2024/"><u>[New] Probing the Potential of Samsung's Photo Editor for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-from-zero-to-hero-profit-on-reddit-with-no-experience-top-13/"><u>[New] In 2024, From Zero to Hero  Profit on Reddit with No Experience (Top 13)</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-best-alternatives-to-virtualdub-video-processing-software-compared-for-2024/"><u>New Best Alternatives to VirtualDub Video Processing Software Compared for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-mastering-the-mix-of-sound-and-slides-in-powerpoint-presentations/"><u>[New] 2024 Approved  Mastering the Mix of Sound and Slides in PowerPoint Presentations</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-eliminating-errors-utilizing-photoshops-eraser-feature/"><u>2024 Approved  Eliminating Errors  Utilizing Photoshop's Eraser Feature</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/how-to-mute-zoom-audio-on-desktop-and-mobile-phone/"><u>How to Mute Zoom Audio on Desktop and Mobile Phone?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-studio-technique-breakdown-comprehensive-xvideooverview/"><u>[Updated] 2024 Approved  Studio Technique Breakdown  Comprehensive XVideoOverview</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-easyfish-studio-unveiling-lightroom-replacements/"><u>[Updated] EasyFish Studio  Unveiling Lightroom Replacements</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-audio-perfection-a-step-by-step-guide-to-selecting-the-ideal-flac-converter-for-2024/"><u>New Audio Perfection A Step-by-Step Guide to Selecting the Ideal FLAC Converter for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-artisans-path-to-gratuitous-text-animation/"><u>[New] The Artisan's Path to Gratuitous Text Animation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-supreme-reconciliation-of-vr-realms/"><u>[New] In 2024, Supreme Reconciliation of VR Realms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-audio-recipe-converting-insta-vids-to-mp3/"><u>[New] 2024 Approved  Audio Recipe  Converting Insta Vids to Mp3</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-childs-play-top-5-fun-flying-toys-reviewed/"><u>[Updated] In 2024, Child's Play  Top 5 Fun Flying Toys Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-dial-up-your-mobile-experience-vr-and-panoramic-videos-on-android/"><u>[New] Dial Up Your Mobile Experience  VR & Panoramic Videos on Android</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-the-ultimate-selection-identifying-the-best-pc-microphone-recorders-of-the-year/"><u>Updated The Ultimate Selection Identifying the Best PC Microphone Recorders of the Year</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/gimbal-mastery-7-drone-pros-recommended/"><u>Gimbal Mastery  7 Drone Pros Recommended</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-master-the-art-of-captivating-audiences-in-tiktok-unpack-videos/"><u>[New] In 2024, Master the Art of Captivating Audiences in TikTok Unpack Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-navigating-video-data-in-high-capacity-drives-64128gb/"><u>[Updated] 2024 Approved  Navigating Video Data in High-Capacity Drives (64/128GB)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-captivating-literary-book-trailers/"><u>[Updated] 2024 Approved  Captivating Literary Book Trailers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-extreme-capture-duo-gopro-hero5-black-versus-hero4-silver-edition/"><u>[Updated] Extreme Capture Duo  GoPro Hero5 Black Versus Hero4 Silver Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-double-delight-maximizing-the-use-of-netflixs-floating-window-for-2024/"><u>[New] Double Delight  Maximizing the Use of Netflix's Floating Window for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-exploring-color-enhancement-with-lut-tools-in-pscc/"><u>[Updated] 2024 Approved  Exploring Color Enhancement with LUT Tools in PSCC</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-idea-to-implementation-crafting-a-powerful-documntary-narrative/"><u>2024 Approved  From Idea to Implementation  Crafting a Powerful Documntary Narrative</u></a></li>
+</ul></div>

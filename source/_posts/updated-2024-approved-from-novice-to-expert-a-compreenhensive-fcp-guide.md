@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Novice to Expert  A Compreenhensive FCP Guide\""
-date: 2024-06-22T18:25:47.904Z
-updated: 2024-06-23T18:25:47.904Z
+date: 2024-07-13T23:34:11.441Z
+updated: 2024-07-14T23:34:11.441Z
 tags: 
   - screen-recording
   - ai video
@@ -100,11 +100,71 @@ Step 4: Add texts and titles to your video by clicking on the Titles option from
 
 Step 5: Go to Windows> Workspaces> Colors and Effects option for color correction. Finally, when you are done editing, go to File> Share> Export File option.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![export video from fcp](https://images.wondershare.com/filmora/article-images/export-video-clips-from-final-cut-pro.jpg)
 
 ## 7\. Best Alternative to Final Cut Pro
 
-First of all, Final Cut Pro is not available for Windows users. Naturally, if you are a Windows user, you have to look for the best alternative [video editing software](https://tools.techidaily.com/wondershare/filmora/download/)to Final Cut Pro. We recommend Wondershare Filmora as the best alternative to Final Cut Pro. In terms of features and performance, Filmora is as good as Final Cut Pro.
+First of all, Final Cut Pro is not available for Windows users. Naturally, if you are a Windows user, you have to look for the best alternative [video editing software](https://tools.techidaily.com/wondershare/filmora/download/) to Final Cut Pro. We recommend Wondershare Filmora as the best alternative to Final Cut Pro. In terms of features and performance, Filmora is as good as Final Cut Pro.
+
+Filmora has a wider collection of effects, transitions, and filters. It supports more video file formats for importing and exporting. Most importantly, the user interface is super intuitive for beginners. It comes with an affordable monthly subscription model so that everyone can purchase. Filmora is available for both Windows and macOS users. Here are the steps to edit a video in Filmora.
+
+Step 1: Download and install Wondershare Filmora. Click on the New Project option on the welcome screen. You can also go to File> New Project to get started.
+
+![import file filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+Step 2: Go to File File> Import Media> Import Media Files to bring in your video clips. Otherwise, you can drag and drop your video clips directly under the Project Media folder. Thereafter, drop them onto the timeline.
+
+Step 3: Select a video clip that you want to trim and click on Scissor or Cut icon. It is present on the toolbar above the timeline. The mouse pointer will change to a scissor. Click any part of the video clip to trim it and select the trimmed part and delete it.
+
+![filmora split](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
+
+Step 4: To add titles, go to the Titles option. From the left panel, go to any category of your choice. Drag and drop desired text effect or animation present on the timeline. Double-click on it to edit the default text and change the text texture.
+
+![choose title filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
+
+Step 5: Go to the Transitions option from the top toolbar. From the left panel, select a category. Drag and drop any transition in between video clips on the timeline. Finally, click on the Export button to save the edited video.
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![export video from filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
+
+## The Bottom Line
+
+Hopefully, it is quite clear to you now "What is Final Cut Pro"? You know the key features of Final Cut Pro that makes it stand out. Along with those, we have stated its powerful performance and economical pricing. Most importantly, you know the strengths and weaknesses of Final Cut Pro. Now that ball is in your court if you want to go with FCP or want to choose a better alternative.
+
+6\. How to Edit Video with Final Cut Pro
+
+Now that we have reviewed Final Cut Pro thoroughly, it is time to illustrate how to use Final Cut Pro. The learning curve of Final Ct Pro is steep and the user interface is not highly intuitive. That is why you need to go through tutorials to get the steps correct for the video editor. Here are the steps on how to edit a video with Final Cut X.
+
+Step 1: Download and install Final Cut Pro. Launch the application and you will be asked for certain permissions. Allow them to open Final Cut Pro for the first time.
+
+Step 2: Go to File> New> Project. Name your project and select Use Automatic Settings to get started. Go to File> Import> Media and bring in the video clips that you want to edit. You will see the thumbnails of the imported video clips under the Browser of FCP.
+
+![import media into fcp](https://images.wondershare.com/filmora/article-images/import-media-file-into-fcp.jpg)
+
+Step 3: Drag any video clip from the Browser to the Timeline. You can trim the video clips by placing the mouse cursor on the inside edge. You will see the Trim Tool icon appear and you can do the necessary trimming. If you have multiple video clips on the timeline, you can rearrange them easily.
+
+![trim video fcp](https://images.wondershare.com/filmora/article-images/trim-videos-final-cut-pro-timeline.jpg)
+
+Step 4: Add texts and titles to your video by clicking on the Titles option from the toolbar located above Browser. You can go to the Transitions option above the timeline to add visual effects in between the video clips.
+
+![add text title fcp](https://images.wondershare.com/filmora/article-images/add-text-title-video-final-cut-pro.jpg)
+
+Step 5: Go to Windows> Workspaces> Colors and Effects option for color correction. Finally, when you are done editing, go to File> Share> Export File option.
+
+![export video from fcp](https://images.wondershare.com/filmora/article-images/export-video-clips-from-final-cut-pro.jpg)
+
+## 7\. Best Alternative to Final Cut Pro
+
+First of all, Final Cut Pro is not available for Windows users. Naturally, if you are a Windows user, you have to look for the best alternative [video editing software](https://tools.techidaily.com/wondershare/filmora/download/) to Final Cut Pro. We recommend Wondershare Filmora as the best alternative to Final Cut Pro. In terms of features and performance, Filmora is as good as Final Cut Pro.
 
 Filmora has a wider collection of effects, transitions, and filters. It supports more video file formats for importing and exporting. Most importantly, the user interface is super intuitive for beginners. It comes with an affordable monthly subscription model so that everyone can purchase. Filmora is available for both Windows and macOS users. Here are the steps to edit a video in Filmora.
 
@@ -142,6 +202,9 @@ Step 1: Download and install Final Cut Pro. Launch the application and you will 
 
 Step 2: Go to File> New> Project. Name your project and select Use Automatic Settings to get started. Go to File> Import> Media and bring in the video clips that you want to edit. You will see the thumbnails of the imported video clips under the Browser of FCP.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![import media into fcp](https://images.wondershare.com/filmora/article-images/import-media-file-into-fcp.jpg)
 
 Step 3: Drag any video clip from the Browser to the Timeline. You can trim the video clips by placing the mouse cursor on the inside edge. You will see the Trim Tool icon appear and you can do the necessary trimming. If you have multiple video clips on the timeline, you can rearrange them easily.
@@ -158,7 +221,7 @@ Step 5: Go to Windows> Workspaces> Colors and Effects option for color correctio
 
 ## 7\. Best Alternative to Final Cut Pro
 
-First of all, Final Cut Pro is not available for Windows users. Naturally, if you are a Windows user, you have to look for the best alternative [video editing software](https://tools.techidaily.com/wondershare/filmora/download/)to Final Cut Pro. We recommend Wondershare Filmora as the best alternative to Final Cut Pro. In terms of features and performance, Filmora is as good as Final Cut Pro.
+First of all, Final Cut Pro is not available for Windows users. Naturally, if you are a Windows user, you have to look for the best alternative [video editing software](https://tools.techidaily.com/wondershare/filmora/download/) to Final Cut Pro. We recommend Wondershare Filmora as the best alternative to Final Cut Pro. In terms of features and performance, Filmora is as good as Final Cut Pro.
 
 Filmora has a wider collection of effects, transitions, and filters. It supports more video file formats for importing and exporting. Most importantly, the user interface is super intuitive for beginners. It comes with an affordable monthly subscription model so that everyone can purchase. Filmora is available for both Windows and macOS users. Here are the steps to edit a video in Filmora.
 
@@ -184,6 +247,9 @@ Step 5: Go to the Transitions option from the top toolbar. From the left panel, 
 
 ![export video from filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Bottom Line
 
 Hopefully, it is quite clear to you now "What is Final Cut Pro"? You know the key features of Final Cut Pro that makes it stand out. Along with those, we have stated its powerful performance and economical pricing. Most importantly, you know the strengths and weaknesses of Final Cut Pro. Now that ball is in your court if you want to go with FCP or want to choose a better alternative.
@@ -212,61 +278,7 @@ Step 5: Go to Windows> Workspaces> Colors and Effects option for color correctio
 
 ## 7\. Best Alternative to Final Cut Pro
 
-First of all, Final Cut Pro is not available for Windows users. Naturally, if you are a Windows user, you have to look for the best alternative [video editing software](https://tools.techidaily.com/wondershare/filmora/download/)to Final Cut Pro. We recommend Wondershare Filmora as the best alternative to Final Cut Pro. In terms of features and performance, Filmora is as good as Final Cut Pro.
-
-Filmora has a wider collection of effects, transitions, and filters. It supports more video file formats for importing and exporting. Most importantly, the user interface is super intuitive for beginners. It comes with an affordable monthly subscription model so that everyone can purchase. Filmora is available for both Windows and macOS users. Here are the steps to edit a video in Filmora.
-
-Step 1: Download and install Wondershare Filmora. Click on the New Project option on the welcome screen. You can also go to File> New Project to get started.
-
-![import file filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-Step 2: Go to File File> Import Media> Import Media Files to bring in your video clips. Otherwise, you can drag and drop your video clips directly under the Project Media folder. Thereafter, drop them onto the timeline.
-
-Step 3: Select a video clip that you want to trim and click on Scissor or Cut icon. It is present on the toolbar above the timeline. The mouse pointer will change to a scissor. Click any part of the video clip to trim it and select the trimmed part and delete it.
-
-![filmora split](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
-
-Step 4: To add titles, go to the Titles option. From the left panel, go to any category of your choice. Drag and drop desired text effect or animation present on the timeline. Double-click on it to edit the default text and change the text texture.
-
-![choose title filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
-
-Step 5: Go to the Transitions option from the top toolbar. From the left panel, select a category. Drag and drop any transition in between video clips on the timeline. Finally, click on the Export button to save the edited video.
-
-![export video from filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
-
-## The Bottom Line
-
-Hopefully, it is quite clear to you now "What is Final Cut Pro"? You know the key features of Final Cut Pro that makes it stand out. Along with those, we have stated its powerful performance and economical pricing. Most importantly, you know the strengths and weaknesses of Final Cut Pro. Now that ball is in your court if you want to go with FCP or want to choose a better alternative.
-
-6\. How to Edit Video with Final Cut Pro
-
-Now that we have reviewed Final Cut Pro thoroughly, it is time to illustrate how to use Final Cut Pro. The learning curve of Final Ct Pro is steep and the user interface is not highly intuitive. That is why you need to go through tutorials to get the steps correct for the video editor. Here are the steps on how to edit a video with Final Cut X.
-
-Step 1: Download and install Final Cut Pro. Launch the application and you will be asked for certain permissions. Allow them to open Final Cut Pro for the first time.
-
-Step 2: Go to File> New> Project. Name your project and select Use Automatic Settings to get started. Go to File> Import> Media and bring in the video clips that you want to edit. You will see the thumbnails of the imported video clips under the Browser of FCP.
-
-![import media into fcp](https://images.wondershare.com/filmora/article-images/import-media-file-into-fcp.jpg)
-
-Step 3: Drag any video clip from the Browser to the Timeline. You can trim the video clips by placing the mouse cursor on the inside edge. You will see the Trim Tool icon appear and you can do the necessary trimming. If you have multiple video clips on the timeline, you can rearrange them easily.
-
-![trim video fcp](https://images.wondershare.com/filmora/article-images/trim-videos-final-cut-pro-timeline.jpg)
-
-Step 4: Add texts and titles to your video by clicking on the Titles option from the toolbar located above Browser. You can go to the Transitions option above the timeline to add visual effects in between the video clips.
-
-![add text title fcp](https://images.wondershare.com/filmora/article-images/add-text-title-video-final-cut-pro.jpg)
-
-Step 5: Go to Windows> Workspaces> Colors and Effects option for color correction. Finally, when you are done editing, go to File> Share> Export File option.
-
-![export video from fcp](https://images.wondershare.com/filmora/article-images/export-video-clips-from-final-cut-pro.jpg)
-
-## 7\. Best Alternative to Final Cut Pro
-
-First of all, Final Cut Pro is not available for Windows users. Naturally, if you are a Windows user, you have to look for the best alternative [video editing software](https://tools.techidaily.com/wondershare/filmora/download/)to Final Cut Pro. We recommend Wondershare Filmora as the best alternative to Final Cut Pro. In terms of features and performance, Filmora is as good as Final Cut Pro.
+First of all, Final Cut Pro is not available for Windows users. Naturally, if you are a Windows user, you have to look for the best alternative [video editing software](https://tools.techidaily.com/wondershare/filmora/download/) to Final Cut Pro. We recommend Wondershare Filmora as the best alternative to Final Cut Pro. In terms of features and performance, Filmora is as good as Final Cut Pro.
 
 Filmora has a wider collection of effects, transitions, and filters. It supports more video file formats for importing and exporting. Most importantly, the user interface is super intuitive for beginners. It comes with an affordable monthly subscription model so that everyone can purchase. Filmora is available for both Windows and macOS users. Here are the steps to edit a video in Filmora.
 
@@ -319,3 +331,43 @@ Hopefully, it is quite clear to you now "What is Final Cut Pro"? You know the ke
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oneplus-nord-n30-se-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from OnePlus Nord N30 SE to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unleashing-your-funny-bone-a-stepwise-guide-to-making-memes-on-9gag/"><u>[Updated] In 2024, Unleashing Your Funny Bone  A Stepwise Guide to Making Memes on 9GAG</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-samsung-galaxy-f54-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Samsung Galaxy F54 5G</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-organizing-your-iphones-picture-collection-from-sorting-to-icloud-backing-up/"><u>[Updated] Organizing Your iPhone's Picture Collection  From Sorting to iCloud Backing Up</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-using-inshot-for-laptoppc-and-other-video-editing-alternatives/"><u>[Updated] Using Inshot for Laptop/PC and Other Video Editing Alternatives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-effortlessly-convert-spoken-language-into-written-content-using-microsoft-word/"><u>[Updated] How to Effortlessly Convert Spoken Language Into Written Content Using Microsoft Word</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-new-dawn-of-creativity-spotlight-on-six-visionary-nftos/"><u>The New Dawn of Creativity  Spotlight on Six Visionary NFTOs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-engineering-a-memorable-trailer-narrative/"><u>[Updated] In 2024, Engineering a Memorable Trailer Narrative</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-enhance-xbox-gameplay-with-best-monitor-recommendations/"><u>2024 Approved  Enhance Xbox Gameplay with Best Monitor Recommendations</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-on-your-iphone-se-2022-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock on your iPhone SE (2022) and iPad?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-ranked-5-ios-podcast-applications-you-must-download/"><u>[Updated] Ranked 5 iOS Podcast Applications You Must Download</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-multimedia-artists-cyber-meeting-room/"><u>[Updated] 2024 Approved  Multimedia Artists' Cyber Meeting Room</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-record-breaking-reddit-threads-ranked-1-10/"><u>[Updated] In 2024, Record-Breaking Reddit Threads Ranked 1-10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-enhancing-reels-with-harmonious-tunes/"><u>The Ultimate Guide to Enhancing Reels with Harmonious Tunes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-on-apple-iphone-7-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock on Apple iPhone 7</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-innovative-tools-in-live-encoding-technology/"><u>[Updated] In 2024, Innovative Tools in Live Encoding Technology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dial-in-on-quality-a-step-by-step-zoom-setup-guide/"><u>[Updated] Dial in on Quality  A Step-by-Step Zoom Setup Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-clearer-horizons-the-ultimate-tweet-video-viewing-guide-for-2024/"><u>[Updated] Clearer Horizons  The Ultimate Tweet Video Viewing Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-smart-choice-essential-steps-in-upgrading-your-tech/"><u>[Updated] The Smart Choice  Essential Steps in Upgrading Your Tech</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-free-youtube-artwork-hacks-snag-high-res-thumbnails-now/"><u>[Updated] 2024 Approved  Free YouTube Artwork Hacks - Snag High-Res Thumbnails Now</u></a></li>
+<li><a href="https://fox-http.techidaily.com/voice-modification-made-simple-a-playbook-for-pubg-enthusiasts/"><u>Voice Modification Made Simple  A Playbook for PUBG Enthusiasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/essential-stop-motion-movies-you-cant-miss-for-2024/"><u>Essential Stop-Motion Movies You Can't Miss for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unleash-the-power-of-visuals-with-top-free-slideshow-designs/"><u>[New] Unleash the Power of Visuals with Top Free Slideshow Designs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-highlighted-are-there-limitations-to-aurora-hdrs-performance-in-2024/"><u>[Updated] Highlighted  Are There Limitations to Aurora HDR's Performance, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-bring-your-text-to-life-techniques-for-3d-design-in-ps/"><u>[Updated] In 2024, Bring Your Text to Life  Techniques for 3D Design in PS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unlock-fast-video-trimming-in-windows-11-apps-for-2024/"><u>[New] Unlock Fast Video Trimming in Windows 11 Apps for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-iphone-15-pro-max-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>How to Bypass iPhone 15 Pro Max Passcode Easily Video Inside | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-voice-vaults-acclaimed-transcription-apps-for-no-connectivity-for-2024/"><u>[New] Voice Vaults  Acclaimed Transcription Apps for No Connectivity for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-chime-into-chats-whatsapp-status-soundtracks/"><u>2024 Approved  Chime Into Chats  WhatsApp Status Soundtracks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-cutting-edge-video-ideas-for-maximum-impact/"><u>[Updated] Cutting-Edge Video Ideas for Maximum Impact</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-unveiling-video-magic-mastering-your-youtube-studio/"><u>In 2024, Unveiling Video Magic  Mastering Your YouTube Studio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-transform-your-speech-access-to-no-cost-voice-manipulation-tools/"><u>[Updated] Transform Your Speech  Access to No-Cost Voice Manipulation Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-innovative-approaches-to-producing-impressive-audio-teasers/"><u>[Updated] In 2024, Innovative Approaches to Producing Impressive Audio Teasers</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-navigating-the-world-of-clubhouse-a-detailed-breakdown-for-aspiring-members/"><u>Updated 2024 Approved Navigating the World of Clubhouse A Detailed Breakdown for Aspiring Members</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-7-writing-linkedin-summary-tips-you-must-know/"><u>[Updated] 7 Writing LinkedIn Summary Tips You Must Know</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-review-of-huawei-p10s-multimedia-features-and-functionality/"><u>[Updated] 2024 Approved  Review of Huawei P10’s Multimedia Features & Functionality</u></a></li>
+</ul></div>

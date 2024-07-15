@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering AE Title Design  Standout Effects Guide\""
-date: 2024-06-22T18:06:54.955Z
-updated: 2024-06-23T18:06:54.955Z
+date: 2024-07-13T23:13:49.156Z
+updated: 2024-07-14T23:13:49.156Z
 tags: 
   - screen-recording
   - ai video
@@ -111,10 +111,16 @@ Step1 Install Wondershare Filmora on your computer and launch the application. C
 
 Step2 Drag and drop the video clip onto timeline. Go to Titles option and you will see different categories of text effects on the left panel. Select any one of text effect templates and drop onto the timeline above the background video.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![select background for text filmora](https://images.wondershare.com/filmora/article-images/2022/09/select-background-for-text-filmora.jpg)
 
 Step3 Double-click on the text layer on the timeline to edit the text preset. You can select any available text style as well as adjust parameters from font and settings sections.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![text preset settings filmora](https://images.wondershare.com/filmora/article-images/2022/09/text-preset-settings-filmora.jpg)
 
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
@@ -145,6 +151,9 @@ Generally, when you type a text in After Effects, by default, it comes out to be
 
 After Effects has “Enable per-character 3D” property to all Z axis to applicable properties so that you can get the desired effect. You can go to properties like rotation or position to find Z axis that you can modify and get the perfect 3D text.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Rotation and Anchor Point
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
@@ -173,6 +182,9 @@ If you want your text to be distorted and unusual, the skew parameter is there f
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. Keyframe
 
 Keyframe is like stretching two points into multiple points and for every point, you can change the value of the different parameters we have mentioned. When different keyframes have different parameters, the text will automatically animate once you play the video.
@@ -258,3 +270,47 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Motorola Moto G 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-avs-video-editor-an-in-depth-analysis/"><u>Updated In 2024, AVS Video Editor An In-Depth Analysis</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-transform-videos-into-gifs-with-these-28-top-converters/"><u>Updated In 2024, Transform Videos Into GIFs with These 28 Top Converters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-prime-10-live-streaming-networks-revealed-and-compared/"><u>In 2024, Prime 10 Live Streaming Networks Revealed and Compared</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-evaluation-of-asuss-hdr-and-true-black-precision-for-2024/"><u>The Ultimate Evaluation of ASUS's HDR & True Black Precision for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-gopro-hero-5-black-vs-nikon-keymission-170-which-one-is-better-in-2024/"><u>[New] GoPro Hero 5 Black vs Nikon Keymission 170  Which One Is Better, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-explore-deep-with-these-immersive-vr-clips/"><u>[Updated] In 2024, Explore Deep with These Immersive VR Clips</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-oneplus-12r-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of OnePlus 12R? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-prime-portfolio-exceptional-webcam-supports/"><u>In 2024, Prime Portfolio  Exceptional Webcam Supports</u></a></li>
+<li><a href="https://fox-http.techidaily.com/enhancing-selfie-quality-iphone-burst-mode/"><u>Enhancing Selfie Quality  IPhone Burst Mode</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-devising-visual-temporal-anomalies-effects/"><u>In 2024, Devising Visual Temporal Anomalies Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevate-meetings-key-strategies-with-zoom-adapter-for-2024/"><u>Elevate Meetings  Key Strategies with Zoom Adapter for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-vivo-v29e-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Vivo V29e Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-11-video-cameras-under-500-a-frugal-filmmakers-list-for-2024/"><u>Top 11 Video Cameras Under $500  A Frugal Filmmaker's List for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-harness-the-power-of-post-production-top-11-techniques-for-vibrant-colors/"><u>[New] In 2024, Harness the Power of Post-Production  Top 11 Techniques for Vibrant Colors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-filter-and-music-integration-in-windows-10-photos-for-2024/"><u>[New] Mastering the Art of Filter & Music Integration in Windows 10 Photos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-revamp-iphone-photos-effective-red-eye-removal-for-free/"><u>[New] Revamp iPhone Photos  Effective Red-Eye Removal for FREE</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-best-stream-software-is-xsplit-outshining-obs-for-2024/"><u>Exploring Best Stream Software - Is XSplit Outshining OBS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-from-verbal-to-written-an-intensive-guide-to-google-document-voice-functionality-for-2024/"><u>[New] From Verbal to Written  An Intensive Guide to Google Document Voice Functionality for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-oppo-a38-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-concealed-crusaders-conflict-with-clarion-champion/"><u>In 2024, Concealed Crusader's Conflict with Clarion Champion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-best-way-to-use-zoom-for-skype/"><u>[New] 2024 Approved  Best Way to Use Zoom for Skype</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unmasking-the-world-of-live-streamed-digital-personalities/"><u>In 2024, Unmasking the World of Live-Streamed Digital Personalities</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-compass-for-content-creators-steering-towards-viral-instagram-success/"><u>In 2024, The Compass for Content Creators  Steering Towards Viral Instagram Success</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-iphone-13-pro-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from iPhone 13 Pro Safe and Legal</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beats-and-bits-the-art-of-adding-soundtracks-in-windows-11-media/"><u>Beats & Bits  The Art of Adding Soundtracks in Windows 11 Media</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-oppo-reno-10-proplus-5g-with-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Oppo Reno 10 Pro+ 5G with Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-complete-android-auditory-guide-adding-personalized-sounds-and-ringtones/"><u>[New] In 2024, The Complete Android Auditory Guide  Adding Personalized Sounds and Ringtones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harness-the-potential-of-iphone-burst-photography/"><u>[New] Harness the Potential of iPhone Burst Photography</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-ways-to-transfer-music-from-apple-iphone-13-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Ways to Transfer Music from Apple iPhone 13 to Android | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-introduction-to-cinematic-graphics-techniques/"><u>In 2024, Introduction to Cinematic Graphics Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-nikon-d500-a-revolution-in-4k-uhd-photography-for-2024/"><u>[New] Nikon D500  A Revolution in 4K UHD Photography for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-mastering-aspect-ratio-in-final-cut-pro-essential-skills-for-video-editors/"><u>New In 2024, Mastering Aspect Ratio in Final Cut Pro Essential Skills for Video Editors</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-motorola-edge-40-neo-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Motorola Edge 40 Neo FRP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-engage-enrich-and-excel-top-ideas-for-productive-podcast-sessions/"><u>[New] 2024 Approved  Engage, Enrich & Excel  Top Ideas for Productive Podcast Sessions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-revolutionizing-art-into-nfts-top-7-tools-explored/"><u>[New] 2024 Approved  Revolutionizing Art Into NFTs - Top 7 Tools Explored</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-crafting-impactful-medical-messages-in-social-media/"><u>[New] 2024 Approved  Crafting Impactful Medical Messages in Social Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-turbocharge-touch-ups-learn-speedy-skills-for-win10-photos-editing/"><u>[New] In 2024, Turbocharge Touch-Ups  Learn Speedy Skills for WIN10 Photos Editing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-perfecting-your-voice-with-the-ultimate-guide-to-morphvox-modification/"><u>[New] 2024 Approved  Perfecting Your Voice with the Ultimate Guide to MorphVOX Modification</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-action-seekers-showdown-hero-4-meets-ghost-s-drifting/"><u>In 2024, Action Seekers' Showdown  Hero 4 Meets Ghost-S Drifting</u></a></li>
+</ul></div>

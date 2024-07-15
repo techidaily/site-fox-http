@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  First Steps in Filmmaking  Mastering Key Camera Techniques\""
-date: 2024-06-29T18:58:48.243Z
-updated: 2024-06-30T18:58:48.243Z
+date: 2024-07-13T23:53:49.803Z
+updated: 2024-07-14T23:53:49.803Z
 tags: 
   - screen-recording
   - ai video
@@ -77,8 +77,14 @@ The main focus should be on the character in such type of shot in the film. Also
 
 For instance, the audience must get the idea whether your character is confident, weird or sophisticated with just his/her appearance, outfit and the action.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Full Shot](https://images.wondershare.com/filmora/filmorapro/full-shot.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Medium Shot
 
 Medium shot basically stands between the full and the close-up shot.
@@ -87,6 +93,9 @@ Putting differently, this type of camera shot shows an amalgamation of the body 
 
 The purpose of this shot is to keep the character looking natural.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Medium Shot](https://images.wondershare.com/filmora/filmorapro/medium-shot.jpg)
 
 ### 6\. Close-Up shot
@@ -107,6 +116,9 @@ This type of shot in films aims to fit the single feature on the entire screen. 
 
 ## Part 2: Shots Angles for Camera
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### 8\. Eye Shots
 
 These types of shots are taken keeping the camera exactly at the [human eye level](https://nofilmschool.com/eye-level-shot-camera-angle). Using these bring the neutral effect of the shot.
@@ -197,3 +209,40 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/next-gen-screen-leaders-best-4k-tvs-for-2024/"><u>Next-Gen Screen Leaders  Best 4K TVs for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-mastering-hd-broadcasts-on-the-social-media-giant-fb/"><u>2024 Approved  Mastering HD Broadcasts on the Social Media Giant, FB</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-how-to-shoot-a-green-screen-video-must-know-tips-and-tricks/"><u>[Updated] 2024 Approved  How to Shoot a Green Screen Video [Must Know Tips & Tricks]</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-foundations-of-vsco-photo-manipulation-for-2024/"><u>[New] The Foundations of VSCO Photo Manipulation for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-learn-how-to-change-your-in-game-characters-vocal-presence-with-ease-for-free-for-2024/"><u>[New] Learn How to Change Your In-Game Character's Vocal Presence with Ease - For FREE for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-windows-11-update-deep-dive/"><u>[New] Windows 11 Update Deep Dive</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-incremental-movie-moment-for-2024/"><u>[Updated] Incremental Movie Moment for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-elegant-sound-reduction-on-lumafusion/"><u>2024 Approved  The Ultimate Guide to Elegant Sound Reduction on Lumafusion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/share-and-smile-discovering-the-best-meme-designs-10/"><u>Share & Smile  Discovering the Best Meme Designs #10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-premium-audio-narrative-compositions/"><u>[Updated] In 2024, Premium Audio Narrative Compositions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-converting-instagram-media-to-mp3-format-for-2024/"><u>[Updated] Converting Instagram Media  To MP3 Format for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-midnight-marauder-vs-daylight-defender-black-vs-silver-for-2024/"><u>[Updated] Midnight Marauder Vs Daylight Defender  Black vs Silver for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-podcast-rankings-seo-techniques-uncovered/"><u>[New] Ultimate Podcast Rankings  SEO Techniques Uncovered</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-harmonizing-movement-with-melody-the-practical-approach-to-adding-music-to-mac-created-gifs/"><u>New Harmonizing Movement with Melody The Practical Approach to Adding Music to Mac-Created GIFs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-essential-guide-to-top-12-action-cams-with-onboard-location-systems-for-2024/"><u>[Updated] Essential Guide to Top 12 Action Cams With Onboard Location Systems for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-xls-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>Free electronic signature - For .xls files</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-capture-chuckles-through-adobe-media/"><u>[Updated] Capture Chuckles Through Adobe Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-adept-methods-for-mass-acquiring-videos-on-tiktok-app/"><u>[Updated] Adept Methods for Mass Acquiring Videos on TikTok App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-the-basics-an-approachable-hdr-review-for-2024/"><u>Unveiling the Basics  An Approachable HDR Review for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Vivo T2 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-flawless-pixel-processor-windowsmac/"><u>[Updated] Flawless Pixel Processor (Windows/Mac)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-directors-guide-mastering-character-driven-narratives/"><u>[Updated] In 2024, Directors' Guide  Mastering Character-Driven Narratives</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-unlocking-igtv-success-hashtag-strategies-for-fame/"><u>In 2024, Unlocking IGTV Success  Hashtag Strategies for Fame</u></a></li>
+<li><a href="https://fox-http.techidaily.com/understanding-the-impact-of-macos-11-big-sur-on-users/"><u>Understanding the Impact of macOS 11 Big Sur on Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-crafted-clicks-guide-to-software-and-sites-for-superior-photo-framing/"><u>[Updated] 2024 Approved  Crafted Clicks  Guide to Software & Sites for Superior Photo Framing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-screen-selection-strategies-navigating-ultrawide-and-uhd-4k-worlds/"><u>2024 Approved  Screen Selection Strategies  Navigating UltraWide & UHD 4K Worlds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-seamless-facial-smoothing-motion-blur-techniques-in-picsart/"><u>[New] Seamless Facial Smoothing  Motion Blur Techniques in Picsart</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-step-by-step-methodology-for-erasing-canvas-backdrops/"><u>[New] In 2024, Step-by-Step Methodology for Erasing Canvas Backdrops</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-strategic-approaches-to-metaverse-promotion/"><u>[Updated] 2024 Approved  Strategic Approaches to Metaverse Promotion</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-vr-innovations-unwrapped-top-peripherals-spotlight/"><u>[New] 2024 Approved  VR Innovations Unwrapped - Top Peripherals Spotlight</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-infinix-smart-7-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Infinix Smart 7 Device</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-top-free-android-speech-to-text-tools/"><u>Updated In 2024, Top Free Android Speech-to-Text Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-installation-how-to-for-moviemaker-6-on-pcs/"><u>[New] Installation How-To for Moviemaker 6 on PCs</u></a></li>
+</ul></div>

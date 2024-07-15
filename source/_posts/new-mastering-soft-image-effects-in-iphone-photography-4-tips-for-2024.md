@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering Soft Image Effects in iPhone Photography (4 Tips!) For 2024"
-date: 2024-06-22T18:03:36.830Z
-updated: 2024-06-23T18:03:36.830Z
+date: 2024-07-13T23:10:12.916Z
+updated: 2024-07-14T23:10:12.916Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,9 @@ Swipe-drag the modes present above the **Shutter** button to switch to the **POR
 
 Tap the **Capture** icon from the bottom-center to capture the image. To access, you can either tap the **Preview** icon from the bottom-left corner, or get to the **Photos** app from the Home screen, go to **Albums**, and access the captured photo from the **Recents** album.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![blur photo background iphone portrait mode](https://images.wondershare.com/filmora/article-images/blur-photo-background-iphone-portrait-mode.jpg)
 
 ## Part 2: Take a Photo with a Blurred Background on Older iPhones by Getting Closer to the Subject
@@ -174,6 +177,9 @@ Tap and hold the main subject on the screen until the **AE/AF Lock** message sho
 
 Get closer to the subject. Ensure that the background around the main subject gets blurry and you move forward. Tap the **Capture** icon once you are close enough to get the desired level of blurriness in the background. Now, use the method explained above to access the captured photo.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Adding Vignette Effect to Photo to Blur the Background on iPhone
 
 The built-in Photos app comes with the Vignette effect that can be applied to the image at the time of editing. However, to get this done, it is recommended that the main subject should be at the center so the background looks unimportant. You can follow the steps given below to learn **how to blur a picture on iPhone** with the Vignette effect:
@@ -292,6 +298,9 @@ Tap the Effects icon from the bottom, swipe left to horizontally scroll through 
 
 Tap **Done** from the bottom-right corner to save the changes and to exit the **Edit** mode. Continue using the image as and/or where needed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: Blur the Background of Photos on iPhone with Apps
 
 You may want to use a third-party app to apply effects to the photos because they offer several advanced features that the iPhone’s built-in Photos app doesn’t. Furthermore, since such programs are designed specifically for the purpose, they are quite intuitive and come with self-explanatory options and buttons.
@@ -322,6 +331,9 @@ From the top, ensure that the **Blur Strength** option is selected, tap anywhere
 
 Then, as earlier, drag your finger to the right or left anywhere on the screen to increase or decrease the intensity of the effect respectively. Once done, tap the **OK** button (with the tick mark) from the bottom-right corner. Back on the main screen, tap **EXPORT** from the bottom-right, you tap your preferred option for exporting.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![save blurred photo snapseed](https://images.wondershare.com/filmora/article-images/save-blurred-photo-snapseed.jpg)
 
 **Conclusion**
@@ -451,3 +463,40 @@ Blurring the background in a photo ensures that the main subject remains in the 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-highlight-video-makers/"><u>Best Highlight Video Makers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-enlightened-mind-games-general-knowledge/"><u>[New] In 2024, Enlightened Mind Games - General Knowledge</u></a></li>
+<li><a href="https://fox-http.techidaily.com/novices-companion-to-av1-technology-for-2024/"><u>Novice’s Companion to AV1 Technology for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-insta-strategies-uncovering-the-veiled-elements-of-social-media/"><u>[Updated] Insta Strategies  Uncovering the Veiled Elements of Social Media</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-windows-11-microphone-use-for-high-quality-recordings/"><u>[New] In 2024, Windows 11 Microphone Use for High-Quality Recordings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-15-timeless-classics-in-stop-motion-cinema-history/"><u>[New] In 2024, Top 15 Timeless Classics in Stop-Motion Cinema History</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-vr-horizons-the-premier-pc-headsets-of-today/"><u>In 2024, VR Horizons  The Premier PC Headsets of Today</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-improving-user-experience-vimeo-video-subtitles/"><u>[New] Improving User Experience  Vimeo Video Subtitles</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-scan-for-collective-shared-content-on-messenger/"><u>2024 Approved  Scan for Collective Shared Content on Messenger</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-viewers-into-revenue-youtube-money-secrets-unveiled/"><u>[New] Transforming Viewers Into Revenue  YouTube Money Secrets Unveiled</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unleashing-potential-vr-innovations-for-fun-and-games/"><u>[New] Unleashing Potential  VR Innovations for Fun & Games</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-reverse-a-video-on-snapchat/"><u>[Updated] How to Reverse a Video on Snapchat?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-capture-perfection-optimal-use-of-zoom-feature-for-photos-and-videos/"><u>[New] In 2024, Capture Perfection  Optimal Use of Zoom Feature for Photos & Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-steps-to-acquire-fcp-for-zero-dollars-for-2024/"><u>[New] Steps to Acquire FCP for Zero Dollars for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-converting-ordinary-to-exceptional-lightroom-hdr-tutorial/"><u>[New] In 2024, Converting Ordinary to Exceptional  Lightroom HDR Tutorial</u></a></li>
+<li><a href="https://fox-http.techidaily.com/picsart-shield-invisible-smile-vanished-gaze-for-2024/"><u>Picsart Shield  Invisible Smile, Vanished Gaze for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-zte-blade-a73-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My ZTE Blade A73 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elite-ios-gif-sources-reviewed-and-ranked/"><u>[Updated] 2024 Approved  Elite iOS GIF Sources Reviewed and Ranked</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-why-filmora-captivates-its-top-ten-creative-capabilities/"><u>[New] 2024 Approved  Why Filmora Captivates  Its Top Ten Creative Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-techniques-for-incorporating-hyperlinks-into-tiktok-profiles-for-2024/"><u>[New] Top Techniques for Incorporating Hyperlinks Into TikTok Profiles for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-prospects-and-limitations-within-samsungs-2023-image-editor/"><u>Unveiling Prospects and Limitations Within Samsung's 2023 Image Editor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-cloud-storage-top-picks-revealed/"><u>[New] Mastering Cloud Storage – Top Picks Revealed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-no-video-display-on-sony-a6400-screen/"><u>[New] No Video Display on Sony A6400 Screen</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-navigating-twitters-video-content-aspect-ratios-included/"><u>[Updated] Navigating Twitter’s Video Content  Aspect Ratios Included</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-four-k-faceoff-sj6-legend-versus-xiaomis-yi-prototype-for-2024/"><u>[Updated] Four-K Faceoff  SJ6 Legend Versus Xiaomi's Yi Prototype for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/stepping-down-sounds-audacity-fading-techniques/"><u>Stepping Down Sounds  Audacity Fading Techniques</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/capturing-moons-a-guide-to-proper-night-photography-techniques/"><u>Capturing Moons  A Guide to Proper Night Photography Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-motion-clearer-captures/"><u>Mastering Motion  Clearer Captures</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-open-source-banner-resources-a-gift-to-youtubers/"><u>[New] Open Source Banner Resources  A Gift to YouTubers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-eliminating-an-obsolete-linkedin-identity-stepwise-guide-for-2024/"><u>[New] Eliminating an Obsolete LinkedIn Identity  Stepwise Guide for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-infinix-smart-8-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Infinix Smart 8 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-all-encompassing-outline-googles-podcast-app-at-a-glance/"><u>[Updated] 2024 Approved  All-Encompassing Outline  Google's Podcast App at a Glance</u></a></li>
+</ul></div>

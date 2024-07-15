@@ -1,7 +1,7 @@
 ---
 title: "[New] Pinnacle Performances in Figure Skate '22"
-date: 2024-06-22T18:06:48.757Z
-updated: 2024-06-23T18:06:48.757Z
+date: 2024-07-13T23:13:42.632Z
+updated: 2024-07-14T23:13:42.632Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,9 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
@@ -40,6 +43,9 @@ Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United Stat
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
@@ -48,6 +54,9 @@ Nathan Chen successful triumph has been four years in the making and it is a per
 
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
@@ -74,6 +83,9 @@ For macOS 10.12 or later
 
 Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
@@ -110,3 +122,44 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-art-of-podcast-blurbs-techniques-and-illustrations/"><u>[New] 2024 Approved  The Art of Podcast Blurbs  Techniques and Illustrations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transform-your-shots-into-art-with-top-10-grids/"><u>[New] In 2024, Transform Your Shots Into Art with Top 10 Grids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-exclusive-performers-webcasts/"><u>[New] Exclusive Performers' Webcasts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-the-art-of-effortless-nft-design/"><u>In 2024, Mastering the Art of Effortless NFT Design</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/complete-overview-screenflow-v4-for-macos-for-2024/"><u>Complete Overview  ScreenFlow v4 for macOS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevating-care-delivery-through-effective-fb-ads/"><u>Elevating Care Delivery Through Effective FB Ads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-precision-voice-transformation-through-morphvox/"><u>[New] Precision Voice Transformation Through MorphVOX</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-action-spectacular-the-full-t5-camera-review/"><u>[New] Action Spectacular  The Full T5 Camera Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-mirthful-mobile-memories-iphone/"><u>In 2024, Mirthful Mobile Memories (iPhone)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-breaking-the-mold-unique-and-compelling-title-themes-over-a-hundred-strong-for-snapstories-for-2024/"><u>[Updated] Breaking the Mold  Unique and Compelling Title Themes over a Hundred Strong for Snapstories for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-webp-mastery-converting-to-jpeg/"><u>[New] In 2024, WebP Mastery  Converting to JPEG</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-essential-tactics-capturing-high-quality-sports-streams-online/"><u>[Updated] In 2024, Essential Tactics  Capturing High-Quality Sports Streams Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-reigniting-creativity-a-comprehensive-look-at-windows-10-for-editors/"><u>[New] Reigniting Creativity  A Comprehensive Look at Windows 10 for Editors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/integrated-sound-system-guidebook/"><u>Integrated Sound System Guidebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mi-drone-reviewed-capturing-landscapes-in-full-resolution-for-2024/"><u>[New] MI Drone Reviewed  Capturing Landscapes in Full Resolution for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-perfecting-your-google-podcast-submission-process/"><u>[New] In 2024, Perfecting Your Google Podcast Submission Process</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-pursuit-of-perfection-does-picku-outshine-other-android-tools/"><u>In Pursuit of Perfection  Does PickU Outshine Other Android Tools?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unlocking-the-door-to-seamless-zoom-sessions/"><u>[New] 2024 Approved  Unlocking the Door to Seamless Zoom Sessions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-savory-scenes-mastering-the-art-of-eating-focused-filmography/"><u>In 2024, Savory Scenes  Mastering the Art of Eating-Focused Filmography</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-say-goodbye-to-shaky-videos-top-free-android-stabilizers/"><u>In 2024, Say Goodbye to Shaky Videos Top Free Android Stabilizers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-eyelaughs-funny-image-generator/"><u>[New] 2024 Approved  EyeLaughs  Funny Image Generator</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-revive-your-photo-viewer-two-methods-to-try-in-win-11/"><u>In 2024, Revive Your Photo Viewer  Two Methods to Try in Win 11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/detailed-review-experience-with-samsungs-sphere-cam/"><u>Detailed Review  Experience with Samsung's Sphere Cam</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-iphone-12-pro-by-drfone-ios/"><u>How to Fix Locked Apple ID on iPhone 12 Pro</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-guide-to-iphones-dynamic-images/"><u>[Updated] Step-by-Step Guide to iPhone's Dynamic Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/leading-edge-asmr-audio-gear-without-breaking-the-bank/"><u>Leading-Edge ASMR Audio Gear Without Breaking the Bank</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultra-hd-4k-display-benq-sw320-review/"><u>[New] Ultra HD 4K Display  BenQ SW320 Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-10-innovative-podcast-microphone-picks/"><u>[New] In 2024, Top 10 Innovative Podcast Microphone Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-professional-photoshop-guide-to-crafting-hdr-images-for-2024/"><u>[New] Professional Photoshop Guide to Crafting HDR Images for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-front-seat-pleasures-not-so-sporty-top-ten/"><u>[New] Front Seat Pleasures  Not So Sporty Top Ten</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/unplanned-tiktok-refresh-can-i-regain-previous-views/"><u>Unplanned TikTok Refresh  Can I Regain Previous Views?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-x-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone X to Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-virtual-realm-revelations-the-most-anticipated-ps-vr-games/"><u>[New] 2024 Approved  Virtual Realm Revelations  The Most Anticipated PS VR Games</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-audiophiles-manual-for-profound-tones-filmora-2023-edition/"><u>New In 2024, Audiophiles Manual for Profound Tones Filmora 2023 Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elite-4k-recording-units-our-favorites-of-18/"><u>[New] Elite 4K Recording Units  Our Favorites of 18</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-speed-removing-ssgnatures-immediately/"><u>In 2024, Mastering Speed  Removing Ssgnatures Immediately</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-find-your-favorite-download-free-slide-show-patterns-today/"><u>In 2024, Find Your Favorite, Download-Free Slide Show Patterns Today</u></a></li>
+</ul></div>

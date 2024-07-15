@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Supercharged Communication  Advanced Features in WhatsApp\""
-date: 2024-06-22T17:25:50.527Z
-updated: 2024-06-23T17:25:50.527Z
+date: 2024-07-13T22:29:13.062Z
+updated: 2024-07-14T22:29:13.062Z
 tags: 
   - screen-recording
   - ai video
@@ -78,12 +78,18 @@ Source: techmesto.com
 
 If you wish to save the chats that you exchanged with someone special, you can email the entire chat thread to yourself or someone else, you can even save it to Drive. Open the chat thread and tap on the 3 dots icon, then click >>More<< and then click on >>Export Chat<<. This will open a host of options allowing you to export your chat logs to a multitude of destinations.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
 #### 8.WhatsApp Font Tricks for Formatting
 
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
@@ -154,6 +160,9 @@ This is as simple as it sounds. Tap and hold to select a message in a group and 
 
 Manage how you are notified of messages from specific contacts and groups. Go to the main page of the contact or group you wish to customize, and there you will find Custom Notifications. Activate the mode to open a wide range of options - notification tones, pop up, preview, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
 Source: beebom.com
@@ -164,7 +173,7 @@ Some of the best WhatsApp video editing tricks are coming up, wherein you can ad
 
 #### 1.Download & Edit WhatsApp Video from A Contact’s Status
 
-There are no download options for photos and videos for WhatsApp Statuses, yet you can have it on your PC, iPhone, and Android device and surprise a loved one by editing the videos they did not send you personally. To do this, you can go to File Manager >> Settings >> Turn on Show Hidden Files; after doing this go back to Internal Storage >> WhatsApp >> Media >> Statuses. Once you have the Video, you can import it to Filmora and use a gamut of video editing tools to create the magic![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+There are no download options for photos and videos for WhatsApp Statuses, yet you can have it on your PC, iPhone, and Android device and surprise a loved one by editing the videos they did not send you personally. To do this, you can go to File Manager >> Settings >> Turn on Show Hidden Files; after doing this go back to Internal Storage >> WhatsApp >> Media >> Statuses. Once you have the Video, you can import it to Filmora and use a gamut of video editing tools to create the magic ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2.Record Video Calls from PC and Improve Its Quality
 
@@ -180,6 +189,9 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 
 **You may also like:**[Best Bio for Whatsapp](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -206,3 +218,74 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://games-able.techidaily.com/gaming-synergy-unpacking-keychron-and-lemokey/"><u>Gaming Synergy: Unpacking Keychron & Lemokey</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How To Simulate GPS Movement With Location Spoofer On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/jumpstart-gaming-fun-xbox-one-and-zoom-integration/"><u>Jumpstart Gaming Fun  Xbox One and Zoom Integration</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-discovering-the-best-in-class-9-microphone-recorders-reviewed/"><u>2024 Approved  Discovering the Best in Class  9 Microphone Recorders Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-complete-guide-to-enhancing-tiktok-bio-with-linktree/"><u>2024 Approved  The Complete Guide to Enhancing TikTok Bio with Linktree</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagram-reels-a-ninjas-guide-for-2024/"><u>[Updated] Mastering Instagram Reels  A Ninja's Guide for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-essential-skills-for-effective-discord-message-pinning/"><u>[Updated] Essential Skills for Effective Discord Message Pinning</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-immersive-devices-of-now/"><u>[Updated] Immersive Devices of Now</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-sonic-update-for-whatsapp-statues/"><u>In 2024, Sonic Update for WhatsApp Statues</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-snapshot-sophistication-editing-to-dazzle/"><u>2024 Approved  Snapshot Sophistication  Editing to Dazzle</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-smooth-operation-file-transfer-between-different-os-phones/"><u>[New] Smooth Operation File Transfer Between Different OS Phones</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-seamless-video-editing-the-top-5-free-online-video-merging-platforms/"><u>New Seamless Video Editing The Top 5 Free Online Video Merging Platforms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-pinnacle-of-visual-expression-best-mac-drawing-tools/"><u>2024 Approved  The Pinnacle of Visual Expression - Best Mac Drawing Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-seamless-scenes-crafting-smooth-transitions-using-kinemaster/"><u>2024 Approved  Seamless Scenes  Crafting Smooth Transitions Using Kinemaster</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-professional-photography-with-canons-complimentary-luts/"><u>2024 Approved  Professional Photography with Canon's Complimentary LUTs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-proven-strategies-to-amplify-zoomed-participants-in-google-meet/"><u>2024 Approved  Proven Strategies to Amplify Zoomed Participants in Google Meet</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-tune-in-for-free-fb-music-archive/"><u>[New] Tune In for Free  FB Music Archive</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamlined-guide-5-efficient-windows-11-audio-recording-tips/"><u>2024 Approved  Streamlined Guide  5 Efficient Windows 11 Audio Recording Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamline-creative-processes-efficiently-adding-text-to-videos-with-microsoft-photos/"><u>2024 Approved  Streamline Creative Processes  Efficiently Adding Text to Videos with Microsoft Photos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/capture-selfie-snap-shots-with-vintage-iphone-x/"><u>Capture Selfie  Snap Shots with Vintage iPhone X</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-unlock-vertical-video-potential-top-editing-apps-for-mobile/"><u>2024 Approved Unlock Vertical Video Potential Top Editing Apps for Mobile</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-best-10-non-game-console-screen-capture-tools/"><u>[Updated] 2024 Approved  Best 10 Non-Game Console Screen Capture Tools</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-6-online-background-cleansers-for-pristine-photo-edits/"><u>2024 Approved  Top 6 Online Background Cleansers for Pristine Photo Edits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-securing-privacy-efficient-blur-techniques-in-images/"><u>2024 Approved  Securing Privacy  Efficient Blur Techniques in Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-6-hdmi-21-screens-detailed-feature-rundown/"><u>2024 Approved  Top 6 HDMI 2.1 Screens  Detailed Feature Rundown</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-10-image-editors-and-annotation-tools/"><u>2024 Approved  Top 10 Image Editors & Annotation Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-tricks-and-secrets-for-gaining-more-likes-in-tiktok-unboxings/"><u>2024 Approved  Tricks & Secrets for Gaining More 'Likes' In TikTok Unboxings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simple-steps-for-quick-file-migration/"><u>2024 Approved  Simple Steps for Quick File Migration</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-infinix-smart-8-hd-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Infinix Smart 8 HD Quickly | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-meme-gurus-list-of-the-best-designs-10/"><u>2024 Approved  The Meme Guru's List of the Best Designs #10</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-androids-ultimate-guide-to-photo-editors-is-pickup-a-contender/"><u>2024 Approved  Android’s Ultimate Guide to Photo Editors  Is PickUp a Contender?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simplifying-your-fb-live-broadcasts-on-zoom/"><u>2024 Approved  Simplifying Your FB Live Broadcasts on Zoom</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveil-the-subject-background-removal-techniques-in-photopea/"><u>In 2024, Unveil the Subject  Background Removal Techniques in Photopea</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-blueprint-for-successful-individual-podcasts/"><u>2024 Approved  The Blueprint for Successful Individual Podcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-share-your-picture-posting-to-youtube-basics/"><u>2024 Approved  Share Your Picture  Posting to YouTube Basics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simplifying-image-editing-with-picsarts-background-tool/"><u>2024 Approved  Simplifying Image Editing with Picsart's Background Tool</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-essential-tutorial-for-using-speech-to-text-in-microsoft-word/"><u>2024 Approved  The Essential Tutorial for Using Speech-to-Text in Microsoft Word</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-analyzing-channels-monetization-status-at-a-glance/"><u>[New] In 2024, Analyzing Channels  Monetization Status at a Glance</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-8-trending-vr-adventures-on-oculus/"><u>2024 Approved  Top 8 Trending VR Adventures on Oculus</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-rapid-routines-sending-photos-from-iphone-to-computer/"><u>2024 Approved  Rapid Routines  Sending Photos From iPhone to Computer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-techniques-for-unbiased-and-structured-interviews/"><u>2024 Approved  Techniques for Unbiased and Structured Interviews</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simplifying-audio-transcription-insights-into-azures-speech-recognition/"><u>2024 Approved  Simplifying Audio Transcription  Insights Into Azure's Speech Recognition</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My iPhone 12 Pro Max?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-6-choices-prime-microphones-for-dynamic-online-broadcasts/"><u>2024 Approved  Top 6 Choices  Prime Microphones for Dynamic Online Broadcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-collection-top-notch-free-meme-designs/"><u>2024 Approved  Ultimate Collection  Top-Notch FREE Meme Designs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-techniques-for-fascinating-vlog-dialogue-structure/"><u>2024 Approved  Techniques for Fascinating Vlog Dialogue Structure</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-easy-steps-to-activate-a-full-screen-grid-on-google-meet-for-2024/"><u>[Updated] Easy Steps to Activate a Full-Screen Grid on Google Meet for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-ae-text-configurations-from-basics-to-brilliance/"><u>2024 Approved  Top AE Text Configurations  From Basics to Brilliance</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-step-by-step-iphone-ringer-update-guide/"><u>2024 Approved  Step-by-Step  IPhone Ringer Update Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-list-legal-game-music-sources/"><u>2024 Approved  The Ultimate List  Legal Game Music Sources</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-securing-your-periscope-footage-expert-techniques-revealed/"><u>2024 Approved  Securing Your Periscope Footage  Expert Techniques Revealed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-offline-speech-to-text-transcription-apps/"><u>2024 Approved  Top Offline Speech-to-Text Transcription Apps</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-aspect-ratio-explained-how-it-shapes-your-youtube-videos-aesthetic/"><u>New 2024 Approved Aspect Ratio Explained How It Shapes Your YouTube Videos Aesthetic</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-audiovisual-transition-incorporating-a-subtle-decline-into-your-soundscapes-updated/"><u>In 2024, Audiovisual Transition Incorporating a Subtle Decline Into Your Soundscapes (Updated )</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-dissecting-splitcams-superiority-as-a-recorder/"><u>[New] 2024 Approved  Dissecting SplitCam’s Superiority as a Recorder</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-prime-directors-cut-trailers/"><u>2024 Approved  Prime Director's Cut Trailers</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-stitching-pictures-and-chords-into-compelling-narratives/"><u>2024 Approved  Stitching Pictures & Chords Into Compelling Narratives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-discover-the-top-11-secrets-to-flawless-color-correction/"><u>In 2024, Discover the Top 11 Secrets to Flawless Color Correction</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sizzling-skills-7-keys-for-scrumptious-video-cooking/"><u>2024 Approved  Sizzling Skills  7 Keys for Scrumptious Video Cooking</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-navigating-the-rules-of-youtube-video-documentation/"><u>2024 Approved  Navigating the Rules of YouTube Video Documentation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-quiet-quality-of-comfort-asmr-expert-choices/"><u>2024 Approved  The Quiet Quality of Comfort  ASMR Expert Choices</u></a></li>
+<li><a href="https://win11.techidaily.com/securing-your-pcs-login-trail-a-win-flip-guide/"><u>Securing Your PC's Login Trail: A Win-Flip Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-zdsoft-in-a-nutshell-video-capture-insights/"><u>2024 Approved  ZDSoft in a Nutshell  Video Capture Insights</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-the-essential-software-catalog-for-isolating-audio-from-videos-as/"><u>Updated The Essential Software Catalog for Isolating Audio From Videos As</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-precision-in-presentation-finalizing-videos-on-vimeo-effectively/"><u>In 2024, Precision in Presentation  Finalizing Videos on Vimeo Effectively</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sj7s-latest-4k-star-cam-a-revolutionary-action-recorder/"><u>2024 Approved  SJ7's Latest 4K Star Cam - A Revolutionary Action Recorder</u></a></li>
+</ul></div>

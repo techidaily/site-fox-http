@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Hand-In-The-Wind  Understanding Its Types\""
-date: 2024-06-22T17:18:47.333Z
-updated: 2024-06-23T17:18:47.333Z
+date: 2024-07-13T22:21:33.511Z
+updated: 2024-07-14T22:21:33.511Z
 tags: 
   - screen-recording
   - ai video
@@ -51,6 +51,9 @@ With Hand Tracking, you can interact with the virtual world more naturally and i
 
 There are two main types of Hand Tracking: with interface and without interface:
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ### Tracking With Interface
 
 With interface Hand Tracking, you need to use a device such as a glove or a controller to interact with the virtual world. This can be used in VR or AR applications. It is further divided into two systems:
@@ -98,7 +101,7 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ### Guidance With Steps
 
-Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows)app on your PC. Once installed, launch it and follow these instructions step-by-step:
+Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
 
 **Install OpenCV and MediaPipe**
 
@@ -229,6 +232,9 @@ Also known as Markerless Hand Tracking, this type of Hand Tracking allows users 
 
 Right now, markerless Hand Tracking is still in its early stages, with a few limitations. However, as this technology continues to develop, we will likely see more and more applications for it in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Using Python, OpenCV, And MediaPipe To Create A Hand Tracking
 
 Above we have learned what is Hand Tracking and the two types of it. Now let’s see how we can create a hand tracking with two Python Libraries - OpenCV and MediaPipe.
@@ -250,9 +256,12 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Guidance With Steps
 
-Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows)app on your PC. Once installed, launch it and follow these instructions step-by-step:
+Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
 
 **Install OpenCV and MediaPipe**
 
@@ -290,6 +299,9 @@ The image is converted to RGB from BGR because MediaPipe works with this type of
 
 Now, create a class for tracking and for the hands function to work, key in the basic parameters. Next, provide all the initialization required. This includes the basic parameters and MediaPipe initializations. Put _“self”_ before each object to provide access to its attributes and methods.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
 ##### Step4 Creating Method For Tracking Hands In Input Image
@@ -361,3 +373,39 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-photoshop-alternatives-on-android/"><u>[New] Photoshop Alternatives on Android</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-premiere-audio-to-text-converters/"><u>[New] Premiere Audio-To-Text Converters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-future-of-podcasts-starts-with-smart-name-generation/"><u>[Updated] 2024 Approved  The Future of Podcasts Starts with Smart Name Generation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-inshot-soundsmith-adding-audio-to-videos-for-2024/"><u>[New] InShot Soundsmith  Adding Audio to Videos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premium-uav-selection-in-stock/"><u>Premium UAV Selection in Stock</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-insider-secrets-of-incorporating-captions-and-titles-into-video-clips/"><u>[New] In 2024, The Insider Secrets of Incorporating Captions & Titles Into Video Clips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/safe-methods-to-fast-forward-in-spotify-files/"><u>Safe Methods to Fast-Forward in Spotify Files</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/highlight-strategy-guide-10-must-try-tips-for-your-business/"><u>Highlight Strategy Guide  10 Must-Try Tips for Your Business</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-skys-best-friends-top-11-drone-gear-for-phantom/"><u>[New] Sky's Best Friends  Top 11 Drone Gear for Phantom</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-unleashing-creativity-with-magix-video-pro-x/"><u>[New] In 2024, Unleashing Creativity with Magix Video Pro X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-bring-your-stories-alive-techniques-for-animation-in-text/"><u>[Updated] Bring Your Stories Alive  Techniques for Animation in Text</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-social-media-sensation-kit-building-memes-on-9gag-for-2024/"><u>[New] The Social Media Sensation Kit  Building Memes on 9GAG for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-the-fast-lane-capturing-games-on-galaxy-devices-for-2024/"><u>[New] In the Fast Lane  Capturing Games on Galaxy Devices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-integrating-picture-in-picture-into-everyday-browsing-habits/"><u>[Updated] 2024 Approved  Integrating Picture in Picture Into Everyday Browsing Habits</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-explore-the-premier-video-grabbing-tools-on-windows-10/"><u>[Updated] 2024 Approved  Explore the Premier Video Grabbing Tools on Windows 10</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-easily-unlock-samsung-screen-by-drfone-android/"><u>In 2024, How To Easily Unlock Samsung Screen?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-ultimate-iphone-vr-game-list-for-your-next-adventure/"><u>[New] In 2024, Ultimate iPhone VR Game List for Your Next Adventure</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-cinematic-quality-anywhere-choosing-top-phones-with-optimal-stability/"><u>In 2024, Cinematic Quality Anywhere  Choosing Top Phones with Optimal Stability</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-precision-audit-vll-application-review-for-2024/"><u>[New] Precision Audit  VLL Application Review for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-blueprint-for-tiktok-profitability-mastering-filmmaker-funds-for-2024/"><u>The Blueprint for TikTok Profitability – Mastering Filmmaker Funds for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-jumpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>[New] 2024 Approved  Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-crafting-a-perfect-photomontage-like-a-pro/"><u>[Updated] Crafting a Perfect PhotoMontage Like a Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-smartphone-entertainment-at-no-cost-our-top-picks-of-live-streamers/"><u>[New] In 2024, Smartphone Entertainment at No Cost  Our Top Picks of Live Streamers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-highpoint-craftsman-workspace-review/"><u>[Updated] 2024 Approved  Highpoint Craftsman Workspace Review</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-compute-and-correct-image-dimensions/"><u>New In 2024, Compute and Correct Image Dimensions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-perfecting-the-pause-how-to-craft-exceptional-slow-motion-videos/"><u>[New] In 2024, Perfecting the Pause  How to Craft Exceptional Slow Motion Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-effortless-background-cleanse-using-picsart/"><u>[Updated] 2024 Approved  Effortless Background Cleanse Using Picsart</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-gigglegridsguild-funnyframefactory-for-2024/"><u>[New] GiggleGridsGuild  FunnyFrameFactory for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-expert-guide-windows-movie-maker-60-configuration-for-2024/"><u>[Updated] Expert Guide  Windows Movie Maker 6.0 Configuration for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-5-budget-friendly-video-effect-tools/"><u>Top 5 Budget-Friendly Video Effect Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-essential-picks-10-best-vectors-stock-sources/"><u>[Updated] Essential Picks  10 Best Vectors Stock Sources</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-amplifying-your-content-free-techniques-to-boost-youtube-views/"><u>[Updated] Amplifying Your Content  Free Techniques to Boost YouTube Views</u></a></li>
+</ul></div>

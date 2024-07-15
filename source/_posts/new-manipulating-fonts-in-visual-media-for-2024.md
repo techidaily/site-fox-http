@@ -1,7 +1,7 @@
 ---
 title: "[New] Manipulating Fonts in Visual Media for 2024"
-date: 2024-06-22T18:20:59.002Z
-updated: 2024-06-23T18:20:59.002Z
+date: 2024-07-13T23:28:54.893Z
+updated: 2024-07-14T23:28:54.893Z
 tags: 
   - screen-recording
   - ai video
@@ -124,6 +124,9 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 
 1. Next, highlight the text, and then go to Effects. Click on Glitch and Curve. Doing this will allow you to create a curved text with a glitch effect.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to distort text in video with canva](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-10.png)
 
 1. You can download your video with text distortion or share it on your social media platforms.
@@ -138,6 +141,9 @@ This online tool provides photo editing and graphic design tools, and you can us
 
 ![online text distorter - picmonkey](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2.MockoFun
 
 Adding text along a curve is a great way to make a strong graphic statement. The tool lets you create a logo and include a circular distorted text. You can also add this effect to photos using MockoFun.com.
@@ -204,6 +210,9 @@ Start Photoshop, and then click on the File menu. Select the New option and set 
 
 Click the Window menu to open the Layers panel and click Layers.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3\
 
 Click on the New Layer icon that resembles a bent-corner sticky note.
@@ -358,6 +367,14 @@ Click on the T icon located in the Tools panel. You can also click on the Window
 
 Check the list and right-click on the new text layer with a T icon symbol and the words you have typed. Select the Rasterize Layer option; this will turn the box with the T icon into a white and gray checkerboard.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to distort text in photo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-2.png)
 
 ### Step 6\
@@ -617,3 +634,47 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-elevate-your-facebook-streams-to-hd-levels/"><u>[Updated] 2024 Approved  Elevate Your Facebook Streams to HD Levels</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-nubia-red-magic-8s-proplus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Nubia Red Magic 8S Pro+ without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/virtual-worlds-in-action-essential-360-shooting-advice-top-9/"><u>Virtual Worlds in Action  Essential 360 Shooting Advice (Top 9)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-capture-your-overwatch-saga-effortlessly/"><u>[Updated] In 2024, Capture Your Overwatch Saga Effortlessly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-proven-strategies-to-amplify-zoomed-participants-in-google-meet/"><u>2024 Approved  Proven Strategies to Amplify Zoomed Participants in Google Meet</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/1714064205242-documentaries-about-historic-events-space-or-any-other-topic-that-is-impossible-to-stage-rely-on-the-videos-that-entered-the-public-domain-for-one-reason-or/"><u>Documentaries About Historic Events, Space or Any Other Topic that Is Impossible to Stage Rely on the Videos that Entered the Public Domain for One Reason or the Other. Thats Why in This Article, We for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlimited-picture-pools-the-best-10-resources/"><u>2024 Approved  Unlimited Picture Pools  The Best 10 Resources</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-how-to-fast-forward-on-tiktok/"><u>In 2024, How to Fast Forward on TikTok?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-quiet-quality-of-comfort-asmr-expert-choices/"><u>2024 Approved  The Quiet Quality of Comfort  ASMR Expert Choices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-5-simple-yet-powerful-strategies-to-skyrocket-your-youtube-views/"><u>[Updated] In 2024, 5 Simple Yet Powerful Strategies to Skyrocket Your YouTube Views</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-samsung-galaxy-a15-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Samsung Galaxy A15 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-shots-to-screens-the-importance-of-camera-lenses-in-vlogs/"><u>In 2024, From Shots to Screens  The Importance of Camera Lenses in Vlogs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamline-creative-processes-efficiently-adding-text-to-videos-with-microsoft-photos/"><u>2024 Approved  Streamline Creative Processes  Efficiently Adding Text to Videos with Microsoft Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-list-legal-game-music-sources/"><u>2024 Approved  The Ultimate List  Legal Game Music Sources</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-amplify-igtv-audiences-5-effective-ways-for-a-larger-following/"><u>[New] Amplify IGTV Audiences  5 Effective Ways for a Larger Following</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-transform-your-avi-images-from-video-to-graphics-using-filmora/"><u>2024 Approved  Transform Your AVI Images  From Video To Graphics Using Filmora</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/translate-instagram-videos-easily-a-step-by-step-guide-for-2024/"><u>Translate Instagram Videos Easily A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-meme-gurus-list-of-the-best-designs-10/"><u>2024 Approved  The Meme Guru's List of the Best Designs #10</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-ultimate-guide-to-turning-memories-into-snaps-for-2024/"><u>The Ultimate Guide to Turning Memories Into Snaps for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/1716068907936-updated-2024-approved-how-to-minimize-stress-in-ipad-screen-recordings-heres-a-way/"><u>[Updated] 2024 Approved  How to Minimize Stress in iPad Screen Recordings? Here's a Way!</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-vivo-y100-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Vivo Y100 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/27971053-in-2024-top-6-youtube-outro-makers-lots-of-free-options/"><u>In 2024, Top 6 YouTube Outro Makers-Lots of FREE Options</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-premier-guide-to-high-definition-android-viewing-tools/"><u>2024 Approved  The Premier Guide to High-Definition Android Viewing Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamlining-your-projects-with-voice-over-integration/"><u>2024 Approved  Streamlining Your Projects with Voice Over Integration</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-silent-shifts-mastering-crossfades-efficiently/"><u>2024 Approved  Silent Shifts  Mastering Crossfades Efficiently</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-pinnacle-of-visual-expression-best-mac-drawing-tools/"><u>2024 Approved  The Pinnacle of Visual Expression - Best Mac Drawing Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-action-cam-editing-picks/"><u>2024 Approved  Ultimate Action Cam Editing Picks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-transform-your-listening-experience-with-subscriptions-to-20-youtube-artists/"><u>In 2024, Transform Your Listening Experience with Subscriptions to 20 YouTube Artists</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simple-steps-for-quick-file-migration/"><u>2024 Approved  Simple Steps for Quick File Migration</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-step-by-step-iphone-ringer-update-guide/"><u>2024 Approved  Step-by-Step  IPhone Ringer Update Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-share-your-picture-posting-to-youtube-basics/"><u>2024 Approved  Share Your Picture  Posting to YouTube Basics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-ae-text-configurations-from-basics-to-brilliance/"><u>2024 Approved  Top AE Text Configurations  From Basics to Brilliance</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-from-iphone-12-pro-max-by-drfone-ios/"><u>How To Remove the Two Factor Authentication From iPhone 12 Pro Max</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamlining-video-editing-convert-avis-to-gifs-on-mac-and-pc-with-filmora/"><u>2024 Approved  Streamlining Video Editing  Convert AVIs to GIFs on Mac and PC with Filmora</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-art-of-anticipation-elevating-the-unboxing-experience/"><u>2024 Approved  The Art of Anticipation  Elevating the Unboxing Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-stitching-pictures-and-chords-into-compelling-narratives/"><u>2024 Approved  Stitching Pictures & Chords Into Compelling Narratives</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nnovation-hub-for-youtube-gurus/"><u>[New] Innovation Hub for YouTube Gurus</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simplified-path-to-perfect-video-clarity/"><u>2024 Approved  Simplified Path to Perfect Video Clarity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-collection-top-notch-free-meme-designs/"><u>2024 Approved  Ultimate Collection  Top-Notch FREE Meme Designs</u></a></li>
+</ul></div>

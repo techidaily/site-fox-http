@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Decoding Techniques in Human Gesture Recognition"
-date: 2024-06-22T18:08:55.191Z
-updated: 2024-06-23T18:08:55.191Z
+date: 2024-07-13T23:15:58.007Z
+updated: 2024-07-14T23:15:58.007Z
 tags: 
   - screen-recording
   - ai video
@@ -98,7 +98,7 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ### Guidance With Steps
 
-Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows)app on your PC. Once installed, launch it and follow these instructions step-by-step:
+Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
 
 **Install OpenCV and MediaPipe**
 
@@ -112,6 +112,9 @@ Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
 Now, to install **MediaPipe**, copy and paste the following command:
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![install mediapipe](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-2.jpg)
 
 **Coding**
@@ -229,6 +232,9 @@ Also known as Markerless Hand Tracking, this type of Hand Tracking allows users 
 
 Right now, markerless Hand Tracking is still in its early stages, with a few limitations. However, as this technology continues to develop, we will likely see more and more applications for it in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. Using Python, OpenCV, And MediaPipe To Create A Hand Tracking
 
 Above we have learned what is Hand Tracking and the two types of it. Now let’s see how we can create a hand tracking with two Python Libraries - OpenCV and MediaPipe.
@@ -248,11 +254,17 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 1. **Palm Detection**: In the first stage, MediaPipe has to work with the entire input image, providing a cropped image of the hand.
 2. **Hand Landmarks Identification**: In the second stage, the framework works with the cropped image of the hand to find 21 hand landmarks.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Guidance With Steps
 
-Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows)app on your PC. Once installed, launch it and follow these instructions step-by-step:
+Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
 
 **Install OpenCV and MediaPipe**
 
@@ -361,3 +373,54 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-in-depth-look-at-sonys-x1000v-hd-recorder/"><u>[Updated] 2024 Approved  In-Depth Look at Sony's X1000V HD Recorder</u></a></li>
+<li><a href="https://fox-http.techidaily.com/visual-symphony-the-best-in-the-field-of-photo-and-video-makers-with-beats-for-2024/"><u>Visual Symphony  The Best in the Field of Photo & Video Makers with Beats for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/vhs-chronicles-revisiting-the-comical-tale/"><u>VHS Chronicles  Revisiting 'The Comical Tale'</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-video-recording-titans-obs-studio-vs-fraps-face-off/"><u>In 2024, Video Recording Titans  OBS Studio vs Fraps Face-Off</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-changing-dynamics-of-auditory-experience-in-the-newest-adobe-rush-release/"><u>New Changing Dynamics of Auditory Experience in the Newest Adobe Rush Release</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-e-comic-crafting-kit/"><u>[Updated] In 2024, E-Comic Crafting Kit</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-top-rated-free-mpeg-video-joining-software/"><u>2024 Approved Top-Rated Free MPEG Video Joining Software</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-a-compre-written-by-john-doe/"><u>[New] 2024 Approved  A Compre Written By  John Doe</u></a></li>
+<li><a href="https://fox-http.techidaily.com/stabilizing-aerial-vision-a-comprehensive-guide-to-choosing-a-gimbal/"><u>Stabilizing Aerial Vision  A Comprehensive Guide to Choosing a Gimbal</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-essence-of-the-apple-m1-a-technological-marvel-for-2024/"><u>[New] The Essence of the Apple M1  A Technological Marvel for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-the-art-of-panning-and-zooming-a-ken-burns-effect-tutorial/"><u>New 2024 Approved The Art of Panning and Zooming A Ken Burns Effect Tutorial</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-s24-ultra-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-new-face-of-sony-updates-to-s6500-blu-rayhd-player/"><u>[New] In 2024, The New Face of Sony  Updates to S6500 Blu-Ray/HD Player</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-pro-max-withwithout-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 Pro Max with/without SIM Card</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-the-full-potential-of-googles-podcast-tools-for-2024/"><u>Unlocking the Full Potential of Google's Podcast Tools for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-a-guide-to-top-5-text-effects-downloading-sites/"><u>[New] In 2024, A Guide to Top 5 Text Effects Downloading Sites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-professional-drones-pro-level-editing-software-showdown/"><u>2024 Approved  Professional Drones, Pro-Level Editing Software Showdown</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enhancing-media-interaction-with-smart-control-options/"><u>[Updated] 2024 Approved  Enhancing Media Interaction with Smart Control Options</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-pathway-to-advanced-hd-video-on-windows-pcs-for-2024/"><u>[New] The Ultimate Pathway to Advanced HD Video on Windows PCs for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-cutting-edge-stabilizing-gadgets-for-youtube-videography/"><u>[New] Cutting Edge Stabilizing Gadgets for YouTube Videography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-singular-adventure-in-3dr-an-insightful-look/"><u>The Singular Adventure in '3DR'  An Insightful Look</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-little-wheels-whirlwind-games/"><u>[Updated] 2024 Approved  Little Wheels Whirlwind Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unparalleled-screenplay-craftsmanship-across-varied-fields-for-2024/"><u>Unparalleled Screenplay Craftsmanship Across Varied Fields for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-flip-flop-your-watching-anchoring-yourself-at-the-end-of-queue/"><u>[New] Flip-Flop Your Watching  Anchoring Yourself at the End of Queue</u></a></li>
+<li><a href="https://fox-http.techidaily.com/superior-psd-design-transformations-for-2024/"><u>Superior PSD Design Transformations for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-seamless-setup-swift-sharing-the-essential-guide-to-ifunny-apps-for-2024/"><u>[Updated] Seamless Setup, Swift Sharing  The Essential Guide to iFunny Apps for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-nokia-130-music-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Nokia 130 Music Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-art-of-adding-soundtracks-to-instagram-visuals/"><u>[Updated] 2024 Approved  The Art of Adding Soundtracks to Instagram Visuals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transforming-photos-into-videos-an-experts-complete-tutorial-series/"><u>[New] In 2024, Transforming Photos Into Videos  An Expert's Complete Tutorial Series</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-smooth-transition-from-skype-to-zoom-for-better-collaboration/"><u>[Updated] In 2024, Smooth Transition From Skype to Zoom for Better Collaboration</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-perfect-guide-to-assembling-a-top-tier-4k-video-editor-pc/"><u>[Updated] The Perfect Guide to Assembling a Top-Tier 4K Video Editor PC</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exemplar-storyboard-creators-circle/"><u>2024 Approved  Exemplar Storyboard Creator's Circle</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-essential-steps-for-elevating-wmm-content-on-vimeo-platform/"><u>[New] In 2024, Essential Steps for Elevating WMM Content on Vimeo Platform</u></a></li>
+<li><a href="https://fox-http.techidaily.com/step-into-the-realm-of-3d-graffiti-a-guide-to-10-exceptional-websites/"><u>Step Into the Realm of 3D Graffiti  A Guide to 10 Exceptional Websites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unleashing-virtual-reality-the-ultimate-iphone-experience/"><u>2024 Approved  Unleashing Virtual Reality  The Ultimate IPhone Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-how-to-produce-a-trending-solo-podcast-series/"><u>[Updated] 2024 Approved  How To Produce A Trending Solo Podcast Series</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/actors-insight-crafting-engaging-online-reactions-on-youtube-3-pro-tips/"><u>Actor's Insight  Crafting Engaging Online Reactions on YouTube (3 Pro Tips)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-speedy-scripts-top-1-written-game-experiences-on-devices/"><u>[New] Speedy Scripts  Top 1 Written Game Experiences on Devices</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-xiaomi-redmi-note-12-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Xiaomi Redmi Note 12 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unlocking-the-secrets-to-smooth-imports-in-windows-10-os/"><u>[New] Unlocking the Secrets to Smooth Imports in Windows 10 OS</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-obs-utilization-comprehensive-gameplay-recording/"><u>[Updated] OBS Utilization  Comprehensive Gameplay Recording</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-what-to-do-with-icloud-drives-desktop-anddocuments-access-in-sierra/"><u>[New] What to Do with iCloud Drive’s Desktop &Documents Access in Sierra</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-unbeatable-free-video-editors-for-gaming-content-creators/"><u>Updated 2024 Approved Unbeatable Free Video Editors for Gaming Content Creators</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-secure-your-content-free-windows-screenshot-tools/"><u>[New] 2024 Approved  Secure Your Content  Free Windows Screenshot Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-boost-creativity-and-production-in-movies-xp-software/"><u>[Updated] Boost Creativity and Production in Movies  XP Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-10-after-effects-text-presets/"><u>[Updated] 2024 Approved  Top 10 After Effects Text Presets</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-infinix-smart-7-hd-unlock-without-password-by-drfone-android/"><u>5 Solutions For Infinix Smart 7 HD Unlock Without Password</u></a></li>
+</ul></div>

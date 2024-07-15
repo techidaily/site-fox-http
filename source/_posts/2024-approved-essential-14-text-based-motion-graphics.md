@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Essential 14 Text-Based Motion Graphics\""
-date: 2024-06-29T18:57:55.150Z
-updated: 2024-06-30T18:57:55.150Z
+date: 2024-07-13T23:52:51.124Z
+updated: 2024-07-14T23:52:51.124Z
 tags: 
   - screen-recording
   - ai video
@@ -66,6 +66,9 @@ There are different variations of text breaks away animation but it is one of th
 
 Referred to as typewriter text animation as well, the characters in a word or sentence appear on the screen one by one as if someone is typing it in real-time. There is always a cursor blinking at the end of the character and it shifts with the appearance of the words and sentences. Instead of showing words or sentences all at once, showing text as if someone is typing it on the screen is more visually pleasing.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Horizontal and vertical scrolling text
 
 Last but not least, the vertical scrolling text effect is extremely common for opening and closing credits in movies. This is even used in modern short videos to show credits as well as information as per requirements. Along with vertical scrolling, horizontal scrolling text is quite common these days to show a few lines of text instead of showing them together in a paragraph.
@@ -74,6 +77,9 @@ Last but not least, the vertical scrolling text effect is extremely common for o
 
 You should always keep the basic and the common types of text animations in mind and come up with interesting and creative text animations. We are listing down some popular text animation examples that you can use on your video.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Morphing Text Animation
 
 When there are multiple words to display one by one, instead of fade in and fade out effect, you can opt for morphing text animation. In this animation, the words seem to get morphed into one another. So, the first word will morph into the second word for the second word to appear on the screen and the sequence continues. The animation can be done fast to showcase multiple words in a short time period.
@@ -172,10 +178,16 @@ Parallax scrolling is a popular visual effect whereby the background stays the s
 
 Fade in and fade out text animation is extremely common in videos where the text slowly appears on the screen and its color brightness increase slowly. After reaching its full brightness, the text slowly loses its brightness and finally vanishes completely. Generally, the words appear and disappear simultaneously but in the modern effect, the characters appear and disappear individually at different times for more visual impact.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Sliding text animation
 
 You must have noticed the sliding text animation in videos where facts and figures are shown on the video. The sliding text animation generally slides into the video frame from a border or a stripe. Thereafter, it vanishes into the border or the stripe from where it originated. Sometimes, the text slides in from the right and sits in a fixed highlighted box, and slides out eventually.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Text breaks away animation
 
 There are different variations of text breaks away animation but it is one of the most visually appealing text animations. That text appears on the video and it shatters and disappears. Sometimes, the text turns into dust after shattering like a glass. This text effect cum animation is highly impactful in getting the attention of the viewers immediately.
@@ -291,3 +303,56 @@ We have discussed all the common type of text animations that are used to create
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-the-insiders-guide-to-quieting-ambient-sounds-on-stage-or-studio-setup/"><u>2024 Approved The Insiders Guide to Quieting Ambient Sounds on Stage or Studio Setup</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-step-by-step-process-youtube-vids-converted-to-mp3/"><u>2024 Approved  Step-by-Step Process  YouTube Vids, Converted to MP3</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-audio-visual-synthesis-suite-in-depth-analysis-of-functionalities-evaluations-and-alternatives/"><u>New In 2024, Audio-Visual Synthesis Suite In-Depth Analysis of Functionalities, Evaluations, and Alternatives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-guide-to-the-lg-bp350-visual-experience/"><u>2024 Approved  Ultimate Guide to the LG BP350 Visual Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-selecting-the-supreme-top-5-4k-tvs-for-vivid-hues/"><u>2024 Approved  Selecting the Supreme  Top 5 4K TVs for Vivid Hues</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-from-apple-iphone-14-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock From Apple iPhone 14?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-smartphones-ultimate-guide-to-image-editing-and-annotation/"><u>2024 Approved  Smartphones' Ultimate Guide to Image Editing & Annotation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-replay-the-art-of-twitch-livestream-control/"><u>2024 Approved  Replay  The Art of Twitch Livestream Control</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-14-pro-max-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 14 Pro Max Without a Passcode</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-small-scale-screenplay-idea/"><u>2024 Approved  Small-Scale Screenplay Idea</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-prime-microphones-for-high-resolution-4k-video-shooting/"><u>2024 Approved  Prime Microphones for High-Resolution 4K Video Shooting</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pixiz-essentials-from-stills-to-moving-images/"><u>2024 Approved  Pixiz Essentials  From Stills to Moving Images</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-which-video-editor-reigns-supreme-final-cut-pro-or-lumafusion/"><u>Updated 2024 Approved Which Video Editor Reigns Supreme Final Cut Pro or LumaFusion?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-boost-sound-level-for-twitters-quiet-vids-for-2024/"><u>[Updated] Boost Sound Level for Twitter's Quiet Vids for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-realtime-hd-uplift-for-pc-mac-and-online-devices/"><u>2024 Approved  RealTime HD Uplift for PC, Mac & Online Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-quickest-quads-2022-olympics-skate/"><u>2024 Approved  The Quickest Quads  2022 Olympics Skate</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-precision-in-storyboard-planning/"><u>2024 Approved  Precision in Storyboard Planning</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-step-by-step-analysis-mastering-xmedia-studio-software/"><u>2024 Approved  Step by Step Analysis  Mastering XMedia Studio Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-time-stamping-your-photos/"><u>The Ultimate Guide to Time-Stamping Your Photos</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-apple-iphone-se-2020-location-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Phone Number Locators To Track Apple iPhone SE (2020) Location | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-quick-fix-tweeter-conversion-for-social-sharing/"><u>2024 Approved  Quick-Fix Tweeter Conversion for Social Sharing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-transform-your-in-game-identity-with-these-free-free-fire-vocal-hacks/"><u>2024 Approved  Transform Your In-Game Identity with These Free Free Fire Vocal Hacks</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-5-best-alternatives-to-tiktok-you-should-know/"><u>[New] In 2024, 5 Best Alternatives to TikTok You Should Know</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-windows-10-video-editors-the-best-free-and-paid-imovie-alternatives/"><u>Updated Windows 10 Video Editors The Best Free and Paid iMovie Alternatives</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-comprehensive-guide-ps4-recording-via-obs-studio/"><u>[New] Comprehensive Guide  PS4 Recording via OBS Studio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-showcase-spectacatives-the-best-ice-artistry-22/"><u>2024 Approved  Showcase Spectacatives  The Best Ice Artistry '22</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-zero-cost-image-amplifier-desktopmobile-edition/"><u>2024 Approved  Top Zero-Cost Image Amplifier  Desktop/Mobile Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-elite-editions-unbiased-blu-ray-player-titles-for-pcmac/"><u>[New] Elite Editions  Unbiased Blu-Ray Player Titles for PC/Mac</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-techniques-for-emptying-youtubes-keep-queue/"><u>In 2024, Techniques for Emptying YouTube's Keep Queue</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-revolutionizing-the-music-creation-process-through-magix-mentor-x/"><u>2024 Approved  Revolutionizing the Music Creation Process Through Magix Mentor X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pixel-perfection-your-path-to-exceptional-edits/"><u>2024 Approved  Pixel Perfection  Your Path to Exceptional Edits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlock-the-best-live-stream-options-today/"><u>2024 Approved  Unlock the Best Live Stream Options Today</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-shattering-limits-of-visuals-standard-definition-to-hdr-revolution/"><u>2024 Approved  Shattering Limits of Visuals  Standard Definition to HDR Revolution</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-scour-these-10-vectors-websites-for-exceptional-quality/"><u>2024 Approved  Scour These 10 Vectors Websites for Exceptional Quality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-platform-pair-comparison-twitch-and-youtube/"><u>2024 Approved  The Ultimate Platform Pair Comparison  Twitch and YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-windows-and-cross-platform-videography-tools-guide/"><u>2024 Approved  Ultimate Windows & Cross-Platform Videography Tools Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-seamless-photo-editing-incorporating-text-onto-images-on-pcs-and-macs/"><u>2024 Approved  Seamless Photo Editing  Incorporating Text Onto Images on PCs & Macs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-symbolizing-sound-designing-a-captivating-podcast-image/"><u>2024 Approved  Symbolizing Sound  Designing a Captivating Podcast Image</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-raw-footage-to-social-stardom-the-art-of-video-cropping-on-instagram/"><u>[Updated] From Raw Footage to Social Stardom  The Art of Video Cropping on Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-revamping-videography-the-story-of-nikon-1j5s-4k-achievement/"><u>2024 Approved  Revamping Videography  The Story of Nikon 1J5’s 4K Achievement</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-standout-settings-guide-for-online-events/"><u>2024 Approved  Standout Settings Guide for Online Events</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unleashing-creativity-with-pro-gopro-guidance/"><u>2024 Approved  Unleashing Creativity with Pro-GoPro Guidance</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-future-of-action-photography-starts-here-xs-100-i-reviewed/"><u>2024 Approved  The Future of Action Photography Starts Here - XS 100 I Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-science-of-color-representation-srgb-and-rgb/"><u>2024 Approved  The Science of Color Representation  Srgb & Rgb</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-step-into-the-future-metavisors-for-the-ultimate-experience/"><u>2024 Approved  Step Into the Future  Metavisors for the Ultimate Experience</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-ranked-independent-offline-mobile-gaming-android/"><u>Top-Ranked Independent Offline Mobile Gaming (Android)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-turning-xmlssattml-files-into-srt-formats-strategies-and-techniques/"><u>2024 Approved  Turning XML/SSA/TTML Files Into SRT Formats  Strategies and Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlock-a-million-eyes-engaging-content-strategy/"><u>2024 Approved  Unlock a Million Eyes  Engaging Content Strategy</u></a></li>
+</ul></div>

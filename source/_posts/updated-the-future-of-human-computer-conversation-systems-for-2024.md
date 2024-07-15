@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Future of Human-Computer Conversation Systems for 2024\""
-date: 2024-06-22T17:31:59.462Z
-updated: 2024-06-23T17:31:59.462Z
+date: 2024-07-13T22:35:54.028Z
+updated: 2024-07-14T22:35:54.028Z
 tags: 
   - screen-recording
   - ai video
@@ -94,11 +94,14 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 1. **Palm Detection**: In the first stage, MediaPipe has to work with the entire input image, providing a cropped image of the hand.
 2. **Hand Landmarks Identification**: In the second stage, the framework works with the cropped image of the hand to find 21 hand landmarks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
 ### Guidance With Steps
 
-Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows)app on your PC. Once installed, launch it and follow these instructions step-by-step:
+Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
 
 **Install OpenCV and MediaPipe**
 
@@ -140,6 +143,9 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ##### Step4 Creating Method For Tracking Hands In Input Image
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
@@ -170,6 +176,9 @@ The module and output of the program will be the same, and when they are complet
 
 ## Part 4\. Use Filmora to demonstarte your Hand Tracking skill
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 After what has been explained above and what you have learned by now, we hope you have been equipped with hand tracking module knowledge and be ready to take action. Here, we will also sincerely recommend you a user-friendly and professional video edtior to show your hand motion scene – [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)![Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is available for all types of users. You can easily use it to edit your video, add effects to it and insert your hand motion part naturally.
 
 Learn more about Filmora:
@@ -252,7 +261,7 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ### Guidance With Steps
 
-Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows)app on your PC. Once installed, launch it and follow these instructions step-by-step:
+Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
 
 **Install OpenCV and MediaPipe**
 
@@ -294,6 +303,9 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ##### Step4 Creating Method For Tracking Hands In Input Image
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
@@ -361,3 +373,72 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-integrate-youtube-playlists-into-your-site/"><u>2024 Approved  How to Integrate YouTube Playlists Into Your Site</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-efficient-storage-of-androidmac-snaps-for-longevity/"><u>[New] 2024 Approved  Efficient Storage of Android/Mac Snaps for Longevity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-from-amateurs-to-pros-transformative-steps-in-gopro-timelapses-for-2024/"><u>[New] From Amateurs to Pros  Transformative Steps in GoPro Timelapses for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-gear-helmet-cams-the-most-trusted-choice-riders/"><u>Top Gear Helmet Cams - The Most Trusted Choice Riders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-bridging-distances-with-easy-to-use-xbox-zooming/"><u>[Updated] In 2024, Bridging Distances with Easy-to-Use Xbox Zooming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-guide-to-crafting-compelling-and-credible-documentary-scripts-for-2024/"><u>[Updated] The Ultimate Guide to Crafting Compelling and Credible Documentary Scripts for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-metaverse-meme-compendium-ideas-galore/"><u>In 2024, The Ultimate Metaverse Meme Compendium  Ideas Galore</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/expert-insights-bridging-obs-and-facebook-live-streaming/"><u>Expert Insights  Bridging OBS and Facebook Live Streaming</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-fatal-error-c0000022-in-windows/"><u>How to Fix the Fatal Error C0000022 in Windows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leading-brands-offering-the-best-steadicams-for-dslr-users/"><u>[New] In 2024, Leading Brands Offering the Best Steadicams for DSLR Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-leading-systems-for-real-time-play-broadcasts/"><u>[New] 2024 Approved  Leading Systems for Real-Time Play Broadcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-navigating-the-odds-comprehensive-take-on-vegas-pro-2021/"><u>[New] In 2024, Navigating the Odds  Comprehensive Take on Vegas Pro 2021</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-digital-sculpting-for-designers-adobe-illustrator-edition/"><u>[New] In 2024, Digital Sculpting for Designers  Adobe Illustrator Edition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How to Simulate GPS Movement in AR games On Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-from-noisy-to-neat-cutting-out-clutter-on-photos/"><u>In 2024, From Noisy to Neat  Cutting Out Clutter on Photos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/progopro-session-series-evolution-for-2024/"><u>ProGoPro Session Series Evolution for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-android-video-editing-made-easy-top-10-imovie-alternatives/"><u>New 2024 Approved Android Video Editing Made Easy Top 10 iMovie Alternatives</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/high-quality-capture-with-obs-a-screencast-showcase/"><u>High-Quality Capture with OBS  A Screencast Showcase</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-stepwise-journey-converting-smartphones-into-vr-hubs/"><u>[Updated] In 2024, A Stepwise Journey  Converting Smartphones Into VR Hubs</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/bluescreen-fix-correcting-windows-wdf-issues/"><u>BlueScreen Fix: Correcting Windows WDF Issues</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-funnybox-simple-setup-for-content-creators-for-2024/"><u>[New] FunnyBox  Simple Setup for Content Creators for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-easy-methods-for-dimming-audio-tracks-in-adobe-premiere/"><u>[Updated] In 2024, Easy Methods for Dimming Audio Tracks in Adobe Premiere</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevating-your-audacity-skills-for-professional-audio-capture-for-2024/"><u>Elevating Your Audacity Skills for Professional Audio Capture for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/tips-for-a-seamless-experience-accessing-youtube-video-comments-for-2024/"><u>Tips for a Seamless Experience  Accessing YouTube Video Comments for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-guide-premium-plugins-boosting-ae-projects-for-2024/"><u>[Updated] Ultimate Guide  Premium Plugins Boosting AE Projects for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-enlightened-imaging-mastering-hdr-vision-in-lightroom-for-2024/"><u>[Updated] Enlightened Imaging  Mastering HDR Vision in Lightroom for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-a-step-by-step-approach-to-mastering-lut-utilization/"><u>[New] 2024 Approved  A Step-by-Step Approach to Mastering LUT Utilization</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-adjustment-tips-for-subtle-audio-reduction-in-logic-pro-for-2024/"><u>[New] Adjustment Tips for Subtle Audio Reduction in Logic Pro for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-tecno-spark-10-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Tecno Spark 10 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-audiophiles-companion-to-top-tier-audio-equipment/"><u>[Updated] In 2024, The Audiophile's Companion to Top-Tier Audio Equipment</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-powerpoint-guide-to-adding-youtube-links-with-ease/"><u>In 2024, PowerPoint Guide to Adding YouTube Links with Ease</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-realme-c55-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Realme C55.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-bring-a-chuckle-to-life-generating-text-memes/"><u>[New] In 2024, Bring a Chuckle to Life  Generating Text Memes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unveiling-the-secrets-of-tiktoks-pfp-language/"><u>Unveiling the Secrets of TikTok's PFP Language</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unraveling-the-sideway-video-phenomenon-on-ig/"><u>[Updated] Unraveling the Sideway Video Phenomenon on IG</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unrivaled-dramas-from-the-eightfold-storytelling-sphere/"><u>[New] Unrivaled Dramas From the Eightfold Storytelling Sphere</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-guide-to-sound-changes-in-ps-console-games-for-2024/"><u>[New] The Ultimate Guide to Sound Changes in PS Console Games for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/merging-music-and-messages-spotifydiscord-connection/"><u>Merging Music and Messages  Spotify/Discord Connection</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elite-gamers-top-picks-best-4k-gaming-screens/"><u>[New] In 2024, Elite Gamers' Top Picks  Best 4K Gaming Screens</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-enigma-of-stardew-valley-unearthed-on-ginger-island/"><u>[Updated] The Enigma of Stardew Valley, Unearthed on Ginger Island</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-2023-edition-of-effortless-instagram-filter-usage-unveiled/"><u>The 2023 Edition of Effortless Instagram Filter Usage Unveiled</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-top-taleshifters-academy-top-8-picks/"><u>[Updated] In 2024, Top Taleshifters Academy - Top 8 Picks</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-12-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus 12 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-peering-through-the-printer-one-persons-3dr-story-for-2024/"><u>[Updated] Peering Through the Printer  One Person’s '3DR' Story for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/echocam-grabber-for-video-calls-for-2024/"><u>EchoCam Grabber for Video Calls for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unlocking-pip-techniques-for-professional-apple-users/"><u>Unlocking PIP Techniques for Professional Apple Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-configuring-safe-area-mode-and-pip-in-modern-macos/"><u>[Updated] In 2024, Configuring Safe Area Mode & PIP in Modern MacOS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-extended-review-straightforward-implementation-of-hdr/"><u>[Updated] In 2024, Extended Review  Straightforward Implementation of HDR</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-10-strategies-for-accessing-nfl-games-online/"><u>Top 10 Strategies for Accessing NFL Games Online</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unleash-your-favorites-top-youtube-musicians/"><u>2024 Approved  Unleash Your Favorites  Top YouTube Musicians</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unveiling-the-mystery-behind-professional-looking-time-lapses-in-gopro/"><u>[New] Unveiling the Mystery Behind Professional-Looking Time Lapses in GoPro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-reintroducing-classic-windows-photo-viewer-w10-edition/"><u>[Updated] Reintroducing Classic Windows Photo Viewer - W10 Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/podcasters-playbook-submitting-to-apple-for-2024/"><u>Podcaster's Playbook  Submitting to Apple for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-from-laggard-to-lightning-pick-8-apps-now/"><u>[New] 2024 Approved  From Laggard to Lightning  Pick 8 Apps Now</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-beginners-guide-to-av1-codec-for-2024/"><u>[New] Beginner's Guide to AV1 Codec for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-windows-11-audio-recording-techniques/"><u>[New] 2024 Approved  Windows 11 Audio Recording Techniques</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-free-video-splitter-tools-edit-side-by-side-videos-online-and-offline/"><u>New 2024 Approved Free Video Splitter Tools Edit Side-by-Side Videos Online and Offline</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-how-to-make-text-reveal-effect-for-your-video/"><u>Updated How to Make Text Reveal Effect for Your Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-guide-to-iphone-selfie-gear-rankings-8/"><u>[New] The Ultimate Guide to Iphone Selfie Gear Rankings (#8)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-stories-in-simplicity/"><u>[Updated] Stories in Simplicity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-game-on-pioneer-top-choices-in-windows-10s-new-games-and-apps-for-2024/"><u>[Updated] Game On, Pioneer  Top Choices in Windows 10’S New Games and Apps for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-air-vs-pro-with-m1-optimal-laptop-for-your-needs/"><u>[Updated] 2024 Approved  Air Vs. Pro with M1  Optimal Laptop for Your Needs?</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/innovative-insights-a-curated-list-s-pivotal-social-media-and-marketing-podcasts-for-2024/"><u>Innovative Insights A Curated List S Pivotal Social Media and Marketing Podcasts for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-elevating-your-webinar-footage-with-best-practices/"><u>[New] Elevating Your Webinar Footage with Best Practices</u></a></li>
+</ul></div>

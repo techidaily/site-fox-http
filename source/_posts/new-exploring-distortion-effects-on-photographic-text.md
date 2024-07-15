@@ -1,7 +1,7 @@
 ---
 title: "[New] Exploring Distortion Effects on Photographic Text"
-date: 2024-06-22T17:22:44.815Z
-updated: 2024-06-23T17:22:44.815Z
+date: 2024-07-13T22:25:50.867Z
+updated: 2024-07-14T22:25:50.867Z
 tags: 
   - screen-recording
   - ai video
@@ -194,6 +194,9 @@ The bottom line is: Distorting text in Photoshop is a simple process that requir
 
 With that in mind, let's look at how you can apply text distortion in photography using Photoshop.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 1\
 
 Start Photoshop, and then click on the File menu. Select the New option and set parameters for your document, according to the space the text is going to occupy in its intended medium. In the Name field, type a name. You can also decide to leave the Photoshop default.
@@ -240,6 +243,9 @@ Tinker around with different changes mentioned above until you get the text dist
 
 Select the File menu and click Save As. Photoshop will automatically have "PSD" displayed in the Format box, which allows you to save your file as a proprietary Photoshop PSD. Make sure you leave this extension, as it lets you re-access the design layers and perform more text distortions in the future. Now, click on Save.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 11\
 
 Go to the File menu and click on it. Select the Save As option again. Choose your preferred graphic format and click Save. Photoshop will prompt you about discarding layers. When you see this, click OK or Yes. Doing this will render your text uneditable and allow anyone with an image viewer to open your graphic instead of only Photoshop. It will also allow you to include it in word processing documents, websites, and other materials.
@@ -278,6 +284,9 @@ You can also distort text with online tools. You need an internet connection and
 
 This online tool provides photo editing and graphic design tools, and you can use it to distort the text in your photo. PicMonkey.com allows you to put your words into arcs and circles to create typography art. You can also add drop shadow, and knockout, to outline the center of the distorted text. The handles on both sides of the text box allow you to resize the diameter of the circled text or scrunch up or stretch out your arched text. Additionally, you can add spaces between the letters and play with the kerning of the text.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![online text distorter - picmonkey](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-3.png)
 
 ### 2.MockoFun
@@ -436,6 +445,9 @@ Zalgo Text Generator is an online tool that allows you to create glitch text. Th
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-11.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. GFTO
 
 EnGFTO.com is an online text distorter that allows you to choose the text size and color and choose one of the available fonts. It comes with hundreds of text templates. You can also upload fonts, change the text style, and apply gradients. What's more? Users can add an outline to their text, change the background, and select the color of their text edges.
@@ -617,3 +629,51 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-best-action-hats-motorcycle-cameras-reviewed-and-ranked/"><u>In 2024, The Best Action Hats  Motorcycle Cameras Reviewed and Ranked</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-premier-listing-of-superior-free-lut-downloads/"><u>[Updated] In 2024, Premier Listing of Superior Free LUT Downloads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-cost-free-webm-playback-the-top-10-players-reviewed/"><u>In 2024, Cost-Free WebM Playback  The Top 10 Players Reviewed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/secrets-to-dynamic-and-effective-igtv-covers/"><u>Secrets to Dynamic & Effective IGTV Covers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-maximize-engagement-with-custom-youtube-thumbnails/"><u>[Updated] Maximize Engagement with Custom YouTube Thumbnails</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-visionary-toolkit-premium-ae-templates-at-zero-cost/"><u>In 2024, Visionary Toolkit  Premium AE Templates at Zero Cost</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-top-5-pc-emulators-bringing-ps1-to-life/"><u>In 2024, Top 5 PC Emulators Bringing PS1 to Life</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-fast-tracked-finesse-how-to-efficiently-edit-and-enhance-windows-photos/"><u>[New] Fast-Tracked Finesse  How to Efficiently Edit and Enhance Windows Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-hand-in-the-wind-understanding-its-types/"><u>[New] Hand-In-The-Wind  Understanding Its Types</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-10-free-android-video-editing-apps-that-dont-add-watermarks/"><u>New 10 Free Android Video Editing Apps That Dont Add Watermarks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-guide-to-selecting-a-superior-camcorder/"><u>2024 Approved  Ultimate Guide to Selecting a Superior Camcorder</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-youtube-to-mpeg-transformation-hacks-you-need-for-2024/"><u>[Updated] YouTube-to-MPEG Transformation Hacks You Need for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-delve-into-the-art-of-text-animation-14-stunning-examples/"><u>2024 Approved  Delve Into the Art of Text Animation  14 Stunning Examples</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-navigating-the-best-free-srt-translator-tools-expert-insight/"><u>[Updated] In 2024, Navigating the Best Free SRT Translator Tools – Expert Insight</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-8-best-video-animation-app-for-androidiphoneipad/"><u>Updated 8 Best Video Animation App for Android/iPhone/iPad</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unrivaled-sonic-union-for-speakers/"><u>[Updated] In 2024, Unrivaled Sonic Union for Speakers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-capture-stellar-tiktoks-with-ease-and-flair-for-2024/"><u>[New] How to Capture Stellar TikToks with Ease and Flair for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-no-coffee-break-needed-top-free-movies-on-youtube-to-watch/"><u>In 2024, No Coffee Break Needed  Top Free Movies on YouTube to Watch</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-marvelous-mac-display-selection-the-best-4k-offerings/"><u>[New] Marvelous Mac Display Selection - The Best 4K Offerings</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-should-you-keep-previewing-fb-activity-visible-insights/"><u>2024 Approved  Should You Keep Previewing FB Activity Visible? Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-switch-on-windows-11s-hdr-functionality/"><u>In 2024, How to Switch On Windows 11'S HDR Functionality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-lgs-gaming-monitor-review-the-future-of-4k-freesync/"><u>[New] 2024 Approved  LG’s Gaming Monitor Review - The Future of 4K FreeSync</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-essential-guide-to-20-free-hassle-free-storage-options-with-max-limit/"><u>In 2024, Essential Guide to 20 Free, Hassle-Free Storage Options with Max Limit</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-full-review-capturing-every-angle-in-one-device-samsung/"><u>[New] 2024 Approved  Full Review  Capturing Every Angle in One Device - Samsung</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-master-class-selecting-the-top-10-4k-shoulder-rigs/"><u>[New] In 2024, Master Class  Selecting the Top 10 4K Shoulder Rigs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-vectors-unveiled-a-novices-path-through-types-and-apps/"><u>[Updated] In 2024, Vectors Unveiled  A Novice’s Path Through Types and Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-club-vibes-best-dj-template-video-selections/"><u>[Updated] 2024 Approved  Club Vibes  Best DJ Template Video Selections</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-decadal-list-prime-meme-designs-for-2024/"><u>[New] Decadal List  Prime Meme Designs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-the-secrets-to-effective-virtual-meetings-with-zoom-win10/"><u>2024 Approved  Unveiling the Secrets to Effective Virtual Meetings with Zoom (Win10)</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-resolve-your-iphone-7-plus-keeps-asking-for-outlook-password-by-drfone-ios/"><u>In 2024, Resolve Your iPhone 7 Plus Keeps Asking for Outlook Password</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-shorts-visibility-enhanced-issue-resolved/"><u>[New] Shorts Visibility Enhanced – Issue Resolved</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/gaming-transformed-by-tech-for-2024/"><u>Gaming Transformed by Tech for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elevate-your-edge-experience-with-pip-for-2024/"><u>[New] Elevate Your Edge Experience with PIP for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/advanced-cinematography-the-leading-lenses-for-4k-production/"><u>Advanced Cinematography  The Leading Lenses for 4K Production</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-snapseed-starters-handbook-for-photo-editing/"><u>[New] 2024 Approved  The Snapseed Starter's Handbook for Photo Editing</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-premier-pc-screen-snapshot-pro/"><u>2024 Approved  Premier PC Screen Snapshot Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-how-to-for-finding-freely-available-pictorial-frames/"><u>2024 Approved  The How-To for Finding Freely Available Pictorial Frames</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-prime-online-converter-options-for-instant-gif-to-video-for-2024/"><u>[Updated] Prime Online Converter Options for Instant GIF to Video for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-link-from-instas-photos-to-tiks-videos/"><u>[New] 2024 Approved  The Ultimate Link  From Insta's Photos to Tik's Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/perfecting-snapchat-gifting-a-guide-to-gifs/"><u>Perfecting Snapchat Gifting - A Guide to Gifs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-2023s-top-pick-of-affordable-live-stream-tech-for-every-platform-user/"><u>In 2024, 2023'S Top Pick of Affordable Live Stream Tech for Every Platform User</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-inside-the-revolutionary-world-of-jaunt-vr/"><u>2024 Approved  Inside the Revolutionary World of Jaunt VR</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-achieve-massive-momentum-hit-1k-ig-gains-monthly/"><u>[New] Achieve Massive Momentum  Hit 1K IG Gains Monthly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultimate-recorder-options-for-livestreaming-on-youtube-for-2024/"><u>Ultimate Recorder Options for Livestreaming on YouTube for 2024</u></a></li>
+</ul></div>

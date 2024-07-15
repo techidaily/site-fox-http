@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering SRT File Playback on Both OSes\""
-date: 2024-06-22T18:17:06.136Z
-updated: 2024-06-23T18:17:06.136Z
+date: 2024-07-13T23:24:39.540Z
+updated: 2024-07-14T23:24:39.540Z
 tags: 
   - screen-recording
   - ai video
@@ -131,10 +131,16 @@ Steps to **open subtitles SRT** files in Windows 10/11
 2. Select the file, right-click and choose Properties.
 3. Under the General tab of the file properties, choose and click on the Change button.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![open srt on windows 1](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-02.jpg)
 
 1. Select Word or Notepad in the Open with window. You can choose the option- “Always use the selected program to open this type of file” so that all the srt files are opened using this selected program.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![open srt on windows 2](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-03.jpg)
 
 1. Next click on the OK button and then double click on the file that will open in Notepad or WordPad as selected.
@@ -143,6 +149,9 @@ Steps to **open subtitles SRT** files in Windows 10/11
 
 1. The SRT file will open in the text editor and you can even edit it if required.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How to Open SRT Files on Mac
 
 A multimedia player supporting the SRT feature will enable watching the videos with these subtitles. On the Mac system, there are several programs available that can be used for opening the SRT files like ObjectifMac, VLC Media Player, SubCleaner, and more. Also, you can even use the text editor-TextEdit for Mac. Simply find the desired SRT file and choose to open it using the TextEdit program. **QuickTime SRT** can also be used for opening and playing the SRT files.
@@ -189,6 +198,9 @@ Mac system. In the Media resource area, import the SRT subtitle files directly.
 
 Step2 Next, double-click on the selected SRT file or right-click on the timeline and then choose the Advanced Edit option.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![open srt using wondershare filmora 2](https://images.wondershare.com/filmora/article-images/2022/09/srt-file-how-to-open-srt-file-08.jpg)
 
 Step3 Now, the software can be used for performing an array of SRT editing functions like editing the time code, changing the subtitles, adding, removing, and merging the subtitle strips, changing the subtitle style, and more.
@@ -224,3 +236,39 @@ The above listed are several ways by which an SRT subtitle file can be opened on
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-a-compreenasional-approach-to-earning-through-vimeos-revenue-systems/"><u>[New] In 2024, A Compreenasional Approach to Earning Through Vimeo's Revenue Systems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-an-intro-to-quantum-hdr-innovations/"><u>2024 Approved  An Intro to Quantum HDR Innovations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-meme-monster-maestro/"><u>2024 Approved  Meme Monster Maestro</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/telegram-tactics-for-aspiring-marketers-a-compreeher-guide-for-2024/"><u>Telegram Tactics for Aspiring Marketers  A Compreeher Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-top-30-metaverse-memes-crafting-hilarious-digital-delights/"><u>[Updated] 2024 Approved  Top 30 Metaverse Memes  Crafting Hilarious Digital Delights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-capturing-perfection-a-deep-dive-into-nikon-d7500/"><u>2024 Approved  Capturing Perfection  A Deep Dive Into Nikon D7500</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-blades-and-boards-olympians-on-ice/"><u>2024 Approved  Blades & Boards  Olympians on Ice</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-effortless-entry-to-entertainment-the-ifunny-app-experience/"><u>2024 Approved  Effortless Entry to Entertainment  The iFunny App Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-best-no-cost-cross-platform-laptop-dvd-decoders/"><u>2024 Approved  Best No-Cost, Cross-Platform Laptop DVD Decoders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-avoid-being-overwhelmed-by-tiktok-drafts-edits-for-orderliness/"><u>2024 Approved  Avoid Being Overwhelmed by TikTok Drafts  Edits for Orderliness</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-photos-with-samsungs-latest-toolkit/"><u>2024 Approved  Mastering Photos with Samsung's Latest Toolkit</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-artistic-transformation-tool-for-photos-pcs-and-macs-alike/"><u>2024 Approved  Artistic Transformation Tool for Photos, PCs & Macs Alike</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-excellent-selection-of-top-8-blu-ray-player-models/"><u>2024 Approved  Excellent Selection of Top 8 Blu-Ray Player Models</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-navigating-the-maze-of-music-rights-on-instagram/"><u>[New] Navigating the Maze of Music Rights on Instagram</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-iphone-14-plus-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your iPhone 14 Plus Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-dynamic-film-transformation-premium-15-color-correction-tools-for-gopro/"><u>2024 Approved  Dynamic Film Transformation  Premium 15 Color Correction Tools for GOPRO</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-edit-hauls-a-comprehensive-video-guide/"><u>2024 Approved  How to Edit Hauls  A Comprehensive Video Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-guide-to-fade-out-music-in-premiere-pro/"><u>2024 Approved  Guide To Fade Out Music In Premiere Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/profit-prospects-analyzing-youtubes-monetization-mechanisms-for-2024/"><u>Profit Prospects  Analyzing YouTube's Monetization Mechanisms for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-itel-p55-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Itel P55 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unlock-tiktoks-potential-with-our-sizzling-template-selection/"><u>Unlock TikTok’s Potential with Our Sizzling Template Selection</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-best-budget-asmr-mic-stellar-sound-value/"><u>2024 Approved  Best Budget ASMR Mic  Stellar Sound Value</u></a></li>
+<li><a href="https://video-capture.techidaily.com/recorder-at-zero-free-capture-of-your-android-content/"><u>Recorder at Zero  Free Capture of Your Android Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-fundamental-concepts-of-cyber-narratives/"><u>2024 Approved  Fundamental Concepts of Cyber Narratives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-bizarre-vertical-reversal-in-insta-videos-a-glitch/"><u>2024 Approved  Bizarre Vertical Reversal in Insta Videos – A Glitch?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-masterful-background-selection-tips/"><u>2024 Approved  Masterful Background Selection Tips</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-best-meme-photo-editor/"><u>[Updated] Best Meme Photo Editor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elevating-marketing-with-powerful-customer-video-voices/"><u>2024 Approved  Elevating Marketing with Powerful Customer Video Voices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-decoding-the-complexities-of-drone-photography-and-gimbals/"><u>2024 Approved  Decoding the Complexities of Drone Photography and Gimbals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-masterpiece-makers-discovering-these-6-unmatched-nft-tools/"><u>2024 Approved  Masterpiece Makers  Discovering These 6 Unmatched NFT Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-optimal-live-video-distributors-suite/"><u>2024 Approved  Optimal Live Video Distributors' Suite</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-boosting-joy-in-packet-opening-top-tips/"><u>2024 Approved  Boosting Joy in Packet Opening  Top Tips</u></a></li>
+</ul></div>

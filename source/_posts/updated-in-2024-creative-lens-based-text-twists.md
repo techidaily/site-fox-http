@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Creative Lens-Based Text Twists\""
-date: 2024-06-22T17:50:17.594Z
-updated: 2024-06-23T17:50:17.594Z
+date: 2024-07-13T22:55:39.427Z
+updated: 2024-07-14T22:55:39.427Z
 tags: 
   - screen-recording
   - ai video
@@ -204,6 +204,9 @@ Start Photoshop, and then click on the File menu. Select the New option and set 
 
 Click the Window menu to open the Layers panel and click Layers.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3\
 
 Click on the New Layer icon that resembles a bent-corner sticky note.
@@ -212,6 +215,9 @@ Click on the New Layer icon that resembles a bent-corner sticky note.
 
 Click on the T icon located in the Tools panel. You can also click on the Window and select Tools if you don't see the Tools panel. After opening the Type toolbar, choose the text size, color, and font you'll use for the distorted text. Now, click the canvas, and then type the text you want to distort. The text appears in a non-distorted format when you type.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 5\
 
 Check the list and right-click on the new text layer with a T icon symbol and the words you have typed. Select the Rasterize Layer option; this will turn the box with the T icon into a white and gray checkerboard.
@@ -236,6 +242,9 @@ Take one of the middleboxes and pull and drug them on either the bottom or top t
 
 Tinker around with different changes mentioned above until you get the text distortion you want. Once you are satisfied with the results, hit Enter to set the change and get rid of the boxes and borders from the text.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 10\
 
 Select the File menu and click Save As. Photoshop will automatically have "PSD" displayed in the Format box, which allows you to save your file as a proprietary Photoshop PSD. Make sure you leave this extension, as it lets you re-access the design layers and perform more text distortions in the future. Now, click on Save.
@@ -366,6 +375,9 @@ Click on the Edit menu, then hover your cursor over Transform. From the fly-out 
 
 Be sure to pull it in different directions and check how the text will become funhouse-style elongated in different ways; this will allow you to judge which look you prefer for your text distortion.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 7\
 
 Now, click another corner and drag towards the center to make the text look like it's slightly squished.
@@ -617,3 +629,43 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ideal-choice-best-free-reliable-mac-screenshot-tools/"><u>[Updated] In 2024, Ideal Choice  Best Free, Reliable Mac Screenshot Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-complete-checklist-for-internet-broadcast-preservation/"><u>[New] 2024 Approved  The Complete Checklist for Internet Broadcast Preservation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-the-top-10-drawing-apps-for-chromebooks/"><u>In 2024, Unveiling the Top 10 Drawing Apps for Chromebooks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-easy-to-follow-action-cam-buyers-blueprint-23/"><u>[New] Easy-to-Follow Action Cam Buyers’ Blueprint '23</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-maximize-your-drones-visual-potential-essential-gimbal-selection-tips-for-2024/"><u>[New] Maximize Your Drones' Visual Potential  Essential Gimbal Selection Tips for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-full-spectrum-screen-recording-az-analyses-and-backups/"><u>2024 Approved  Full Spectrum Screen Recording - AZ Analyses & Backups</u></a></li>
+<li><a href="https://fox-http.techidaily.com/navigating-the-nuances-of-spotify-advertising-for-2024/"><u>Navigating the Nuances of Spotify Advertising for 2024</u></a></li>
+<li><a href="https://techidaily.com/vivo-x100-pro-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Vivo X100 Pro Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+<li><a href="https://fox-http.techidaily.com/peak-creation-suite-insightful-2023-analysis-for-2024/"><u>Peak Creation Suite  Insightful 2023 Analysis for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-new-normal-for-vr-industry-insights/"><u>[New] The New Normal for VR  Industry Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-taming-soundscapes-mastering-gradual-volume-increase-with-audition/"><u>In 2024, Taming Soundscapes  Mastering Gradual Volume Increase with Audition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-turn-popular-tiktok-tracks-into-practical-personalized-ringtones/"><u>[New] In 2024, Turn Popular TikTok Tracks Into Practical, Personalized Ringtones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-pewdiepies-paycheck-profile-a-glimpse-into-his-earnings-for-2024/"><u>[New] PewDiePie’s Paycheck Profile – A Glimpse Into His Earnings for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-step-by-step-guide-to-optimal-sound-quality-with-zooms-features/"><u>[New] Step-by-Step Guide to Optimal Sound Quality with Zoom's Features</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-what-makes-youtube-tv-stand-out-in-a-crowded-marketplace-for-2024/"><u>[Updated] What Makes YouTube TV Stand Out in a Crowded Marketplace for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-lava-yuva-2-pro-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Lava Yuva 2 Pro Phone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-accessing-premium-clip-art-at-no-expense/"><u>[New] In 2024, Accessing Premium Clip-Art at No Expense</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-digital-artistry-perfecting-your-photoshop-skills/"><u>[New] Digital Artistry  Perfecting Your Photoshop Skills</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/downloading-samfw-frp-tool-30-for-sony-xperia-5-v-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Sony Xperia 5 V</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-customizing-your-amazon-prime-video-viewing-experience/"><u>New In 2024, Customizing Your Amazon Prime Video Viewing Experience</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y100-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Vivo Y100 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-eye-catching-4k-experience-dell-p2715q-in-focus-for-2024/"><u>[New] The Eye Catching 4K Experience  Dell P2715Q in Focus for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-create-epic-gaming-intros-best-tools-for-pc-and-mac-users-for-2024/"><u>Updated Create Epic Gaming Intros Best Tools for PC and Mac Users for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-navigating-your-srt-files-with-mac-expertise/"><u>[New] 2024 Approved  Navigating Your SRT Files with Mac Expertise</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/dominating-the-sky-with-heavylift-drones/"><u>Dominating the Sky with Heavylift Drones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elite-audio-curated-lists-for-video-editors-for-2024/"><u>[New] Elite Audio Curated Lists for Video Editors for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unleash-creativity-with-top-10-phone-apps-adding-stickers-to-images/"><u>In 2024, Unleash Creativity with Top 10 Phone Apps Adding Stickers to Images</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-vivo-v27-pro-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Vivo V27 Pro Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-supreme-selection-an-honour-roll-of-top-10-reddit-discussions/"><u>[New] 2024 Approved  The Supreme Selection  An Honour Roll of Top 10 Reddit Discussions</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-choose-the-right-thumbnail-size-for-impact/"><u>[New] How to Choose the Right Thumbnail Size for Impact</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-dfu-mode-on-iphone-14-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of DFU Mode on iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/navigating-through-pc-hdr-content-watch-edit-enjoy-for-2024/"><u>Navigating Through PC HDR Content  Watch, Edit, Enjoy for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-silence-to-spotlight-the-solo-podcast-artists-journey/"><u>[New] From Silence to Spotlight  The Solo Podcast Artist's Journey</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-immersive-visual-spectacle-gears-challenge-to-lgcam/"><u>In 2024, Immersive Visual Spectacle  Gear's Challenge to LGCam</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-ringtone-repository-prime-picks-for-downloadable-calls/"><u>[Updated] Ringtone Repository  Prime Picks for Downloadable Calls</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-nubia-red-magic-9-pro-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Nubia Red Magic 9 Pro.</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Most Compelling Free AE Design Samples\""
-date: 2024-06-22T18:17:07.160Z
-updated: 2024-06-23T18:17:07.160Z
+date: 2024-07-13T23:24:40.629Z
+updated: 2024-07-14T23:24:40.629Z
 tags: 
   - screen-recording
   - ai video
@@ -91,6 +91,9 @@ This is an After Effects title template bundle that comes with different types o
 
 This is another great title template that you can choose if you want animations to feature prominently in your title. The template has amazing 3D effects that can make your title stand out, making it an ideal solution for creative or entertainment projects. It is fully customizable in After Effects.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cinematic ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/cinematic-ae-title-tempalte.jpg)
 
 ### 10\. Abstract Titles After Effects Text Animations
@@ -153,6 +156,9 @@ Step3 Select the comp that is remaining and click on “Edit” to select “Dup
 
 Step4 Right-click on the duplicated layer and choose “Time” to select “Time Reverse Layer.”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![time reverse layer ae](https://images.wondershare.com/filmora/article-images/2022/07/time-reverse-layer-ae.jpg)
 
 Step5 Move the duplicated layers to the right until you find that there are no gaps between the two layers.
@@ -285,6 +291,9 @@ Step1 Select all the layers that you have created so far and then go to “Layer
 
 Step2 Move the playhead to about 3 seconds and then click on “Edit” and select “Split Layer.” Delete the top Split Layer.”
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![delete the top split layer](https://images.wondershare.com/filmora/article-images/2022/07/delete-the-top-split-layer.jpg)
 
 Step3 Select the comp that is remaining and click on “Edit” to select “Duplicate.”
@@ -305,6 +314,9 @@ Step1 Create a new composition to create new text or if you already have text on
 
 Step2 Then click on “Effects” select “Gradient Ramp” and add the effect next to the text later.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add color to animation ae](https://images.wondershare.com/filmora/article-images/2022/07/add-color-to-animation-ae.jpg)
 
 Step3 Move the points on the screen to change the intensity and direction of the gradient as desired.
@@ -338,3 +350,60 @@ Step4 You can then use the “Effects Window” to change the color as desired.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/streamline-your-gaming-with-xbox-screen-recorders-for-2024/"><u>Streamline Your Gaming with Xbox Screen Recorders for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-innovation-in-action-sonys-s6500-player-redefined/"><u>2024 Approved  Innovation in Action  Sony's S6500 Player Redefined</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-navigating-multi-screen-browsing-effortlessly-in-google-chrome/"><u>2024 Approved  Navigating Multi-Screen Browsing Effortlessly in Google Chrome</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-boosting-photo-skills-speed-and-simplicity-with-windows-10-paint-app/"><u>2024 Approved  Boosting Photo Skills  Speed & Simplicity with Windows 10 Paint App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-best-on-the-water-fishings-top-5-action-cameras/"><u>2024 Approved  Best on the Water  Fishing's Top 5 Action Cameras</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-expert-review-of-bandicams-efficacy-in-multimedia-projects-for-2024/"><u>[New] Expert Review of Bandicam's Efficacy in Multimedia Projects for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-free-range-riffs-and-rhythms-in-free-fire/"><u>2024 Approved  Free Range Riffs and Rhythms in Free Fire</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-social-media-sensations-most-liked-and-watched-amazon-originals/"><u>2024 Approved  The Social Media Sensations  Most Liked & Watched Amazon Originals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-meditative-harmony-top-free-no-copyright-playlists/"><u>2024 Approved  Meditative Harmony – Top Free, No-Copyright Playlists</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/integrating-instagram-effects-into-pre-existing-content-for-2024/"><u>Integrating Instagram Effects Into Pre-Existing Content for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-immediate-gif-to-video-conversion-top-5-free-websites/"><u>2024 Approved  Immediate GIF-to-Video Conversion, Top 5 Free Websites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfecting-cinematography-using-luts-for-polished-colors/"><u>2024 Approved  Perfecting Cinematography  Using Luts for Polished Colors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-the-art-of-cropping-in-the-digital-age/"><u>2024 Approved  Mastering the Art of Cropping in the Digital Age</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-lumafusion-on-mac-os-a-complete-installation-and-alternative-guide/"><u>New In 2024, Lumafusion on Mac OS A Complete Installation and Alternative Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-earn-on-the-go-snapchats-money-tips/"><u>[New] Earn on the Go  Snapchat's Money Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-capturing-brilliance-essential-angles-in-iphone-photography/"><u>2024 Approved  Capturing Brilliance  Essential Angles in iPhone Photography</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-master-1080p-video-editing-expert-approved-software-for-stunning-results-for-2024/"><u>New Master 1080P Video Editing Expert-Approved Software for Stunning Results for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-live-streaming-elite-9-edition/"><u>2024 Approved  Live Streaming Elite  #9 Edition</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-the-ultimate-selection-of-apps-to-tame-your-feed/"><u>[Updated] 2024 Approved  The Ultimate Selection of Apps to Tame Your Feed</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-customizing-your-videos-aspect-ratio-in-final-cut-pro-for-2024/"><u>New Customizing Your Videos Aspect Ratio in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-zooms-secrets-to-flawless-live-video-streaming-on-youtube/"><u>[New] 2024 Approved  Zoom's Secrets to Flawless Live Video Streaming on YouTube</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-maximizing-visibility-how-to-customize-your-linkedin-video-thumbnails/"><u>Updated Maximizing Visibility How to Customize Your LinkedIn Video Thumbnails</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-personalize-vr-gear-with-homemade-google-headgear/"><u>2024 Approved  Personalize VR Gear with Homemade Google Headgear</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-10-ae-text-styles-guide/"><u>2024 Approved  Top 10 AE Text Styles Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-obscured-oath-vs-illuminated-ideal-black-vs-silver/"><u>2024 Approved  Obscured Oath Vs Illuminated Ideal  Black vs Silver</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-key-frames-per-second-in-superior-slow-motion-imaging/"><u>2024 Approved  Key Frames per Second in Superior Slow Motion Imaging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-crafting-compelling-video-covers/"><u>[New] The Art of Crafting Compelling Video Covers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-advancing-zoom-clarity-in-online-gatherings-google-meet/"><u>2024 Approved  Advancing Zoom Clarity in Online Gatherings (Google Meet)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-a-treasure-trove-guide-to-public-domain-images/"><u>2024 Approved  A Treasure Trove Guide to Public Domain Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-audacity-guide-creating-fluid-audio-crossfade/"><u>2024 Approved  Audacity Guide  Creating Fluid Audio Crossfade</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ultimate-srt-insights-essential-facts-unveiled/"><u>Ultimate SRT Insights  Essential Facts Unveiled</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-essential-14-text-based-motion-graphics/"><u>2024 Approved  Essential 14 Text-Based Motion Graphics</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/visualizing-tweet-reactions-a-complete-twitch-tale-for-23/"><u>Visualizing Tweet Reactions - A Complete Twitch-Tale for '23</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-guide-to-youtubes-latest-income-strategies/"><u>[Updated] 2024 Approved  Guide to YouTube's Latest Income Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-efficient-sound-capturing-in-the-latest-windows-11/"><u>2024 Approved  Efficient Sound Capturing in the Latest Windows 11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-exploring-the-professional-landscape-with-4k-and-beyond-the-benq-bl2711u-story/"><u>2024 Approved  Exploring the Professional Landscape with 4K and Beyond - The BenQ BL2711U Story</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-compiling-chords-and-crafting-a-unique-youtube-playlist/"><u>In 2024, Compiling Chords and Crafting a Unique YouTube Playlist</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-expert-tips-for-adding-stunning-motion-blur-effects-to-photos/"><u>2024 Approved  Expert Tips for Adding Stunning Motion Blur Effects to Photos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ultimate-guide-selecting-best-android-emulators-macpc/"><u>Ultimate Guide  Selecting Best Android Emulators (Mac/PC)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-definitive-explanation-of-online-storytelling/"><u>2024 Approved  Definitive Explanation of Online Storytelling</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-headline-hypnotizer-simulator/"><u>2024 Approved  Headline Hypnotizer Simulator</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-eliminate-unrequested-podcast-additions-on-spotify-feed/"><u>2024 Approved  Eliminate Unrequested Podcast Additions on Spotify Feed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-imaginary-giggles-generate-with-kapwings-maker/"><u>2024 Approved  Imaginary Giggles  Generate with Kapwing's Maker</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-vivo-y100a-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Vivo Y100A Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-top-budget-friendly-video-editors/"><u>Updated Top Budget-Friendly Video Editors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-industry-pioneers-of-immersive-visualization/"><u>2024 Approved  Industry Pioneers of Immersive Visualization</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-spotlight-tactics-a-3-step-guide/"><u>In 2024, Instagram Spotlight Tactics  A 3-Step Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-captivating-snaps-with-snapchats-colorful-cartoon-lens/"><u>2024 Approved  Captivating Snaps with Snapchat’s Colorful Cartoon Lens</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-engage-users-through-creative-animation-insta-story-tips/"><u>2024 Approved  Engage Users Through Creative Animation  Insta-Story Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-hue-harmonization-handbook-for-experts/"><u>2024 Approved  Hue Harmonization Handbook for Experts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-legally-safe-chants-and-tunes-the-ultimate-meditation-list/"><u>2024 Approved  Legally Safe Chants & Tunes - The Ultimate Meditation List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-high-seas-of-soundtracking-leading-destinations-for-hearing-heroes-tts-downloads/"><u>2024 Approved  High Seas of Soundtracking  Leading Destinations for Hearing Heroes' TTS Downloads</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-vivo-y17s-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo Y17s Phone That Is Locked | Dr.fone</u></a></li>
+</ul></div>

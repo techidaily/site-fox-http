@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Creative Curvature  Enhancing Imagery with Text Shaping\""
-date: 2024-06-22T18:20:41.130Z
-updated: 2024-06-23T18:20:41.130Z
+date: 2024-07-13T23:28:35.659Z
+updated: 2024-07-14T23:28:35.659Z
 tags: 
   - screen-recording
   - ai video
@@ -90,6 +90,9 @@ Now, click another corner and drag towards the center to make the text look like
 
 Take one of the middleboxes and pull and drug them on either the bottom or top to make the text wider.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 9\
 
 Tinker around with different changes mentioned above until you get the text distortion you want. Once you are satisfied with the results, hit Enter to set the change and get rid of the boxes and borders from the text.
@@ -110,6 +113,9 @@ Select your text and then go to Filter - Noise - Add Noise; this will add Noise 
 
 You can add a texture overlay for more texture and dimension to your text. To do this, click on the Text option in the Toolbox and select the dropdown that says Add Texture Overlay; this opens a new window, and you can click on your image to choose the texture.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Distort Text in Video?
 
 Canva is a graphic design platform that offers software for both Windows and Mac. You can use this program to edit photos, videos, and documents. It comes with loads of features that you can use. You can distort texts in video using Canva by following the steps below:
@@ -370,6 +376,9 @@ Be sure to pull it in different directions and check how the text will become fu
 
 Now, click another corner and drag towards the center to make the text look like it's slightly squished.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 8\
 
 Take one of the middleboxes and pull and drug them on either the bottom or top to make the text wider.
@@ -524,6 +533,9 @@ Tinker around with different changes mentioned above until you get the text dist
 
 Select the File menu and click Save As. Photoshop will automatically have "PSD" displayed in the Format box, which allows you to save your file as a proprietary Photoshop PSD. Make sure you leave this extension, as it lets you re-access the design layers and perform more text distortions in the future. Now, click on Save.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 11\
 
 Go to the File menu and click on it. Select the Save As option again. Choose your preferred graphic format and click Save. Photoshop will prompt you about discarding layers. When you see this, click OK or Yes. Doing this will render your text uneditable and allow anyone with an image viewer to open your graphic instead of only Photoshop. It will also allow you to include it in word processing documents, websites, and other materials.
@@ -617,3 +629,47 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-blueprint-for-transferring-large-videos-between-apple-devices/"><u>[Updated] The Ultimate Blueprint for Transferring Large Videos Between Apple Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-leading-action-cameras-front-faced-views-available/"><u>2024 Approved  Leading Action Cameras  Front-Faced Views Available</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-blender-is-an-open-source-cross-platform-3d-graphics-program-but-this-doesnt-mean-its-a-low-rent-option/"><u>In 2024, Blender Is an Open-Source Cross-Platform 3D Graphics Program, but This Doesnt Mean Its a Low-Rent Option</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-essential-tv-gear-for-premium-live-broadcasts/"><u>2024 Approved  Essential TV Gear for Premium Live Broadcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-the-artistry-of-asuss-4k-monitor-review/"><u>2024 Approved  Discover the Artistry of Asus's 4K Monitor Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ideal-slide-show-apps-from-iphone-6-to-xs-max/"><u>2024 Approved  Ideal Slide Show Apps  From iPhone 6 to XS Max</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-organizing-epics-implementing-chapters-in-vimeo-media/"><u>2024 Approved  Organizing Epics  Implementing Chapters in Vimeo Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-making-a-buzz-aesthetic-strategies-for-podcast-brands/"><u>2024 Approved  Making a Buzz  Aesthetic Strategies for Podcast Brands</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-decoding-srt-for-subc-effective-conversion-guide/"><u>2024 Approved  Decoding SRT for SUBC  Effective Conversion Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-enhancing-remote-communication-with-effective-skype-screen-sharing/"><u>In 2024, Enhancing Remote Communication with Effective Skype Screen Sharing</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-14ipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on Apple iPhone 14/iPad/iPod</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-leveraging-budget-friendly-visual-elements/"><u>2024 Approved  Leveraging Budget-Friendly Visual Elements</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-effortless-podcast-livestream-guide/"><u>2024 Approved  Effortless Podcast Livestream Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-streamlining-content-across-platforms-youtube-and-igtv/"><u>In 2024, Streamlining Content Across Platforms  YouTube & IGTV</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-xiaomi-redmi-note-12-pro-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Xiaomi Redmi Note 12 Pro 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-samsung-galaxy-m14-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Samsung Galaxy M14 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/immortalize-your-playthrough-xbox-one-screen-capture-tips-for-2024/"><u>Immortalize Your Playthrough  Xbox One Screen Capture Tips for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-creating-your-channels-pathway-youtubian-starter-pack-earning-money/"><u>2024 Approved  Creating Your Channel's Pathway  Youtubian Starter Pack, Earning Money</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/google-chats-mastery-key-elements-4-ways/"><u>Google Chats Mastery  Key Elements, #4 Ways</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-overcome-obstacles-with-these-top-10-motivation-flicks/"><u>2024 Approved  Overcome Obstacles with These Top 10 Motivation Flicks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-iphone-burst-photography/"><u>2024 Approved  Mastering iPhone Burst Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-enchanting-audiences-crafting-captivating-animation-with-wmm/"><u>2024 Approved  Enchanting Audiences  Crafting Captivating Animation with WMM</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-accelerated-sound-adjustment-apps-overview/"><u>2024 Approved  Accelerated Sound Adjustment Apps Overview</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-advanced-directors-toolkit-powerdirector-24/"><u>2024 Approved  Advanced Directors' Toolkit  PowerDirector '24</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-jest-jamboree-utilizing-comic-tools-for-free/"><u>2024 Approved  Jest Jamboree  Utilizing Comic Tools for Free</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-set-a-viral-song-as-your-phones-personal-melody/"><u>2024 Approved  How To Set a Viral Song as Your Phone's Personal Melody</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-journey-just-beginning-how-to-unlock-ifunny-memes/"><u>2024 Approved  Journey Just Beginning  How to Unlock iFunny Memes</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-12-mini-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 12 mini without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-innovating-your-viewing-experience-android-and-vr-videos/"><u>2024 Approved  Innovating Your Viewing Experience  Android & VR Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-essential-steps-for-recording-games-via-obs/"><u>In 2024, Essential Steps for Recording Games via OBS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/smooth-movies-clean-shots-the-10-best-for-superior-image-stabilization-for-2024/"><u>Smooth Movies, Clean Shots  The 10 Best for Superior Image Stabilization for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-immersive-inventory-visualization/"><u>2024 Approved  Immersive Inventory Visualization</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elite-15-high-definition-action-recorders/"><u>2024 Approved  Elite 15 High-Definition Action Recorders</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/elevate-your-brand-with-tiktok-ads-ideas-and-exemplary-case-studies/"><u>Elevate Your Brand with TikTok Ads  Ideas & Exemplary Case Studies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-master-free-online-and-offline-text-animations/"><u>2024 Approved  How to Master Free Online & Offline Text Animations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-add-and-record-audio-to-powerpoint/"><u>2024 Approved  Add & Record Audio to PowerPoint</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/5-best-webcams-for-gaming/"><u>5 Best Webcams for Gaming</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/extensive-info-on-vimeo-video-aspect-ratio-detailled-for-2024/"><u>Extensive Info on Vimeo Video - Aspect Ratio Detailled for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-djis-minis-and-air-2-free-fun-luts-for-ultimate-mixes/"><u>2024 Approved  DJI's Minis & Air 2  Free, Fun LUTS for Ultimate Mixes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expertise-in-audio-on-windows-best-8-applications-you-should-use/"><u>In 2024, Expertise in Audio on Windows  Best 8 Applications You Should Use</u></a></li>
+</ul></div>

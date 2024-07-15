@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Charting the Course of Viral Stocks & Stories\""
-date: 2024-06-29T18:57:03.791Z
-updated: 2024-06-30T18:57:03.791Z
+date: 2024-07-13T23:51:54.117Z
+updated: 2024-07-14T23:51:54.117Z
 tags: 
   - screen-recording
   - ai video
@@ -64,24 +64,45 @@ Since then, the meme continues to enjoy mass popularity, including:
 
 The latest version of Distracted boyfriend is a compilation of photos featuring the three models, with the last one showing the women hanging out.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
 ## Part3: I Bet He's Thinking About Other Women
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
 However, subsequent memes feature satirical themes. Here are some of the most popular versions and their popularity.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
@@ -160,3 +181,43 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/unraveling-popularity-myths-the-real-truth-about-instagram-reels-for-2024/"><u>Unraveling Popularity Myths  The Real Truth About Instagram Reels for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-expert-techniques-for-thriving-in-online-meetings-how-to-be-a-zoom-pro/"><u>[Updated] 2024 Approved  Expert Techniques for Thriving in Online Meetings  How to Be a Zoom Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-a-comprehensive-guide-to-focusing-on-your-iphone-camera/"><u>2024 Approved  A Comprehensive Guide to Focusing on Your iPhone Camera</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-kinemasters-blueprint-for-smooth-video-flow-and-continuity/"><u>[Updated] In 2024, Kinemaster's Blueprint for Smooth Video Flow and Continuity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-building-blocks-to-successful-video-editing-on-windows-8-for-2024/"><u>[Updated] Building Blocks to Successful Video Editing on Windows 8 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unraveling-triller-its-distinctive-place-in-the-world-of-online-videos/"><u>[Updated] In 2024, Unraveling Triller  Its Distinctive Place in the World of Online Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-capture-creativity-speedy-drawing-techniques-for-windows-photo-editor/"><u>2024 Approved  Capture Creativity  Speedy Drawing Techniques for Windows Photo Editor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-high-end-hardware-a-showcase-of-excellence/"><u>[Updated] 2024 Approved  High-End Hardware  A Showcase of Excellence</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-expert-guide-to-enhancing-video-subtitles-through-web-apps/"><u>2024 Approved  Expert Guide to Enhancing Video Subtitles Through Web Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unlock-expertise-proven-hidden-window-11-strategies-for-everyday-users/"><u>[New] Unlock Expertise  Proven, Hidden WINDOW 11 Strategies for Everyday Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-tale-of-two-sides-in-the-vr-revolution-for-2024/"><u>The Tale of Two Sides in the VR Revolution for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/winning-strategies-overlay-text-onto-photos-on-windows-mac/"><u>Winning Strategies  Overlay Text Onto Photos on Windows, Mac</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-vivo-y02t-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Vivo Y02T without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-wirecast-review-and-alternatives/"><u>[Updated] Wirecast Review and Alternatives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-choosing-between-gopro-max-and-hero-11-top-cameras-compared/"><u>2024 Approved  Choosing Between GoPro Max and Hero 11  Top Cameras Compared</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-playflixapp-user-feedback-synopsis/"><u>[Updated] In 2024, PlayFlixApp User Feedback Synopsis</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-best-screenshot-and-recorder-software-for-professors/"><u>[Updated] In 2024, Best Screenshot and Recorder Software for Professors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enabling-creativity-with-free-online-and-offline-animation-methods/"><u>[Updated] 2024 Approved  Enabling Creativity with Free Online & Offline Animation Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-innovative-strategies-for-captivating-handc-fb-campaigns/"><u>[Updated] In 2024, Innovative Strategies for Captivating H&C FB Campaigns</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-achieve-professional-grade-aesthetics-top-10-insta-grid-makers/"><u>[Updated] In 2024, Achieve Professional-Grade Aesthetics  Top 10 Insta Grid Makers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-elevate-gameplay-pc-and-macs-top-15-capture-apps-reviewed/"><u>[Updated] 2024 Approved  Elevate Gameplay  PC & Mac's Top 15 Capture Apps Reviewed</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-vivo-y200-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Vivo Y200 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-simple-windows-11-techniques-for-video-editing-for-2024/"><u>[Updated] Simple Windows 11 Techniques for Video Editing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-guide-to-cost-free-text-animations-onlineoff/"><u>[Updated] Guide to Cost-Free Text Animations (Online/Off)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-pathway-to-delicate-audible-reduction-within-lumafusion/"><u>[Updated] In 2024, The Pathway to Delicate Audible Reduction Within Lumafusion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-transforming-passion-into-a-fulfilling-design-career-for-2024/"><u>[New] Transforming Passion Into a Fulfilling Design Career for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-streamlining-content-delivery-the-definitive-youtube-video-upload-guide/"><u>[Updated] In 2024, Streamlining Content Delivery  The Definitive YouTube Video Upload Guide</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-video-stabilization-apps-for-mobile-devices/"><u>Top Video Stabilization Apps for Mobile Devices</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/sound-engineering-excellence-a-comprehensive-approach-to-dialing-down-unwanted-audio-disturbances/"><u>Sound Engineering Excellence A Comprehensive Approach to Dialing Down Unwanted Audio Disturbances</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-enigma-of-missing-video-suggestions-in-your-feed/"><u>[New] The Enigma of Missing Video Suggestions in Your Feed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-expert-techniques-for-streamers-on-macos/"><u>[Updated] In 2024, Expert Techniques for Streamers on macOS</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/one-device-one-storage-transferring-files-smoothly-for-2024/"><u>One Device, One Storage  Transferring Files Smoothly for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-essential-seo-handbook-for-podcast-success/"><u>[Updated] 2024 Approved  The Essential Seo Handbook for Podcast Success</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-remote-comic-genius-app-for-2024/"><u>[Updated] Remote Comic Genius App for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unlocking-xcreative-hub-potential-a-full-guide-review/"><u>[Updated] 2024 Approved  Unlocking XCreative Hub Potential - A Full Guide Review</u></a></li>
+</ul></div>

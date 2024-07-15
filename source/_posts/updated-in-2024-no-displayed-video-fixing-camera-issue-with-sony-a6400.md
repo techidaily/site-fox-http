@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, No Displayed Video  Fixing Camera Issue with Sony A6400\""
-date: 2024-06-22T17:49:35.068Z
-updated: 2024-06-23T17:49:35.068Z
+date: 2024-07-13T22:54:53.660Z
+updated: 2024-07-14T22:54:53.660Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,9 @@ Now that you know the top reasons you can’t see videos on Sony A6400, you migh
 
 **Ensure the Video Format is Supported**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-3.jpg)
 
 Although this reason isn’t as popular as the rest, there are times when the Sony A6400 records videos in a format that’s not supported by your system. When this happens, it could be why you can’t see videos on Sony A6400\. Most of the video formats supported by Mac and Windows include AVI, MOV, FLV, MP4, etc.
@@ -110,6 +113,9 @@ Among the top-quality camcorders in the market, Sony is one of the leading optio
 
 * **Step 5:** Start to customize your Sony A6400 video as you prefer; you can split the video into smaller clips, edit the audio track or add a new one to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-7.jpg)
 
 You can also include editing features like transitions, special video effects, etc. The various features available on Filmora allow you to enhance the value of your video file.
@@ -314,6 +320,9 @@ Among the top-quality camcorders in the market, Sony is one of the leading optio
 
 * **Step 5:** Start to customize your Sony A6400 video as you prefer; you can split the video into smaller clips, edit the audio track or add a new one to the video.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-7.jpg)
 
 You can also include editing features like transitions, special video effects, etc. The various features available on Filmora allow you to enhance the value of your video file.
@@ -349,6 +358,9 @@ Now that you know the top reasons you can’t see videos on Sony A6400, you migh
 
 **Ensure the Video Format is Supported**
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![cannot-see-video-sony-a6400-](https://images.wondershare.com/filmora/article-images/2022/05/cannot-see-video-sony-a6400-3.jpg)
 
 Although this reason isn’t as popular as the rest, there are times when the Sony A6400 records videos in a format that’s not supported by your system. When this happens, it could be why you can’t see videos on Sony A6400\. Most of the video formats supported by Mac and Windows include AVI, MOV, FLV, MP4, etc.
@@ -453,3 +465,55 @@ Knowing why you can’t see videos on Sony A6400 is essential because it allows 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-masterclasses-on-obtaining-visual-elements/"><u>[Updated] In 2024, Masterclasses on Obtaining Visual Elements</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unleashing-potential-a-moto-z2-deep-dive-for-2024/"><u>[New] Unleashing Potential  A Moto Z2 Deep Dive for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/apex-equipment-prime-8k-cameras-unmatched/"><u>Apex Equipment  Prime 8K Cameras Unmatched</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-gaming-collection-best-of-action-adventure-classics-for-2024/"><u>[Updated] Essential Gaming Collection  Best of Action-Adventure Classics for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-optimal-space-stewards-premium-service-review/"><u>[Updated] 2024 Approved  Optimal Space Stewards  Premium Service Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-gif-hacks-for-iphone-users-storage-tips-and-playtime-tricks/"><u>2024 Approved  GIF Hacks for iPhone Users  Storage Tips and Playtime Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-discover-the-hidden-gems-of-photography-on-pexels/"><u>[Updated] In 2024, Discover the Hidden Gems of Photography on Pexels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-untangling-box-mystery-ideas-to-boost-joy-for-2024/"><u>[Updated] Untangling Box Mystery  Ideas to Boost Joy for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-harmonious-journey-from-picture-to-playlist/"><u>[Updated] Harmonious Journey From Picture to Playlist</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-crafting-a-united-front-brand-integrations-on-youtube-platform/"><u>[Updated] In 2024, Crafting a United Front  Brand Integrations on YouTube Platform</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-to-mastering-message-pins-on-discord/"><u>[Updated] 2024 Approved  The Ultimate Guide to Mastering Message Pins on Discord</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-channels-templates-at-no-charge/"><u>[Updated] 2024 Approved  Elevate Your Channels - Templates at No Charge</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-design-innovators-club-exclusive-free-text-psdfree/"><u>[Updated] Design Innovators Club  Exclusive Free Text PSDFree</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-watch-9-free-full-length-christmas-movies-on-youtube/"><u>In 2024, Watch 9 Free Full Length Christmas Movies On Youtube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-iphone-a-revolutionary-approach-to-hdr-imaging/"><u>[Updated] IPhone  A Revolutionary Approach to HDR Imaging</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-most-affordable-gaming-tunes-top-10-lists/"><u>[Updated] The Most Affordable Gaming Tunes  Top 10 Lists</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-brand-storytelling-through-imagery-a-podcast-designers-guide/"><u>In 2024, Brand Storytelling Through Imagery  A Podcast Designer's Guide</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-how-to-download-windows-movie-maker-2012-version/"><u>Updated In 2024, How to Download Windows Movie Maker 2012 Version</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-matched-sd-cards-to-boost-your-gopro-heros-performance/"><u>[Updated] Best Matched SD Cards to Boost Your GoPro HERO's Performance</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-how-to-make-a-powerpoint-looping-slideshow-for-2024/"><u>New How to Make a PowerPoint Looping Slideshow for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-a-step-by-step-guide-to-announcing-a-charity-drive-on-fb-for-2024/"><u>[Updated] A Step-by-Step Guide to Announcing a Charity Drive on FB for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-non-profit-gaming-soundtrack-sources-for-2024/"><u>[Updated] Non-Profit Gaming Soundtrack Sources for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-art-of-perfect-video-quality-in-zoom-sessions/"><u>The Art of Perfect Video Quality in Zoom Sessions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-expert-iphone-macro-photography-tips-and-tricks/"><u>2024 Approved  Expert iPhone Macro Photography Tips and Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-diving-deep-into-quality-top-cameras-reviewed/"><u>[Updated] 2024 Approved  Diving Deep Into Quality  Top Cameras Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-advanced-techniques-in-developing-compelling-customer-success-narratives/"><u>[Updated] In 2024, Advanced Techniques in Developing Compelling Customer Success Narratives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unparalleled-top-10-free-image-archiving-hubs-pics-safe-and-sound/"><u>[Updated] 2024 Approved  Unparalleled Top 10 Free Image Archiving Hubs, Pics Safe and Sound</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/preeminent-audio-editing-tools-compilation-for-2024/"><u>Preeminent Audio Editing Tools Compilation for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-some-outdated-hardware-drivers-with-windows-device-manager-on-windows-11-and-10-by-drivereasy-guide/"><u>Identify some outdated hardware drivers with Windows Device Manager on Windows 11 & 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-editorsuite-showcase-video-editor-features-and-reviews-for-2024/"><u>[Updated] EditorSuite Showcase – Video Editor Features & Reviews for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-famed-stop-motion-movies-15-of-all-time-for-2024/"><u>[Updated] Famed Stop-Motion Movies #15 of All Time for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-tecno-spark-10c-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Tecno Spark 10C? Here is How | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-iconic-2-written-by-jake-simonson-date-march-14-2023/"><u>2024 Approved  Iconic 2 Written By  Jake Simonson | Date  March 14, 2023</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-qanda-beyond-basic-usage/"><u>[Updated] Instagram Q&A  Beyond Basic Usage</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-standout-vr-film-highlights-to-discover/"><u>2024 Approved  Standout VR Film Highlights to Discover</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-windows-10-apps-and-games-to-explore-and-download/"><u>[Updated] Windows 10 Apps and Games to Explore and Download</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-the-sound-of-success-a-beginners-guide-to-youtube-audio-downloads/"><u>New The Sound of Success A Beginners Guide to YouTube Audio Downloads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/whatsapp-voice-dialogues-explained-for-2024/"><u>WhatsApp Voice Dialogues Explained for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-drone-racing-all-you-need-to-know-and-5-best-fpv-racing-drones-for-2024/"><u>[Updated] Drone Racing  All You Need to Know and 5 Best FPV Racing Drones for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-iphone-photo-angles-flip-and-tilt-with-skill-for-2024/"><u>[Updated] Mastering iPhone Photo Angles  Flip & Tilt with Skill for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ticklishtunes-your-guide-to-amusing-ringtone-downloads/"><u>2024 Approved  TicklishTunes  Your Guide to Amusing Ringtone Downloads</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-techniques-for-streamlining-video-addition-to-youtube-playlists/"><u>[Updated] Techniques for Streamlining Video Addition to YouTube Playlists</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-a-song-of-ice-and-fire-top-sites-to-snatch-game-of-thrones-ringtones-for-2024/"><u>[Updated] A Song of Ice and Fire  Top Sites to Snatch Game of Thrones Ringtones for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-faster-more-effective-vocal-alterations-for-pubg-players/"><u>2024 Approved  Unlocking Faster, More Effective Vocal Alterations for PUBG Players</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-scripting-temporal-disruption-scenes/"><u>[Updated] In 2024, Scripting Temporal Disruption Scenes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-core-ideas-behind-online-story-crafting/"><u>[Updated] 2024 Approved  Core Ideas Behind Online Story Crafting</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-visual-storytelling-instagrams-photo-integration/"><u>[New] Visual Storytelling  Instagram's Photo Integration</u></a></li>
+</ul></div>

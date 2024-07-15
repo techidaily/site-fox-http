@@ -1,7 +1,7 @@
 ---
 title: "\"Wintry Wonderland  Olympic Moments From Beijing 2022 for 2024\""
-date: 2024-06-22T18:20:33.950Z
-updated: 2024-06-23T18:20:33.950Z
+date: 2024-07-13T23:28:27.842Z
+updated: 2024-07-14T23:28:27.842Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,9 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
@@ -64,6 +67,9 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
 Yan Wengang becomes the first medalist from China in a sliding sport. In a four-run total time of 4:01.77, he secured himself a bronze medal. The gold and silver went to Christopher Grotheer and Alex Jung of Germany. With the victory of Wengwang, there was a good feat for China as the nation sent its first skeleton athlete to the Olympics only 4 years ago.
@@ -84,10 +90,16 @@ With the triumph, she joins Shaun White to be the only snowboarders to successfu
 
 We are all aware of the tensions between Ukraine and Russia are at their peak and there are many experts who believe the countries are on the verge of declaring war. Even though The Winter Olympics should have ideally been an apolitical event, Ukrainian skeleton athlete Vladyslav Heraskevych flashed a sign that read “No War in Ukraine” to spark a political controversy.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
@@ -122,3 +134,67 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-xs-max-passcode-without-computer-by-drfone-ios/"><u>How to Unlock Apple iPhone XS Max Passcode without Computer?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creating-impressive-video-tracks-with-a-newbie-mac-user-for-2024/"><u>Creating Impressive Video Tracks with a Newbie Mac User for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-7-plus-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 7 Plus To Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-kickstart-your-twitch-streaming-journey/"><u>In 2024, Kickstart Your Twitch Streaming Journey</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ion-air-pro-3-camera-analysis-gearing-up-for-great-shots/"><u>2024 Approved  ION Air Pro 3 Camera Analysis - Gearing Up for Great Shots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-in-depth-methodology-for-adding-srt-in-mp4-files/"><u>2024 Approved  In-Depth Methodology for Adding SRT in MP4 Files</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pinnacle-performance-discover-the-top-8-webcams-today/"><u>2024 Approved  Pinnacle Performance  Discover the Top 8 Webcams Today</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfect-text-magic-for-striking-video-scenes/"><u>2024 Approved  Perfect Text Magic for Striking Video Scenes</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-activate-superior-control-over-windows-11-task-management/"><u>How to Activate Superior Control Over Windows 11 Task Management</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/hottest-hooks-in-the-crowd-ultimate-discord-nicknames-guide/"><u>Hottest Hooks in the Crowd  Ultimate Discord Nicknames Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mac-graphics-revolution-top-10-freeware-drawings/"><u>2024 Approved  Mac Graphics Revolution  Top 10 Freeware Drawings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pixelpioneer-8-version-visual-conjurer/"><u>2024 Approved  PixelPioneer  8-Version Visual Conjurer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-photoshop-basics-for-beginners-10-must-know-tricks/"><u>2024 Approved  Photoshop Basics for Beginners  10 Must-Know Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-demystifying-complexities-a-guide-to-understanding-slug-lines/"><u>2024 Approved  Demystifying Complexities  A Guide to Understanding Slug Lines</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-memetic-masterpieces-behind-the-photo/"><u>[Updated] Memetic Masterpieces  Behind the Photo</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-top-rated-mac-auto-sound-combiner/"><u>Updated In 2024, Top-Rated Mac Auto Sound Combiner</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-comprehensive-guide-to-simplified-hdr-techniques/"><u>2024 Approved  Comprehensive Guide to Simplified HDR Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-navigating-the-world-of-instagram-and-podcast-sharing/"><u>2024 Approved  Navigating the World of Instagram & Podcast Sharing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-cinematic-vibes-photos-with-a-soundtrack-twist/"><u>2024 Approved  Cinematic Vibes  Photos with a Soundtrack Twist</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-stunning-visuals-how-to-master-use-of-luts-in-photoshop-suite/"><u>2024 Approved  Crafting Stunning Visuals  How to Master Use of LUTs in Photoshop Suite</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-iconic-imagery-transforming-audio-into-visual-podcast-identity/"><u>2024 Approved  Iconic Imagery  Transforming Audio Into Visual Podcast Identity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-the-best-practices-for-streaming-archive-podcasts/"><u>2024 Approved  Discover the Best Practices for Streaming Archive Podcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-androids-latest-advancements-for-immersive-video-viewing/"><u>2024 Approved  Android's Latest Advancements for Immersive Video Viewing</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/in-2024-youtube-kiddie-corner-10-year-old-ryan-hits-millionaire-mark/"><u>In 2024, YouTube Kiddie Corner  10-Year-Old Ryan Hits Millionaire Mark</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-clarity-crusade-enhancing-video-in-zoom-meetings/"><u>2024 Approved  Clarity Crusade  Enhancing Video in Zoom Meetings</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-get-the-best-price-official-guide-to-filmora-discount-codes-for-2024/"><u>New Get the Best Price Official Guide to Filmora Discount Codes for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-the-art-of-phantoms-time-recapture/"><u>2024 Approved  Mastering the Art of Phantom's Time Recapture</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discovering-the-mastery-in-lgs-ultrafine-4k-visual-display/"><u>2024 Approved  Discovering the Mastery in LG's UltraFine 4K Visual Display</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-honored-proposals-leading-ringtone-creators-iphone/"><u>2024 Approved  Honored Proposals  Leading Ringtone Creators iPhone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-clipcomposers-evaluation-full-breakdown-of-video-editing-software/"><u>2024 Approved  ClipComposer's Evaluation – Full Breakdown of Video Editing Software</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-premier-auditory-refining-software-for-the-year-2024-augment-your-digital-presentations/"><u>New Premier Auditory Refining Software for the Year 2024 Augment Your Digital Presentations</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-action-camera-showdown-2022-gopro-vs-garmin-virb-face-off/"><u>[New] Action Camera Showdown  2022 GoPro Vs. Garmin VIRB Face-Off</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-galactic-gateway-top-10-sci-fi-movies-that-transcend-reality/"><u>2024 Approved  Galactic Gateway  Top 10 Sci-Fi Movies that Transcend Reality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-harness-the-potential-of-obs-studio-by-mastering-lut-application-techniques/"><u>2024 Approved  Harness the Potential of OBS Studio by Mastering LUT Application Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-influencing-cultures-through-memetic-expression/"><u>[New] Influencing Cultures Through Memetic Expression</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfect-action-cameras-for-mountain-thrills/"><u>2024 Approved  Perfect Action Cameras for Mountain Thrills</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-itel-s23-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Itel S23 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-expert-iphone-software-roundup-selecting-ideal-watermark-tools/"><u>2024 Approved  Expert iPhone Software Roundup  Selecting Ideal Watermark Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-your-ideal-drawing-tool-chromebooks-finest-list/"><u>2024 Approved  Discover Your Ideal Drawing Tool  Chromebook's Finest List</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/focused-footage-freedom-techniques-for-audio-eradication-across-various-video-formats-mp4-mkv-avi-mov-wmv-for-2024/"><u>Focused Footage Freedom Techniques for Audio Eradication Across Various Video Formats (MP4, MKV, AVI, MOV, WMV) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-anonymous-streaming-on-instagram-your-ultimate-guide-to-go-incognito/"><u>2024 Approved  Anonymous Streaming on Instagram  Your Ultimate Guide to Go Incognito</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-itel-p55-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-magixs-acid-pro-reviewed-comparing-similar-software/"><u>2024 Approved  Magix's ACID Pro Reviewed  Comparing Similar Software</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-itel-a60s-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Itel A60s online without jailbreak</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/top-edge-video-editing-programs-for-instagram-on-android-for-2024/"><u>Top Edge Video Editing Programs for Instagram on Android for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-nokia-105-classic-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Nokia 105 Classic Devices | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-lava-yuva-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/securing-amd-radeon-r9-performance-on-win11/"><u>Securing AMD Radeon R9 Performance on Win11</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-realme-note-50-frp-by-drfone-android/"><u>Full Guide to Bypass Realme Note 50 FRP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-covert-concepts-in-composing-captivating-images/"><u>2024 Approved  Covert Concepts in Composing Captivating Images</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-syncing-airpods-with-windows-or-mac-for-seamless-audio-experience/"><u>2024 Approved Syncing AirPods with Windows or Mac for Seamless Audio Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-detailed-review-the-ultimate-5-low-frame-rate-gear/"><u>2024 Approved  Detailed Review  The Ultimate 5 Low Frame Rate Gear</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-videography-insights-on-youtube-studio-editor-for-2024/"><u>Elevate Your Videography  Insights on YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-samsung-galaxy-m14-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Samsung Galaxy M14 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-the-guardian-of-gifs-saving-memorable-moments-from-twitter/"><u>[Updated] In 2024, The Guardian of GIFs  Saving Memorable Moments From Twitter</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-convincing-movie-markers/"><u>2024 Approved  Crafting Convincing Movie Markers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-breaking-down-the-mechanics-of-meme-dominance/"><u>2024 Approved  Breaking Down the Mechanics of Meme Dominance</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-innovations-and-standouts-10-premier-podcast-hosting-providers-for-2024/"><u>Updated Innovations and Standouts 10 Premier Podcast Hosting Providers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-bargain-cameras-that-dont-skimp-on-quality/"><u>2024 Approved  Bargain Cameras That Don't Skimp On Quality</u></a></li>
+</ul></div>

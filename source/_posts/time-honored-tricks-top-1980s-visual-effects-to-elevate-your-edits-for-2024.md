@@ -1,7 +1,7 @@
 ---
 title: "\"Time-Honored Tricks  Top 1980S Visual Effects to Elevate Your Edits for 2024\""
-date: 2024-06-22T18:08:24.924Z
-updated: 2024-06-23T18:08:24.924Z
+date: 2024-07-13T23:15:25.784Z
+updated: 2024-07-14T23:15:25.784Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,9 @@ The number of **80s VHS filter** effects on the web are not limited. You can fin
 
 Do you want to add a funky touch to the video? Nothing to worry about because [VHS Transition](https://motionarray.com/after-effects-templates/vhs-transitions-125214/) got you covered. It contains approximately 16 funky transitions, specifically themed on VHS. You don't have to do everything, as you just need to drop the effect in the video and customize it.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![vhs transition](https://images.wondershare.com/filmora/article-images/2023/vhs-transition.jpg)
 
 ### 2\. VHS Glitches Music Video
@@ -126,6 +129,9 @@ Many videographers use 80 VHS filters to create smooth distortion in videos. Luc
 
 ![tv distort loop pack](https://images.wondershare.com/filmora/article-images/2023/tv-distort-loop-pack.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Wondershare Filmora: Using VHS Effects to Create Videos
 
 Now that you are aware of the VHS effects, you must be looking for a video editor to apply this. The industry-grade video editor through which you can apply 80s VHS effects in videos is [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). One of the best things about Filmora is it comprehends more than 100 VHS effects for the ease of the users.
@@ -200,6 +206,9 @@ Do you want to add a funky touch to the video? Nothing to worry about because [V
 
 ![vhs toolkit for after effects](https://images.wondershare.com/filmora/article-images/2023/vhs-toolkit-for-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Retro Rider
 
 VHS never forgets any type of video and offers - [Retro Rider](https://elements.envato.com/retro-rider-VWECF83?irgwc=1&clickid=VRbwqXTAKxyNR3CzNTQzc24XUkFxRiTFUS4M0k0&iradid=298927&utm%5Fcampaign=elements%5Faf%5F312283&iradtype=ONLINE%5FTRACKING%5FLINK&irmptype=mediapartner&utm%5Fmedium=affiliate&utm%5Fsource=impact%5Fradius&mp=justcreative) this intuitive effect for night riders. Along with adding the stunning effect, it can also replace the text and colors in videos. It also integrates numerous plugins which can control the visuality of effects.
@@ -210,6 +219,9 @@ VHS never forgets any type of video and offers - [Retro Rider](https://elements.
 
 For old-school kids, [Glitch Opener VHS](https://elements.envato.com/glitch-opener-vhs-NJV452C?%5Fga=2.265245839.1638816870.1686914298-229458477.1686810746) high-quality effect can add amazing effects to videos and can refresh your memories. There is no need to use external plugins to get creative with this effect. The distortion of this effect is so smooth that you will not face the need to add other elements in videos.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![glitch opener vhs](https://images.wondershare.com/filmora/article-images/2023/glitch-opener-vhs.jpg)
 
 ### 7\. VHS Horror Trailers and Titles
@@ -321,3 +333,49 @@ To apply the **80s VHS effects**, you can take assistance from Wondershare Filmo
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/2024-approved-maximizing-viewing-experience-in-android/"><u>2024 Approved  Maximizing Viewing Experience in Android</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-learn-to-activate-picture-in-picture-viewing-on-iphones-youtube-app/"><u>In 2024, Learn to Activate Picture-in-Picture Viewing on iPhone's Youtube App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-10-free-premium-quality-photo-collage-ios-apps/"><u>[New] 2024 Approved  Top 10 Free, Premium Quality Photo Collage iOS Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-uncovering-the-value-of-video-selfies-on-insta/"><u>[New] In 2024, Uncovering the Value of Video Selfies on Insta</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-access-an-array-of-personalized-ending-sounds-for-videos/"><u>[New] Access an Array of Personalized Ending Sounds for Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/building-your-own-studiopc-an-all-inclusive-guide-for-4k-editors/"><u>Building Your Own StudioPC  An All-Inclusive Guide for 4K Editors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-ios-video-experience-the-10-most-excellent-players/"><u>[New] 2024 Approved  IOS Video Experience  The 10 Most Excellent Players</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-infinix-zero-5g-2023-turbo-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Infinix Zero 5G 2023 Turbo Devices</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/dominating-the-sky-with-heavylift-drones/"><u>Dominating the Sky with Heavylift Drones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/acquiring-fcp-for-zip-legal-strategies-explained/"><u>Acquiring FCP for Zip  Legal Strategies Explained</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-top-free-flv-video-editors-for-windows-and-mac/"><u>In 2024, Top Free FLV Video Editors for Windows and Mac</u></a></li>
+<li><a href="https://fox-http.techidaily.com/15-best-stop-motion-films-of-all-time/"><u>15 Best Stop Motion Films of All Time</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/in-2024-mastering-on-screen-captions-in-tiktok-videos/"><u>In 2024, Mastering On-Screen Captions in TikTok Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-speedy-strategies-storing-slideshow-scripts/"><u>2024 Approved  Speedy Strategies  Storing Slideshow Scripts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-streamlining-video-editing-in-obs-with-luts/"><u>[New] 2024 Approved  Streamlining Video Editing in OBS With LUTs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/maximize-your-setup-with-best-8-5k-tvs/"><u>Maximize Your Setup with Best 8 5K Tvs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-sculpting-soundscapes-the-fading-trick-for-2024/"><u>[Updated] Sculpting Soundscapes  The Fading Trick for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-evaluating-the-updated-movavi-video-editor/"><u>[New] Evaluating the Updated Movavi Video Editor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-must-see-vr-movies-for-film-enthusiasts/"><u>[Updated] Must-See VR Movies for Film Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-crucial-windows-10-features-to-boost-productivity/"><u>[New] 2024 Approved  Crucial Windows 10 Features to Boost Productivity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-virtual-meetings-expert-tips-for-using-zoom-win10/"><u>2024 Approved  Mastering Virtual Meetings  Expert Tips for Using Zoom (Win10)</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-recycle-and-relish-continuous-playback-of-youtube-on-tv/"><u>2024 Approved  Recycle and Relish  Continuous Playback of YouTube on TV</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-xiaomi-14-pro-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Xiaomi 14 Pro FRP</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-easily-create-compelling-fb-video-ads-with-no-cost-kit/"><u>[Updated] Easily Create Compelling FB Video Ads with No-Cost Kit</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-ideal-tools-for-creating-animation-with-models/"><u>In 2024, Ideal Tools for Creating Animation with Models</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-packed-shoots-creating-dynamic-video-stories-on-youtube/"><u>Action-Packed Shoots  Creating Dynamic Video Stories on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-boost-your-workflow-with-these-8-best-facebook-timers-for-2024/"><u>[New] Boost Your Workflow with These 8 Best Facebook Timers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-2023-no-cost-live-stream-tools-cross-platform-edition/"><u>[New] 2024 Approved  Top 2023 No-Cost Live Stream Tools  Cross-Platform Edition</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-software-gamers-streaming-companions-for-2024/"><u>Exclusive Software  Gamers' Streaming Companions for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-fashionable-filters-for-every-occasion-our-top-20-snap-lenses-guide/"><u>[New] In 2024, Fashionable Filters for Every Occasion  Our Top 20 Snap Lenses Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-ranking-macs-best-rated-sniping-programs-for-2024/"><u>[Updated] Ranking Mac's Best-Rated Sniping Programs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/learning-vector-artistry-an-overview-for-starters-and-software-picks/"><u>Learning Vector Artistry  An Overview for Starters & Software Picks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-twitch-to-youtube-master-stream-sharing-techniques-for-2024/"><u>[Updated] From Twitch to YouTube  Master Stream Sharing Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-action-cam-battle-hero-4-against-hero-5/"><u>[New] Action Cam Battle  Hero 4 Against Hero 5</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-optimization-top-techniques-for-businesses-and-brands/"><u>[New] Instagram Optimization  Top Techniques for Businesses and Brands</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-2023s-finest-zero-cost-online-broadcast-software-roundup/"><u>2024 Approved  2023'S Finest Zero-Cost Online Broadcast Software Roundup</u></a></li>
+<li><a href="https://fox-http.techidaily.com/drone-purchasing-made-easy-a-step-by-step-buyers-guide/"><u>Drone Purchasing Made Easy  A Step-by-Step Buyer’s Guide</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-camtasia-vs-final-cut-pro/"><u>New In 2024, Camtasia Vs. Final Cut Pro</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-quick-guide-to-styling-chats-on-discord/"><u>[New] 2024 Approved  Quick Guide to Styling Chats on Discord</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-step-by-step-guide-for-updating-and-changing-social-video-covers/"><u>[Updated] 2024 Approved  Step-by-Step Guide for Updating and Changing Social Video Covers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-the-potential-of-zoom-meetings/"><u>2024 Approved  Unlocking the Potential of Zoom Meetings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/master-photographers-tale-assembly-tool-for-2024/"><u>Master Photographer's Tale Assembly Tool for 2024</u></a></li>
+</ul></div>

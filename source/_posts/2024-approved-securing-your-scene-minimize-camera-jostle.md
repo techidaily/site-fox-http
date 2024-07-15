@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Securing Your Scene  Minimize Camera Jostle\""
-date: 2024-07-07T16:11:20.071Z
-updated: 2024-07-08T16:11:20.071Z
+date: 2024-07-14T00:04:34.242Z
+updated: 2024-07-15T00:04:34.242Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,9 @@ Camera shake is the camera's movement during the exposure of a photograph. This 
 
 Anyone who takes pictures seriously will eventually face the problem of camera shake. This happens when the camera shakes during exposure due to the photographer pushing the shutter button or a shaky hand. This can result in blurry photos, but there are several ways to avoid it in most situations. Camera shake is one of the most common problems photographers and videographers face and is one of the easiest to fix.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### In Videos
 
 Videos are made up of individual frames, each capturing one moment in time. When your video contains a scene that moves from left to right, the frames that make up that scene move from left to right as well. If there's any movement in the frame except for horizontal movements, such as vertical movement caused by camera shake, you'll see it in every frame of your video.
@@ -112,6 +115,9 @@ Camera shake is the camera's movement during the exposure of a photograph. This 
 
 Anyone who takes pictures seriously will eventually face the problem of camera shake. This happens when the camera shakes during exposure due to the photographer pushing the shutter button or a shaky hand. This can result in blurry photos, but there are several ways to avoid it in most situations. Camera shake is one of the most common problems photographers and videographers face and is one of the easiest to fix.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### In Videos
 
 Videos are made up of individual frames, each capturing one moment in time. When your video contains a scene that moves from left to right, the frames that make up that scene move from left to right as well. If there's any movement in the frame except for horizontal movements, such as vertical movement caused by camera shake, you'll see it in every frame of your video.
@@ -144,6 +150,9 @@ Many people already know about camera shake when it comes to photography. If you
 
 Like many filmmaking techniques, you're going to want to shoot plenty of footage and then pick the perfect clips later. However, when it comes to camera shake, you're better off overdoing it with your takes than underdoing it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![is camera shake a bad thing in video](https://images.wondershare.com/filmora/article-images/2022/04/camera-shake-3.jpg)
 
 A great way to add energy and intensity to your shots is camera movement. Whether you are walking with your camera or running, a bit of shake in your footage can give a sense of excitement and urgency to your shots.
@@ -182,6 +191,9 @@ Anyone who takes pictures seriously will eventually face the problem of camera s
 
 Videos are made up of individual frames, each capturing one moment in time. When your video contains a scene that moves from left to right, the frames that make up that scene move from left to right as well. If there's any movement in the frame except for horizontal movements, such as vertical movement caused by camera shake, you'll see it in every frame of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Is Camera Shake A Bad Thing?
 
 So, is camera shake a bad thing? Yes, most of the time, but there are times when you can actually use it to your advantage. For example, in a long exposure shot, you may want to introduce some camera shake on purpose to blur moving objects and create a creative effect.
@@ -313,3 +325,39 @@ That's why awareness can go a long way towards helping you catch potential probl
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/2024-approved-understanding-the-impact-of-nikon-d500s-4k-output/"><u>2024 Approved  Understanding the Impact of Nikon D500's 4K Output</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-10-strategies-for-impactful-spotify-ads/"><u>2024 Approved  Top 10 Strategies for Impactful Spotify Ads</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unveiling-the-top-10-stealthy-story-audiences-for-2024/"><u>Unveiling the Top 10 Stealthy Story Audiences for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-tips-on-how-skip-edgenuity-videos/"><u>2024 Approved  Tips on How Skip Edgenuity Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-best-youtube-thumbnail-fonts-to-make-your-video-stunning-for-2024/"><u>[New] 20 Best YouTube Thumbnail Fonts to Make Your Video Stunning for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamlined-webp-to-jpg-conversion-methods/"><u>2024 Approved  Streamlined WebP to JPG Conversion Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-realistic-movement-rendering-for-images/"><u>2024 Approved  Realistic Movement Rendering for Images</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-what-is-ai-background-generator-for-2024/"><u>Updated What Is AI Background Generator for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-soundstage-excellence-critical-interface-tips-for-podcasters/"><u>2024 Approved  Soundstage Excellence  Critical Interface Tips for Podcasters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-uncover-top-affordable-video-enhancement-platforms-a-comprehensive-guide/"><u>2024 Approved  Uncover Top Affordable Video Enhancement Platforms - A Comprehensive Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-essential-guide-to-angular-video-compilation-android/"><u>2024 Approved  The Essential Guide to Angular Video Compilation (Android)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pivotal-user-feedback-a-look-at-vllo/"><u>2024 Approved  Pivotal User Feedback  A Look at VLLO</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unleash-potential-transforming-vhs-photos-through-technology/"><u>2024 Approved  Unleash Potential  Transforming VHS Photos Through Technology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-prime-online-destinations-featuring-3d-art-and-metallic-text/"><u>2024 Approved  Prime Online Destinations Featuring 3D Art & Metallic Text</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-stepwise-approach-to-srt-file-creation-brilliance/"><u>2024 Approved  Stepwise Approach to SRT File Creation Brilliance</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-create-epic-gaming-intros-top-10-tools-for-windows-and-mac-free-and-paid/"><u>New Create Epic Gaming Intros Top 10 Tools for Windows and Mac Free & Paid</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unleash-your-creativity-effective-techniques-for-crafting-podcast-scripts/"><u>2024 Approved  Unleash Your Creativity  Effective Techniques for Crafting Podcast Scripts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-professional-360-streaming-tech-reviews/"><u>2024 Approved  Professional 360° Streaming Tech Reviews</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-from-raw-to-richness-creating-and-merging-impressive-hdr-photos/"><u>[Updated] From Raw to Richness  Creating & Merging Impressive HDR Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sync-soundtracks-smoothly-into-inshots-ecosystem/"><u>2024 Approved  Sync Soundtracks Smoothly Into InShot's Ecosystem</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-boosting-video-quality-the-best-cameras-for-vloggers-dreams/"><u>[New] 2024 Approved  Boosting Video Quality  The Best Cameras for Vloggers' Dreams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-right-to-appeal-removed-videos-from-facebooks-domain/"><u>[Updated] 2024 Approved  The Right to Appeal  Removed Videos From Facebook's Domain</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-prime-traffic-magnet-design/"><u>2024 Approved  Prime Traffic Magnet Design</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-elevate-social-media-impact-mastering-snapchats-boomerang-art/"><u>[New] In 2024, Elevate Social Media Impact  Mastering Snapchat's Boomerang Art</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-understanding-the-power-shift-from-sdr-to-hdr-in-media/"><u>2024 Approved  Understanding the Power Shift From SDR to HDR in Media</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-content-creation-and-currency-maximizing-youtube-wealth/"><u>2024 Approved  Content Creation & Currency  Maximizing YouTube Wealth</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-efficiently-recording-your-xbox-adventures/"><u>In 2024, Efficiently Recording Your Xbox Adventures</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamlining-online-meetings-zoom-for-win10-for-2024/"><u>Streamlining Online Meetings  Zoom for WIN10 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-proart-pa-329q-review-the-ultimate-4k-workstation-display/"><u>2024 Approved  ProArt PA 329Q Review  The Ultimate 4K Workstation Display</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-routine-for-large-files-journey-from-iphones-to-macs/"><u>2024 Approved  The Ultimate Routine for Large Files' Journey From iPhones to Macs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-vivo-v29-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Vivo V29 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-snapseed-starters-handbook-for-photo-editing/"><u>2024 Approved  The Snapseed Starter's Handbook for Photo Editing</u></a></li>
+</ul></div>

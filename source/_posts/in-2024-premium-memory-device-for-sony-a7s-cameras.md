@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Premium Memory Device for Sony A7S Cameras"
-date: 2024-06-22T17:57:42.153Z
-updated: 2024-06-23T17:57:42.153Z
+date: 2024-07-13T23:03:42.098Z
+updated: 2024-07-14T23:03:42.098Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 
 # Best Memory Card for Sony A7S II
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -30,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -67,6 +73,9 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -105,6 +114,9 @@ thumbnail: https://thmb.techidaily.com/733caf2abbd8fb995bf457552e00ba90aafeaec9c
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -131,3 +143,50 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/elevate-your-creations-to-crypto-world-the-best-generators-reviewed/"><u>Elevate Your Creations to Crypto World - The Best Generators Reviewed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-rev-up-creativity-instagrams-best-inspirational-snapshots/"><u>[Updated] In 2024, Rev Up Creativity  Instagram's Best Inspirational Snapshots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-sd-compatibility-with-sony-a7s-ii-for-2024/"><u>[New] Ultimate SD Compatibility with Sony A7S II for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-comedic-counterpoints-funny-song-flips/"><u>In 2024, Comedic Counterpoints  Funny Song Flips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-achieving-youtube-financial-goals-via-viewer-statistics/"><u>[New] In 2024, Achieving Youtube Financial Goals via Viewer Statistics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-beginners-overview-of-animation-trends/"><u>[Updated] 2024 Approved  Beginner's Overview of Animation Trends</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-the-technical-marvels-of-dji-inspire-2/"><u>In 2024, Unveiling the Technical Marvels of DJI Inspire 2</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lost-in-translation-por-que-and-por-que-explained/"><u>Lost in Translation? Por Que and Por Qué Explained</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-apple-iphone-14-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your Apple iPhone 14</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/joining-the-world-of-live-broadcasts-a-roku-primer/"><u>Joining the World of Live Broadcasts  A Roku Primer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/ultimate-virtual-reality-controller-guide/"><u>Ultimate Virtual Reality Controller Guide</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-from-your-iphone-se-2022-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status From Your iPhone SE (2022)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-combining-chords-and-pictures-in-the-cloud/"><u>[New] Combining Chords & Pictures in the Cloud</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-assessing-your-needs-selecting-the-optimal-4k-camera-lens/"><u>[New] 2024 Approved  Assessing Your Needs  Selecting the Optimal 4K Camera Lens</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-quest-for-the-ultimate-virtual-world-starts-here-htc-vive-for-2024/"><u>[New] The Quest for the Ultimate Virtual World Starts Here  HTC Vive for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elevating-your-viewing-experience-with-benq-sw320-monitor-for-2024/"><u>[New] Elevating Your Viewing Experience with BenQ SW320 Monitor for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-invisible-hand-decoding-instagrams-update-effects/"><u>2024 Approved  The Invisible Hand  Decoding Instagram’s Update Effects</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/unrivaled-recording-experience-from-leading-apps/"><u>Unrivaled Recording Experience From Leading Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-maintaining-softness-fading-effects-in-fl-studio-mixes/"><u>[New] In 2024, Maintaining Softness  Fading Effects in FL Studio Mixes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-essential-techniques-for-musical-tiktok-creation/"><u>[New] Essential Techniques for Musical TikTok Creation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-engaging-stories-through-customized-instagram-quests/"><u>[Updated] 2024 Approved  Engaging Stories Through Customized Instagram Quests</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-understanding-user-engagement-a-look-at-triller-and-tiktok-max-156-chars-for-2024/"><u>[Updated] Understanding User Engagement  A Look at Triller & TikTok (Max 156 Chars) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-ricoh-theta-s-complete-review/"><u>[New] 2024 Approved  Ricoh Theta S Complete Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/audioadvisor-dacast-and-what-it-should-be/"><u>AudioAdvisor  DaCast & What It Should Be</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-up-your-auditory-game-how-to-add-ringtones-and-sounds-that-stand-out-on-android/"><u>2024 Approved  Step Up Your Auditory Game  How to Add Ringtones & Sounds that Stand Out on Android</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-quickest-windowed-image-analyzer/"><u>In 2024, Quickest Windowed Image Analyzer</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-megadron-mastery-industrys-top-heavy-loaders/"><u>[Updated] Megadron Mastery  Industry's Top Heavy Loaders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-secrets-to-viral-meme-innovation-for-2024/"><u>[New] Secrets to Viral Meme Innovation for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premium-applications-for-animating-3d-scenes/"><u>Premium Applications for Animating 3D Scenes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-definitive-iphone-hdr-technique/"><u>[New] 2024 Approved  The Definitive iPhone HDR Technique</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-motorola-edge-40-pro-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-go-live-on-youtube-from-a-phone-no-need-for-huge-fans-yet-for-2024/"><u>[New] Go Live on YouTube From a Phone, No Need for Huge Fans Yet for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-depth-exploration-of-morphvox-for-precise-sound-alteration-for-2024/"><u>[New] In-Depth Exploration of MorphVOX for Precise Sound Alteration for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-incorporating-slug-lines-into-headlines-and-titles/"><u>[New] In 2024, Incorporating Slug Lines Into Headlines & Titles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/boost-productivity-premier-tools-for-unfollowing-tweets-for-2024/"><u>Boost Productivity  Premier Tools for Unfollowing Tweets for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transforming-everyday-moments-with-ioss-complete-life-story/"><u>Transforming Everyday Moments with iOS's Complete Life Story</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-integration-for-the-tech-savvy-mac-user/"><u>[Updated] In 2024, Snapchat Integration for the Tech-Savvy Mac User</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-who-leads-in-video-content-delivery-twitch-vs-youtube/"><u>[New] In 2024, Who Leads in Video Content Delivery? Twitch vs YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-innovative-approach-for-rotating-and-interlacing-multiple-videographies-android/"><u>[New] 2024 Approved  Innovative Approach for Rotating & Interlacing Multiple Videographies (Android)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-android-and-iphone-apps-for-free-photo-overlay-artistry-for-2024/"><u>Top Android & iPhone Apps for FREE Photo Overlay Artistry for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/affordable-action-camera-choices-top-6-under-100-for-2024/"><u>Affordable ACTION Camera Choices – Top 6 Under $100 for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-galaxy-s24plus-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Galaxy S24+</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-music-for-imovie/"><u>2024 Approved  Music for iMovie</u></a></li>
+</ul></div>

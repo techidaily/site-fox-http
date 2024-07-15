@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Power of Free  Enhancing Your OBS Studio Projects Using LUTs\""
-date: 2024-07-07T15:39:39.090Z
-updated: 2024-07-08T15:39:39.090Z
+date: 2024-07-13T23:58:54.701Z
+updated: 2024-07-14T23:58:54.701Z
 tags: 
   - screen-recording
   - ai video
@@ -58,10 +58,16 @@ For more easy-to-use effects and filters to make your video cinematic, have a tr
 
 [Apply Luts on Video](https://tools.techidaily.com/wondershare/filmora/download/) [Apply Luts on Video](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -110,6 +116,18 @@ This package contains 76 ready-to-use LUT filter files for OBS. Use these filter
 
 OBS forums
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Video Mark free LUTs
 
 You'll get 18 cinematic LUTs with this Video Mark package. This filter set focuses more on a film effect. We suggest watching the accompanying demo film, which walks you through some of the LUTs included in this package and how to use them. Because this is an older video, it will use an older version of OBS, but the method should be the same.
@@ -164,6 +182,14 @@ How to use LUTs in Lumafuison
 
 1. Go to Effect Filters. Then click "+" located on the bottom left, click apply LUT, then give your LUT a name in the Filters panel.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to use obs Lut](https://images.wondershare.com/filmora/article-images/2022/05/obs-luts-2.png)
 
 Add Luts to OBS
@@ -245,3 +271,43 @@ As a result, adding professionalism to your talents is now even easier and more 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-unrivaled-video-tech-for-apple-phones/"><u>[New] In 2024, Unrivaled Video Tech for Apple Phones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-beginning-zoom-video-calls-on-android-devices/"><u>[New] Beginning Zoom Video Calls on Android Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-strategies-to-ensure-iphone-camera-focus/"><u>[New] 2024 Approved  Strategies to Ensure iPhone Camera Focus</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-conquer-the-vr-world-your-first-vr-adventure/"><u>[New] In 2024, Conquer the VR World  Your First VR Adventure</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-capture-the-internets-attention-craft-with-kapwing-for-2024/"><u>[New] Capture the Internet’s Attention – Craft with Kapwing for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-realme-c55-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Realme C55 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-the-hidden-accessing-youtube-video-comments/"><u>In 2024, Unveiling the Hidden  Accessing YouTube Video Comments</u></a></li>
+<li><a href="https://fox-http.techidaily.com/iphone-macro-mastery-tips-for-clear-detail-focused-photos/"><u>IPhone Macro Mastery  Tips for Clear, Detail-Focused Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-sky-magnificence-in-focus-leading-websites-uncovered/"><u>[New] 2024 Approved  Sky Magnificence in Focus  Leading Websites Uncovered</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-copyright-rules-for-screenshotting-and-archiving-youtube-videos/"><u>In 2024, Copyright Rules for Screenshotting and Archiving YouTube Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-economical-dslrmirrorless-systems/"><u>[New] 2024 Approved  Economical DSLR/Mirrorless Systems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expert-analysis-of-sonys-high-definition-video-gear/"><u>[Updated] 2024 Approved  Expert Analysis of Sony's High-Definition Video Gear</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-easier-than-ever-simplified-hdr-photography-insights-for-2024/"><u>[New] Easier Than Ever  Simplified HDR Photography Insights for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-iphone-15-pro-max-without-itunes-drfone-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked iPhone 15 Pro Max Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-ultimate-list-of-androids-best-music-video-apps/"><u>[New] The Ultimate List of Android's Best Music Video Apps</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-motorola-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Motorola</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-guide-to-instantly-diminish-audio-volume-gently/"><u>In 2024, Guide to Instantly Diminish Audio Volume Gently</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-20-best-anime-opening-songs-of-all-time/"><u>[New] In 2024, 20 Best Anime Opening Songs of All Time</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harmonious-blends-using-fades-in-logic-pro-x-for-2024/"><u>[New] Harmonious Blends  Using Fades in Logic Pro X for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-expert-tips-6-advanced-strategies-for-gif-artistry/"><u>[New] Expert Tips  6 Advanced Strategies for GIF Artistry</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-from-basic-to-spectaculr-the-best-cams-gear-guide/"><u>[New] In 2024, From Basic to Spectaculr  The Best Cams' Gear Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-optimal-vr-experience-a-review-of-top-oculus-models/"><u>[New] In 2024, Optimal VR Experience  A Review of Top Oculus Models</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-reinforcing-photo-viewing-functionality-with-windows-10-solutions/"><u>[New] 2024 Approved  Reinforcing Photo Viewing Functionality with Windows 10 Solutions</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2022-to-other-iphone-11-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2022) to other iPhone 11 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-stand-out-design-and-customize-professional-logos-via-free-templates/"><u>[New] 2024 Approved  Stand Out  Design and Customize Professional Logos via Free Templates</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-ultimate-overview-dji-inspire-1-reviewed/"><u>[New] In 2024, The Ultimate Overview  DJI Inspire 1 Reviewed</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/in-2024-mac-users-rejoice-the-ultimate-gopro-video-editing-guide/"><u>In 2024, Mac Users Rejoice The Ultimate GoPro Video Editing Guide</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-samsung-galaxy-f14-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Samsung Galaxy F14 5G FRP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-olympic-snowscape-highlights-cross-style-22/"><u>In 2024, Olympic Snowscape Highlights - Cross Style '22</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-7-precision-shooter-classics/"><u>Top 7 Precision Shooter Classics</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/selecting-premium-microphones-for-ultra-hd-videography-for-2024/"><u>Selecting Premium Microphones for Ultra-HD Videography for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-beyond-ustream-live-streaming-choices-for-2024/"><u>[New] Beyond Ustream  Live Streaming Choices for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-get-the-perfect-frame-top-vignette-apps-for-ios-and-android-devices/"><u>Updated 2024 Approved Get the Perfect Frame Top Vignette Apps for iOS and Android Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-auditory-ambience-finder-for-film-and-video-sets/"><u>[New] Auditory Ambience Finder  For Film and Video Sets</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-achieving-seamless-background-blurs-in-video-calls/"><u>In 2024, Achieving Seamless Background Blurs in Video Calls</u></a></li>
+<li><a href="https://fox-http.techidaily.com/navigating-the-nuances-of-nonlinear-audio-editing-in-audacity-for-2024/"><u>Navigating the Nuances of Nonlinear Audio Editing in Audacity for 2024</u></a></li>
+</ul></div>

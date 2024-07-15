@@ -1,7 +1,7 @@
 ---
 title: "Detailed Guide to Photo Hue Opposites Technique"
-date: 2024-06-22T17:56:08.642Z
-updated: 2024-06-23T17:56:08.642Z
+date: 2024-07-13T23:02:01.132Z
+updated: 2024-07-14T23:02:01.132Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,9 @@ thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690e
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -38,6 +41,9 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 
 **Compatibility:** Windows
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
@@ -56,6 +62,18 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
@@ -76,6 +94,9 @@ The platform’s homepage contains a number of categories of tools such as **Col
 
 **Compatibility** **:** Online platform
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
 
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
@@ -146,3 +167,39 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/ranked-guide-to-premium-iosdesktop-video-change-tools-for-2024/"><u>Ranked Guide to Premium iOS/Desktop Video Change Tools for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-free-online-jpggif-converters-the-best-10-list-for-2024/"><u>[New] Free Online JPG/GIF Converters  The Best 10 List for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-top-picks-next-gen-vr-handwear/"><u>In 2024, Unveiling Top Picks  Next Gen VR Handwear</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-bridging-twitter-and-fb-with-shared-vids/"><u>[New] 2024 Approved  Bridging Twitter and FB with Shared Vids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-sleep-inducing-series-analyzing-video-bedtime-stories/"><u>In 2024, The Sleep-Inducing Series  Analyzing Video Bedtime Stories</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-guide-to-video-editing-inshots-place-for-2024/"><u>[New] The Ultimate Guide to Video Editing - InShot's Place for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-superior-suggestions-top-websites-for-acquiring-snapalert-melodies/"><u>[New] In 2024, Superior Suggestions  Top Websites for Acquiring SnapAlert Melodies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-picks-unleash-creativity-with-free-text-visualizers-online/"><u>Top Picks  Unleash Creativity with Free Text Visualizers Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-metaverse-chronicles-a-list-of-the-most-unforgettable-sci-fi-adventures-on-screen/"><u>In 2024, Metaverse Chronicles  A List of the Most Unforgettable Sci-Fi Adventures on Screen</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-enhance-your-watchlist-using-double-display-with-netflix/"><u>[New] 2024 Approved  Enhance Your Watchlist  Using Double Display with Netflix</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-optimizing-ppt-presentations-across-devices-for-google-meet/"><u>[Updated] 2024 Approved  Optimizing PPT Presentations Across Devices for Google Meet</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-ultimate-source-guide-buying-and-downloading-your-favorite-youtube-rings/"><u>[New] In 2024, Ultimate Source Guide  Buying and Downloading Your Favorite YouTube Rings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-visionary-film-titles-that-inspire-and-invigorate-for-2024/"><u>[New] Visionary Film Titles That Inspire and Invigorate for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-auditory-insights-into-ffmpeg-audio-processing-for-2024/"><u>[New] Auditory Insights Into FFmpeg Audio Processing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-next-step-in-virtual-reality-jaunt-vr-review-for-2024/"><u>[New] The Next Step in Virtual Reality  Jaunt VR Review for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-exploring-new-realms-a-detailed-jaunt-vr-review/"><u>[New] Exploring New Realms  A Detailed Jaunt VR Review</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-get-talking-the-best-free-mac-speech-recognition-apps-with-no-strings-attached-for-2024/"><u>New Get Talking The Best Free Mac Speech Recognition Apps with No Strings Attached for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-uncovering-top-resources-for-authentic-bell-tones/"><u>New In 2024, Uncovering Top Resources for Authentic Bell Tones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-dive-into-the-pool-of-perfect-photos-on-pexels/"><u>[New] Dive Into the Pool of Perfect Photos on Pexels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-from-concept-to-delivery-using-luts-with-adobe-ae/"><u>[New] From Concept to Delivery  Using LUTs with Adobe AE</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-captivating-first-impressions-how-to-choose-impactful-backgrounds-for-thumbnails/"><u>[New] Captivating First Impressions  How to Choose Impactful Backgrounds for Thumbnails</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ridiculousrender-hub-for-2024/"><u>RidiculousRender Hub for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-investigating-storage-amounts-vids-on-64128gb-hardware/"><u>[New] In 2024, Investigating Storage Amounts  Vids on 64/128GB Hardware</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unveiling-the-secrets-to-slow-motion-screenshots-in-snapchat/"><u>[New] Unveiling the Secrets to Slow-Motion Screenshots in Snapchat</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-itel-s23-easily-by-drfone-android/"><u>How To Unlock a Itel S23 Easily?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-become-a-youtube-star-essential-skills-training/"><u>In 2024, Become a YouTube Star  Essential Skills Training</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-new-year-updated-lg-360-full-review-insights/"><u>[New] New Year, Updated LG 360  Full Review Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-essential-list-of-gratuitous-online-photo-enhancement-suites-for-2024/"><u>[New] Essential List of Gratuitous Online Photo Enhancement Suites for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-realme-note-50-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/vcs-quickcapture-critique-full-review-and-guide/"><u>VCS QuickCapture Critique  Full Review & Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-balancing-acts-reducing-shakiness-for-better-gopro-vids/"><u>[New] Balancing Acts  Reducing Shakiness for Better GoPro Vids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-easy-and-speed-share-youtube-playlists-now/"><u>[Updated] Easy & Speed  Share YouTube Playlists Now</u></a></li>
+</ul></div>

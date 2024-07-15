@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Bending Words in Media Landscapes\""
-date: 2024-06-22T18:29:03.482Z
-updated: 2024-06-23T18:29:03.482Z
+date: 2024-07-13T23:37:41.663Z
+updated: 2024-07-14T23:37:41.663Z
 tags: 
   - screen-recording
   - ai video
@@ -228,6 +228,9 @@ Be sure to pull it in different directions and check how the text will become fu
 
 Now, click another corner and drag towards the center to make the text look like it's slightly squished.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 8\
 
 Take one of the middleboxes and pull and drug them on either the bottom or top to make the text wider.
@@ -408,6 +411,9 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 
 1. Next, highlight the text, and then go to Effects. Click on Glitch and Curve. Doing this will allow you to create a curved text with a glitch effect.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to distort text in video with canva](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-10.png)
 
 1. You can download your video with text distortion or share it on your social media platforms.
@@ -416,6 +422,9 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 
 You can also distort text with online tools. You need an internet connection and your PC or mobile device to use these platforms. Here are some of the popular online text distorters you'll find online.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. PicMonkey
 
 This online tool provides photo editing and graphic design tools, and you can use it to distort the text in your photo. PicMonkey.com allows you to put your words into arcs and circles to create typography art. You can also add drop shadow, and knockout, to outline the center of the distorted text. The handles on both sides of the text box allow you to resize the diameter of the circled text or scrunch up or stretch out your arched text. Additionally, you can add spaces between the letters and play with the kerning of the text.
@@ -516,6 +525,9 @@ Now, click another corner and drag towards the center to make the text look like
 
 Take one of the middleboxes and pull and drug them on either the bottom or top to make the text wider.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 9\
 
 Tinker around with different changes mentioned above until you get the text distortion you want. Once you are satisfied with the results, hit Enter to set the change and get rid of the boxes and borders from the text.
@@ -617,3 +629,58 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-setting-up-seamless-auto-play-for-fb-content/"><u>[New] In 2024, Setting Up Seamless Auto-Play for FB Content</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-how-to-download-obs-studio-for-mac/"><u>[New] 2024 Approved  How to Download OBS Studio for Mac</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-no-cost-no-problem-top-10-free-game-download-sites-for-pc-and-android-users/"><u>Updated No Cost, No Problem Top 10 Free Game Download Sites for PC and Android Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-roadmap-to-proficiency-in-lut-construction-for-2024/"><u>[New] The Ultimate Roadmap to Proficiency in LUT Construction for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-start-your-editing-right-with-free-intros/"><u>[New] In 2024, Start Your Editing Right With Free Intros</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-racing-hearts-22-short-track-triumph/"><u>[New] 2024 Approved  Racing Hearts  '22 Short-Track Triumph</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-virtual-verification-a-new-look-at-app-quality-for-2024/"><u>[New] Virtual Verification  A New Look at App Quality for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/innovative-notetaking-for-mobile-photographers/"><u>Innovative Notetaking for Mobile Photographers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-media-meld-space/"><u>2024 Approved  Media Meld Space</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-master-screen-recording-capturing-and-preserving-snaps-efficiently-for-2024/"><u>[Updated] Master Screen Recording  Capturing and Preserving Snaps Efficiently for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-streamlining-board-collaboration-a-compreenasion-of-using-whiteboards-on-all-zoom-platforms/"><u>2024 Approved  Streamlining Board Collaboration - A Compreenasion of Using Whiteboards on All Zoom Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-optimize-call-transcription-4-proven-tips-for-fb-video-calls/"><u>[Updated] Optimize Call Transcription  4 Proven Tips for FB Video Calls</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-disabling-automated-podcast-suggestions-for-privacy/"><u>[New] In 2024, Disabling Automated Podcast Suggestions for Privacy</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-superior-8-filter-trios-for-broadcast-excellence-for-2024/"><u>[New] Superior 8 Filter Trios for Broadcast Excellence for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/top-10-audio-alteration-apps-for-disguise-and-entertainment/"><u>Top 10 Audio Alteration Apps for Disguise and Entertainment</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-breaking-new-ground-installation-of-windows-11/"><u>[New] Breaking New Ground  Installation of Windows 11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-future-is-now-how-vida-transforms-video-editing/"><u>[Updated] The Future Is Now  How Vida Transforms Video Editing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-pinnacle-top-tools-6-sleek-signature-backdrop-removers-online-for-2024/"><u>[New] Pinnacle Top Tools – 6 Sleek Signature Backdrop Removers Online for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-masterclass-in-conversions-save-vimeo-media-to-mp4-files/"><u>[New] In 2024, Masterclass in Conversions  Save Vimeo Media to MP4 Files</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-king-of-construction-showdown-thieye-t5-or-sjcam-s6/"><u>[Updated] 2024 Approved  King of Construction Showdown  Thieye T5 or SJCAM S6?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-start-making-movies-8-best-film-cameras-under-300/"><u>2024 Approved  Start Making Movies  8 Best Film Cameras Under $300</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-streamlining-audio-addition-in-creative-cloud-suite/"><u>[New] In 2024, Streamlining Audio Addition in Creative Cloud Suite</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-outstanding-asmr-audio-experience-for-minimal-spending-for-2024/"><u>[New] Outstanding ASMR Audio Experience for Minimal Spending for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-effortless-creativity-premier-pro-free-2023-guide/"><u>[New] 2024 Approved  Effortless Creativity - Premier Pro FREE 2023 Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-in-depth-gopro-hero5-testing-report/"><u>[New] 2024 Approved  In-Depth GoPro Hero5 Testing Report</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-crafting-spectacular-hdr-images-blending-tips-in-adobe-lightroom/"><u>[Updated] Crafting Spectacular HDR Images  Blending Tips in Adobe Lightroom</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-text-tilt-treasures/"><u>[New] In 2024, Top Text Tilt Treasures</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-speech-understanding-no-financial-requirement/"><u>[New] Speech Understanding  No Financial Requirement</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-list-top-5-non-youtube-mobile-videos/"><u>In 2024, A Comprehensive List  Top 5 Non-YouTube Mobile Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/optimal-choices-in-monitors-for-ps5-gamers-for-2024/"><u>Optimal Choices in Monitors for PS5 Gamers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-newbie-friendly-guide-to-winning-with-telegram-promotion/"><u>[New] In 2024, Newbie-Friendly Guide to Winning with Telegram Promotion</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-v29-pro-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo V29 Pro Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-timeframe-equation-for-20mb-content/"><u>[Updated] 2024 Approved  Timeframe Equation for 20MB Content</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-precision-flight-the-new-era-with-yuneec-drone-review/"><u>[New] In 2024, Precision Flight  The New Era with Yuneec Drone Review</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-realme-v30t-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Realme V30T without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-video-editing-made-simple-using-windows-10s-built-in-features-easily/"><u>[New] 2024 Approved  Video Editing Made Simple  Using Windows 10'S Built-In Features Easily</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-giggle-grove-memetic-magic-for-all-ages/"><u>[New] In 2024, Giggle Grove  Memetic Magic for All Ages</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-techniques-for-successfully-incorporating-a-streaming-youtube-playlist/"><u>[New] Techniques for Successfully Incorporating a Streaming YouTube Playlist</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-stay-focused-with-no-youtube-thumbnail-view/"><u>In 2024, Stay Focused with No YouTube Thumbnail View</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-strategies-for-lengthening-gopros-electric-life/"><u>[New] Strategies for Lengthening GoPro's Electric Life</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-infinix-note-30-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Infinix Note 30 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/embrace-the-power-of-both-windows-and-steamos-on-your-deck/"><u>Embrace the Power of Both Windows and SteamOS On Your Deck</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-art-of-integrating-b-footage-into-main-shots/"><u>The Art of Integrating B-Footage Into Main Shots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-nikon-d500-review-breaking-boundaries-in-4k/"><u>In 2024, Nikon D500 Review  Breaking Boundaries in 4K</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-close-up-views-on-ms-teams-for-2024/"><u>[New] Mastering Close-Up Views on MS Teams for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-a-compreran-analysis-asus-proart-pa-329qs-innovations-in-4k-monitoring/"><u>[New] A Compreran Analysis  Asus ProArt PA 329Q’s Innovations in 4K Monitoring</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premier-pro-ultimate-2023-template-collection-free-for-2024/"><u>Premier Pro  Ultimate 2023 Template Collection (FREE) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-smooth-audio-crossfade/"><u>The Ultimate Guide to Smooth Audio Crossfade</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cinema-in-your-palm-three-cost-effective-techniques-to-blend-beats-and-videos-on-iphone/"><u>[Updated] 2024 Approved  Cinema in Your Palm – Three Cost-Effective Techniques to Blend Beats and Videos on iPhone</u></a></li>
+</ul></div>

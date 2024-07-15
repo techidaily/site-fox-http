@@ -1,0 +1,174 @@
+---
+title: "\"Dive Deep Into Durability  GoPro Hero5 vs Hero5 Session\""
+date: 2024-07-14T00:05:19.510Z
+updated: 2024-07-15T00:05:19.510Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes Dive Deep Into Durability: GoPro Hero5 vs Hero5 Session\""
+excerpt: "\"This Article Describes Dive Deep Into Durability: GoPro Hero5 vs Hero5 Session\""
+keywords: "GoPro Hero Durability,GoPro Hero5 Comparison,Hero5 Durability Test,ProDive Hero5 Analysis,GoPro Hero5 Resilience,Hero5 Session Insights,Hero5 Toughness Review"
+thumbnail: https://thmb.techidaily.com/a6435a313e4469213bebd5ae38a7530a7b0364be00feda91bc9b60c48edb8ed3.jpg
+---
+
+## Dive Deep Into Durability: GoPro Hero5 vs Hero5 Session
+
+# GoPro Hero5 Black Vs Hero5 Session
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+Both these models are the latest additions into GoPro family with so many advanced features. You will be glad to hear about their waterproof body that can go under water even without external housing, it can control things via voice command and so many features are added to imaging specs. With so many updated features, there are still few things that make these cameras stand different from each other. If you are little confused about which one of these devices can fulfill your requirements in best possible manner then it is good to go for the review below.
+
+**You may also like:**
+
+[Full Review for GoPro Hero5 Session >>](https://tools.techidaily.com/wondershare/filmora/download/)  
+[GoPro Hero5 Black Complete Review >>](https://tools.techidaily.com/wondershare/filmora/download/)
+[GoPro Hero5 Session VS Hero Session >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Hero5 Black vs Hero5 Session](https://images.wondershare.com/filmora/article-images/gopro-hero-5-black-vs-gopro-hero-5-session.jpg)
+
+Image resource:Dixplore.com
+
+[Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
+
+## Comparison for Hero5 Black and Hero5 Session
+
+#### **Specs Comparison Table:**
+
+| GoPro Hero5 Black                 | GoPro Hero5 Session                                             |                                                                 |
+| --------------------------------- | --------------------------------------------------------------- | --------------------------------------------------------------- |
+| **Price**                         | $399                                                            | $299 only                                                       |
+| **Date available**                | 2 October 2016                                                  | 2 October 2016                                                  |
+| **Battery**                       | 1220mAh                                                         | 1000mAh                                                         |
+| **Weight**                        | 117g                                                            | 73g                                                             |
+| **Image resolution**              | Up to 12mp                                                      | Up to 12mp                                                      |
+| **Dimensions**                    | 62×44.6×32.7mm                                                  | 38x38x36mm                                                      |
+| **Video resolution**              | Up to 4k/30fps                                                  | Up to 4k/30fps                                                  |
+| **Display**                       | 2 inch touchscreen                                              | No built-in replay                                              |
+| **Waterproof**                    | (60m with housing) 10 meters without housing                    | (60m with housing) 10 meters without housing                    |
+| **Shooting mode**                 | Auto-Low Light mode, Burst mode, Night Photo & Night Lapse mode | Auto-Low Light mode, Burst mode, Night Photo & Night Lapse mode |
+| **Voice Control**                 | Y                                                               | Y                                                               |
+| **Digital image stabilization**   | Yes                                                             | Yes                                                             |
+| **Advanced wind noise reduction** | Y                                                               | y                                                               |
+| **GPS**                           | Y                                                               | N                                                               |
+| **WIFI and bluetooth**            | Y                                                               | Y                                                               |
+
+#### **Design:**
+
+Both these cameras are very small in size with compact look, but Hero5 Black is little larger than the other unit. This significant variation in size is just because of the added 2 inch touch screen type display and it is probably one of the most interesting features in the Hero5 Black. The addition of touch screen has made this device much easier to use. This time you need not to read those typical instruction manuals to control things from your camera. The easy navigation feature will provide you everything at one terminal with touch screen. The Hero5 Black model also consists of 3 control buttons that helps in quick adjustment of settings on small LCD panel.
+
+Both these units can be controlled easily from smart phones using the wireless connectivity feature. On the other side, if we talk about battery then Hero5 Black comes with a larger battery backup with its 1220mAh design whereas the other one possesses only 1000mAh. In case of Hero5 you have to save your battery power till the time your shoot is over but the other one comes with removable battery so you can use the spare one during your long tours. The one more similarity between both these devices is in terms of waterproofing as they can serve up to same depth with housing as well as without housing.
+
+#### **Image Quality:**
+
+The resolution sensor is much higher in Hero5 Black as compared to Hero5 session that also serves with low light image capturing facility. This camera serves with 12Mp resolution for stills whereas the other one possesses only 10MP. The extra 2 MP resolution can serve with amazing clarity and also have much higher ISO limit as that of Session device. Users are also able to enjoy the built in HDR mode with the flagship model. One of the most important aspects is that Hero5 Black can help users to get raw images that can be post processed for much better and customized results.
+
+#### **Video Quality:**
+
+Both these cameras: Hero5 Black as well as Hero5 Session are capable enough to capture 4k video resolution with a frame rate of 30fps. Other than this users can switch these devices to 2.7K, 1080p, 1440p, 720p and 920p resolutions. The bit rate can go as high as up to 60Mbps and some of the additional features are auto image rotation facility and video looping. Other then this both these devices are having GoPro Protune advanced software.
+
+Professionals say that the video recording abilities of GoPro Hero4 Black are much superior to that of Hero5 session; it can be in terms of image resolution and frame rates that improve speed of videos. The black is capable enough to serve users with higher quality as well as it possesses much flexible controls.
+
+#### **Audio Quality:**
+
+The audio features of Hero5 Black and Hero5 Silver are almost similar and they can assist video creators in clear voice levels. It is possible to connect external microphones to both these devices via 3.5mm Audio Jack, the mono capabilities are rated as 48 KHz compression technology is added to both these units. The advanced multi band type AGC is also an appreciable addition to these cameras.
+
+#### **Other Features:**
+
+   1. **Voice Control:** The voice control feature is accessible in both cases and it assist in much better controls during video shooting. Users can have active control over footage where few code words can manage all basic video controls with ease. If you are planning to go for a long drive to adventurous place then you simply need to mount your device somewhere as possible and then just shout the control voice commands to initiate the recording process and go through other basic features.
+   2. **GoPro Plus:** Both these cameras can be controls via GoPro Plus application that runs over cloud. It assists them to save all recordings directly on cloud using GoPro Plus account. You can avail free trial version of this application for two months whereas the full featured original application is available with a monthly subscription payment of $4.99 only.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![GoPro Hero5 Black GPS feature](https://images.wondershare.com/filmora/article-images/gopro-gps-feature.jpeg)
+
+Image resource: Digital trends
+
+1. **GPS:** The Hero5 Black consists of active GPS control but this feature is not accessible in case of Hero5 Session. It helps users to set geo-tag to all captured images and videos same as that of smart phones. It simply makes your video footage ready to upload by generating tags whenever necessary.
+
+#### **The Bottom Line:**
+
+You have to keep your budget high for both these devices, but in case if your range is below this level then it is better to go for GoPro Hero Session that offers so many amazing features with $100 less. And it is so small that you can fix it to almost any places you want, like helmet or under your saddle.
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-essential-igtv-feeds-for-modern-viewers/"><u>In 2024, Essential IGTV Feeds for Modern Viewers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/converting-gifs-into-stickers-complete-step-by-step-tutorial-for-2024/"><u>Converting GIFs Into Stickers – Complete Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-image-jest-inc-punpictures-pro/"><u>[Updated] Image Jest Inc  PunPictures Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/air-lift-extraordinaire-top-industrial-drones/"><u>Air-Lift Extraordinaire  Top Industrial Drones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/digital-stagecraft-unlocking-voice-manipulation-with-affordable-technology-for-2024/"><u>Digital Stagecraft  Unlocking Voice Manipulation with Affordable Technology for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pushing-boundaries-merging-hdr-photos-with-lightroom/"><u>2024 Approved  Pushing Boundaries  Merging HDR Photos with Lightroom</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-affordable-minecraft-video-graphics/"><u>[New] 2024 Approved  Affordable Minecraft Video Graphics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-top-premier-pro-templates-for-the-year-2023/"><u>[Updated] In 2024, Top Premier Pro Templates for the Year 2023</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-text-superimposition-windows-and-mac-edition-for-2024/"><u>[Updated] Mastering Text Superimposition  Windows & Mac Edition for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/advanced-methods-for-swift-file-exchange-apples-ecosystem-for-2024/"><u>Advanced Methods for Swift File Exchange  Apple's Ecosystem for 2024</u></a></li>
+<li><a href="https://techidaily.com/is-your-tecno-spark-10c-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Tecno Spark 10C working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-guide-to-mac-iphone-and-ipad-pip/"><u>2024 Approved  The Ultimate Guide to Mac, iPhone, and iPad PIP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-the-finest-selection-of-economical-free-lut-tools/"><u>2024 Approved  Unveiling the Finest Selection of Economical, Free LUT Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-final-frontier-a-compreran-guide-to-editors-for-drone-clips/"><u>[Updated] In 2024, The Final Frontier  A Compreran Guide to Editors for Drone Clips</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-on-iphone-8-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock on iPhone 8</u></a></li>
+<li><a href="https://fox-http.techidaily.com/accelerated-learning-path-with-final-cut-pro/"><u>Accelerated Learning Path with Final Cut Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/craft-a-masterpiece-techniques-for-engaging-viral-tiktok-unpacks/"><u>Craft a Masterpiece  Techniques for Engaging, Viral TikTok Unpacks</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713954160859-new-how-to-make-flying-objects-in-wondershare-filmora-for-2024/"><u>New How To Make Flying Objects in Wondershare Filmora for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-decreasing-decibels-a-lumafusion-approach/"><u>[Updated] In 2024, Decreasing Decibels  A Lumafusion Approach</u></a></li>
+<li><a href="https://fox-http.techidaily.com/discover-the-ultimate-list-of-best-rated-chromebook-drawers-for-2024/"><u>Discover the Ultimate List of Best-Rated Chromebook Drawers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/diy-personalized-christian-mobile-melodies/"><u>DIY  Personalized Christian Mobile Melodies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/cultivating-community-communication-tips-for-youtube-enthusiasts-for-2024/"><u>Cultivating Community  Communication Tips for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/top-aspect-ratio-converters-for-a-seamless-viewing-experience-for-2024/"><u>Top Aspect Ratio Converters for a Seamless Viewing Experience for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/a-comprehensive-look-at-securing-background-visuals-for-2024/"><u>A Comprehensive Look at Securing Background Visuals for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-introducing-effortless-age-correction-in-profiles-for-2024/"><u>[Updated] Introducing Effortless Age Correction in Profiles for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-critical-choices-for-perfect-snaps/"><u>[Updated] Critical Choices for Perfect Snaps</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/a-guide-to-recording-streams-discovering-the-best-7-approaches-for-2024/"><u>A Guide to Recording Streams  Discovering the Best 7 Approaches for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-how-to-send-and-add-snapchat-gifs-100-in-easy-way-for-2024/"><u>Updated How to Send and Add Snapchat GIFs 100 in Easy Way for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/creating-soft-music-endings-in-adobe-premiere-video-editing/"><u>Creating Soft Music Endings in Adobe Premiere Video Editing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-exquisite-airplay-scripts-for-listeners/"><u>[Updated] In 2024, Exquisite Airplay Scripts for Listeners</u></a></li>
+<li><a href="https://fox-http.techidaily.com/beyond-betting-in-depth-vegas-pro-21-analysis/"><u>Beyond Betting  In-Depth Vegas Pro '21 Analysis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-expert-insights-on-constructing-high-quality-srt-files-for-2024/"><u>[Updated] Expert Insights on Constructing High-Quality SRT Files for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/a-comprehensive-guide-standing-out-in-reddit-discussions-for-2024/"><u>A Comprehensive Guide  Standing Out in Reddit Discussions for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-zoom-mastery-embracing-intricate-screen-images/"><u>2024 Approved  Zoom Mastery  Embracing Intricate Screen Images</u></a></li>
+</ul></div>

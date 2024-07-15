@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unveiling Creative Twists  Transformative Text in Imagery for 2024\""
-date: 2024-06-22T18:02:17.650Z
-updated: 2024-06-23T18:02:17.650Z
+date: 2024-07-13T23:08:45.539Z
+updated: 2024-07-14T23:08:45.539Z
 tags: 
   - screen-recording
   - ai video
@@ -90,6 +90,9 @@ Now, click another corner and drag towards the center to make the text look like
 
 Take one of the middleboxes and pull and drug them on either the bottom or top to make the text wider.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 9\
 
 Tinker around with different changes mentioned above until you get the text distortion you want. Once you are satisfied with the results, hit Enter to set the change and get rid of the boxes and borders from the text.
@@ -252,6 +255,9 @@ Select your text and then go to Filter - Noise - Add Noise; this will add Noise 
 
 You can add a texture overlay for more texture and dimension to your text. To do this, click on the Text option in the Toolbox and select the dropdown that says Add Texture Overlay; this opens a new window, and you can click on your image to choose the texture.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Distort Text in Video?
 
 Canva is a graphic design platform that offers software for both Windows and Mac. You can use this program to edit photos, videos, and documents. It comes with loads of features that you can use. You can distort texts in video using Canva by following the steps below:
@@ -278,6 +284,9 @@ You can also distort text with online tools. You need an internet connection and
 
 This online tool provides photo editing and graphic design tools, and you can use it to distort the text in your photo. PicMonkey.com allows you to put your words into arcs and circles to create typography art. You can also add drop shadow, and knockout, to outline the center of the distorted text. The handles on both sides of the text box allow you to resize the diameter of the circled text or scrunch up or stretch out your arched text. Additionally, you can add spaces between the letters and play with the kerning of the text.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![online text distorter - picmonkey](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-3.png)
 
 ### 2.MockoFun
@@ -408,6 +417,9 @@ Canva is a graphic design platform that offers software for both Windows and Mac
 
 1. Next, highlight the text, and then go to Effects. Click on Glitch and Curve. Doing this will allow you to create a curved text with a glitch effect.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to distort text in video with canva](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-10.png)
 
 1. You can download your video with text distortion or share it on your social media platforms.
@@ -617,3 +629,38 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/2024-approved-decoding-editing-excellence-can-pickup-outshine-the-competition-on-android/"><u>2024 Approved  Decoding Editing Excellence  Can PickUp Outshine the Competition on Android?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/elevate-conference-calls-a-guide-to-10-cost-free-apps-for-2024/"><u>Elevate Conference Calls  A Guide to 10 Cost-Free Apps for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-vivo-y55s-5g-2023-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Vivo Y55s 5G (2023) FRP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfect-pairing-selecting-macpc-blu-ray-player-suites/"><u>2024 Approved  Perfect Pairing  Selecting Mac/PC Blu-Ray Player Suites</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-visual-narratives-the-leading-10-vector-editors-for-2024/"><u>Crafting Visual Narratives  The Leading 10 Vector Editors for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-focused-communication-tips-for-virtual-teams/"><u>[New] 2024 Approved  Focused Communication Tips for Virtual Teams</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-navigate-to-exciting-windows-11-gaming-world/"><u>2024 Approved  Navigate to Exciting Windows 11 Gaming World</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-first-steps-in-filmmaking-mastering-key-camera-techniques/"><u>2024 Approved  First Steps in Filmmaking  Mastering Key Camera Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-layers-of-cinematic-dialogue-design/"><u>2024 Approved  Layers of Cinematic Dialogue Design</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-11x-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme 11X 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/10-best-zoom-alternatives-deskop-and-mobile/"><u>10 Best Zoom Alternatives [Deskop & Mobile]</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-achieve-social-stardom-essential-tips-for-thriving-instagram-unboxings/"><u>2024 Approved  Achieve Social Stardom  Essential Tips for Thriving Instagram Unboxings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>[New] In 2024, From Space to Nature  YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-bring-life-to-stills-motion-blur-technique/"><u>2024 Approved  Bring Life to Stills  Motion Blur Technique</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-funimate-masterclass-quick-video-access/"><u>2024 Approved  Funimate Masterclass  Quick Video Access</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-decoding-the-vertical-video-enigma-on-insta/"><u>2024 Approved  Decoding the Vertical Video Enigma on Insta</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-peak-psd-layer-magic/"><u>2024 Approved  Peak PSD Layer Magic</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-a-unified-brand-presence-on-youtube/"><u>2024 Approved  Crafting a Unified Brand Presence on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-master-picks-for-commercial-cloud-space/"><u>2024 Approved  Master Picks for Commercial Cloud Space</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-a-practical-guide-elevating-your-podcast-with-an-iconic-title/"><u>2024 Approved  A Practical Guide  Elevating Your Podcast with an Iconic Title</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elevate-reality-making-everyday-phones-virtual-world-tools/"><u>2024 Approved  Elevate Reality  Making Everyday Phones Virtual World Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-initiate-impact-a-strategic-blueprint-for-setting-up-a-tech-reviews-channel/"><u>2024 Approved  Initiate Impact  A Strategic Blueprint for Setting Up a Tech Reviews Channel</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-top-notch-online-rhythm-analyzers-for-free/"><u>2024 Approved  Discover Top-Notch Online Rhythm Analyzers for Free</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-comical-calls-leading-platforms-for-laugh-rings/"><u>2024 Approved  Comical Calls  Leading Platforms for Laugh-Rings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-harness-the-power-of-look-up-tables-luts-for-professionals/"><u>2024 Approved  Harness the Power of Look-Up Tables (LUTs) for Professionals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-optimal-online-locations-free-quality-alarm-songs/"><u>2024 Approved  Optimal Online Locations  Free, Quality Alarm Songs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-repurpose-images-and-videos/"><u>2024 Approved  Instagram  Repurpose Images & Videos</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-unbootable-windows-vms-via-vmware-in-win11/"><u>Eliminating Unbootable Windows VMs via VMware in Win11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-lens-legends-choice-the-finest-6-4k-dslr-cameras/"><u>2024 Approved  Lens Legends Choice  The Finest 6 4K DSLR Cameras</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-achieve-popularity-with-tiktok-a-pcmac-guide-to-video-sharing/"><u>2024 Approved  Achieve Popularity with TikTok  A PC/MAC Guide to Video Sharing</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-effortless-audiobook-production-the-ultimate-instruction-manual-for-aspiring-authors/"><u>New Effortless Audiobook Production The Ultimate Instruction Manual for Aspiring Authors</u></a></li>
+</ul></div>

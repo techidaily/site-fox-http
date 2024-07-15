@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In-Depth Analysis  AV1 versus VP9 Video Encoding for 2024\""
-date: 2024-06-22T17:59:57.860Z
-updated: 2024-06-23T17:59:57.860Z
+date: 2024-07-13T23:06:10.639Z
+updated: 2024-07-14T23:06:10.639Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,9 @@ Regarding practical performance, it's widely agreed that AV1 has the upper hand 
 
 Another 2018 Facebook Engineering (now Meta) test showed that AV1 achieved 34% higher compression than VP9\. The test also showed that AV1 is 50.3% and 46.2% better than the x264 main profile and x264 high profile. However, the test showed that AV1 requires a longer encoding duration than the current alternative due to the complexities involved.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook av1 vs vp9 comparison](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-2.jpg)
 
 Most importantly, Facebook suggested that AV1's performance significantly increases with increased video resolution. This means viewers will enjoy a higher quality 8K and UHD/4K content when using AV1 than VP9 and other codecs. And yes, higher compressions by AV1 mean a smaller file size at the same bitrates as the VP9 codec.
@@ -64,6 +67,9 @@ YouTube Video: <https://www.youtube.com/watch?v=LznXh5lkgB0>
 
 Soon in the September, NVIDIA unveiled the GeForce RTX® 40 Series of GPUs, which comes with Dual NVIDIA Encoders (NVENC) that is able to "cut export times by up to half and feature AV1 support".
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![cut export times](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-3.jpg)
 
 Let alone AV2 is upcoming in 3-5 years. There is no doubt that AV1 is the future trend.
@@ -78,6 +84,9 @@ Apply these steps to create an MP4 AV1 video on Filmora 11:
 
 ##### Step1Customize video settings and upload a video
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![av1 vs vp9 load video](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-4.jpg)
 
 Install and run [Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your computer, then select the video aspect ratio. For example, choose 16:9 (Widescreen) for YouTube videos. After that, start a **New Project** and click **Import Media** to load the video. Of course, you can load multiple videos and merge them later. Now move the video to the timeline by dragging.
@@ -96,6 +105,9 @@ Are you satisfied with the edited video? Click **Play** to preview it and apply 
 
 ## Part 5\. FAQs About AV1 and VP9
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What is the best video codec?
 
 There's nothing like the "best video codec" because it depends on user preference.  Although it offers universal compatibility, its performance is far behind codecs like AV1, and VP9. Also, it's a licensed video codec, one reason why YouTube stopped streaming.
@@ -149,3 +161,41 @@ We hope this AV1 vs VP9 comparison article has dispelled all your fears about us
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-basics-of-electronic-story-craftsmanship/"><u>[New] In 2024, The Basics of Electronic Story Craftsmanship</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-deconstructing-user-sentiments-for-vllo/"><u>[New] 2024 Approved  Deconstructing User Sentiments for VLLO</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/no-screen-only-silence-a6400-dilemma/"><u>No Screen, Only Silence  A6400 Dilemma</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/first-row-fun-without-football-baseball-or-basketball-for-2024/"><u>First Row Fun Without Football, Baseball, or Basketball for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-metaverse-compelling-vr-headsets-recommended/"><u>[New] Navigating Metaverse  Compelling VR Headsets Recommended</u></a></li>
+<li><a href="https://fox-http.techidaily.com/first-timers-map-to-earning-wealth-with-periscope-for-2024/"><u>First-Timer's Map to Earning Wealth with Periscope for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-mobile-time-lapse-magic-top-apps-for-creatives-2023-edition/"><u>Updated Mobile Time-Lapse Magic Top Apps for Creatives (2023 Edition)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/uncover-vanished-watch-video-preview/"><u>Uncover Vanished Watch Video Preview</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-exploring-ghoulish-auditory-extras-for-2024/"><u>Updated Exploring Ghoulish Auditory Extras for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/harmony-match-maker/"><u>Harmony Match Maker</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-top-15-trending-tiktok-meals-worth-savoring-for-2024/"><u>[Updated] Top 15 Trending TikTok Meals Worth Savoring for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elite-choices-in-total-sweep-cinematography-for-2024/"><u>Elite Choices in Total Sweep Cinematography for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/illustrator-tips-achieving-natural-motion-blur/"><u>Illustrator Tips  Achieving Natural Motion Blur</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2023s-samsung-bd-j5900-a-detailed-look-for-2024/"><u>[New] 2023'S Samsung BD-J5900  A Detailed Look for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-scrutinizing-hero5s-performance-throughout-day-for-2024/"><u>[New] Scrutinizing Hero5's Performance Throughout Day for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-compelling-iphone-shadow-images/"><u>Crafting Compelling iPhone Shadow Images</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-aural-alchemy-the-essence-of-crossfade-techniques/"><u>2024 Approved  Aural Alchemy  The Essence of Crossfade Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/master-the-art-of-editing-on-zero-budget-discover-these-apps/"><u>Master the Art of Editing on Zero Budget  Discover These Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-dive-into-crossfade-excellence-with-audacitys-comprehensive-tutorials-for-2024/"><u>[New] Dive Into Crossfade Excellence with Audacity's Comprehensive Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/trategies-for-dominant-click-through-rates-in-youtube-advertising-for-2024/"><u>[New] Strategies for Dominant Click-Through Rates in YouTube Advertising for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/inside-vitas-advanced-video-editing-tools-full-review-and-expert-tutorial-2024/"><u>Inside Vita's Advanced Video Editing Tools  Full Review & Expert Tutorial 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-realme-11-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Realme 11 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-meme-crafters-playbook-building-a-library-of-laughter-gifs/"><u>[New] The Meme Crafter's Playbook  Building a Library of Laughter (GIFs)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-photocollage-mastery-building-visual-narratives/"><u>In 2024, PhotoCollage Mastery  Building Visual Narratives</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/resolving-face-swap-glitches-in-facebook-chat/"><u>Resolving Face Swap Glitches in Facebook Chat</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-steps-to-restore-visual-clarity-to-youtube-videos/"><u>In 2024, Steps to Restore Visual Clarity to YouTube Videos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/iphone-filmmaking-masterclass-8-steps-to-pro-video-excellence-for-2024/"><u>IPhone Filmmaking Masterclass  8 Steps to Pro Video Excellence for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-assessing-acid-pro-top-alternative-software/"><u>[New] In 2024, Assessing ACID Pro  Top Alternative Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-optimizing-zoom-video-fidelity-comprehensible-guides/"><u>[New] 2024 Approved  Optimizing Zoom Video Fidelity  Comprehensible Guides</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-music-making-magic-selecting-background-beats-for-vids/"><u>In 2024, Music Making Magic  Selecting Background Beats for Vids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-complete-sphere-unveiled-in-film-tech/"><u>[New] The Complete Sphere Unveiled in Film Tech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-insights-into-procuring-freeness-in-frame-vids-for-2024/"><u>[New] Insights Into Procuring Freeness in Frame Vids for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-restoring-clarity-resolving-iphones-blurry-photos/"><u>In 2024, Restoring Clarity  Resolving iPhone's Blurry Photos</u></a></li>
+</ul></div>

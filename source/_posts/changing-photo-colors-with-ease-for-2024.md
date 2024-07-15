@@ -1,7 +1,7 @@
 ---
 title: "Changing Photo Colors with Ease for 2024"
-date: 2024-06-22T18:13:16.094Z
-updated: 2024-06-23T18:13:16.094Z
+date: 2024-07-13T23:20:37.000Z
+updated: 2024-07-14T23:20:37.000Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,9 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -52,6 +55,9 @@ If you are using Windows XP or an earlier version of the Windows OS, you can inv
 
 Besides creating image negatives, the Preview app lets you convert image files as well. Once you open a photo you’d like to invert with the Preview app, you should click on the **Tools** menu.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ![Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
@@ -112,6 +118,9 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 
 **Compatibility:** iOS
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
 
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
@@ -120,6 +129,9 @@ Inverting the colors in a photo with Negative Photo Effect HD is easy since you 
 
 Inverting colors in a photo is not a complicated process, but finding creative ways to use the negative image effect is since images with inverted colors are best used within a pre-defined context. Do you often create images with inverted colors? Leave a comment below and let us know your favorite method of creating image negatives.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -146,3 +158,43 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/2024-approved-leading-cameras-for-automotive-tracking-unveiled/"><u>2024 Approved  Leading Cameras for Automotive Tracking Unveiled</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-masterminds-of-making-magic-top-6-in-nft-innovation/"><u>[New] Masterminds of Making Magic  Top 6 in NFT Innovation</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-step-by-step-guide-to-writing-slug-lines/"><u>[Updated] A Step-by-Step Guide to Writing Slug Lines</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-gratitude-gift-selecting-high-quality-otus-freepaid/"><u>2024 Approved  Gratitude Gift  Selecting High-Quality OTUs (Free/Paid)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-efficient-video-production-tips-embracing-free-luts-in-obs-workflow/"><u>2024 Approved  Efficient Video Production Tips  Embracing Free LUTs in OBS Workflow</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-navigating-metaverse-self-representation-a-step-by-step-manual/"><u>2024 Approved  Navigating Metaverse Self-Representation  A Step-by-Step Manual</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-metaverse-marketing-landscapes/"><u>[Updated] Navigating Metaverse Marketing Landscapes</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-green-grounds-a-selection-of-free-downloadable-videography-sets/"><u>2024 Approved  Green Grounds  A Selection of Free, Downloadable Videography Sets</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-bringing-vision-to-life-the-art-of-post-color-enhancement/"><u>2024 Approved  Bringing Vision to Life  The Art of Post-Color Enhancement</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-leading-edge-free-players-for-pc-and-mac-os/"><u>2024 Approved  Leading Edge Free Players for PC & Mac OS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-blurface-secrets-clean-up-your-photos-quickly/"><u>2024 Approved  Blurface Secrets  Clean Up Your Photos Quickly</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-innovative-layouts-for-virtual-minecraft-abodes/"><u>[New] Innovative Layouts for Virtual Minecraft Abodes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-motorola-moto-g34-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Motorola Moto G34 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-behind-the-scenes-mastering-cinematic-techniques-in-24/"><u>2024 Approved  Behind the Scenes  Mastering Cinematic Techniques in '24</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-honor-magic-6-pro-frp-by-drfone-android/"><u>The Updated Method to Bypass Honor Magic 6 Pro FRP</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-analyzing-ownership-rights-in-youtube-vs-freedom-of-use-in-cc-for-2024/"><u>[Updated] Analyzing Ownership Rights in Youtube Vs. Freedom Of Use In CC for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-navigating-the-features-of-magix-video-pro-x/"><u>2024 Approved  Navigating the Features of Magix Video Pro X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-the-magic-of-high-dynamic-range-in-photography/"><u>2024 Approved  Discover the Magic of High Dynamic Range in Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mirthful-missions-delving-into-the-goofy-movie-vhs/"><u>2024 Approved  'Mirthful Missions' - Delving Into The Goofy Movie VHS</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-streaming-success-how-to-keep-a-record-of-live-tv/"><u>[Updated] In 2024, Streaming Success  How to Keep a Record of Live TV</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-podcast-dialogue-tips-and-practical-script-examples/"><u>2024 Approved  Mastering Podcast Dialogue  Tips & Practical Script Examples</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-itel-p55t-frp-by-drfone-android/"><u>The Updated Method to Bypass Itel P55T FRP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-configure-youtube-pip-on-iphone-quickly/"><u>2024 Approved  Configure YouTube PIP on iPhone Quickly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-digital-transformation-elevate-your-videos-with-advanced-editing-tools/"><u>2024 Approved  Digital Transformation  Elevate Your Videos with Advanced Editing Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-from-snapshots-to-spectacular-exploring-polarrs-edits-deeply/"><u>2024 Approved  From Snapshots to Spectacular  Exploring Polarr's Edits Deeply</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-motorola-moto-g04-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Motorola Moto G04</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfect-presentations-with-a-personal-touch-adding-audio/"><u>2024 Approved  Perfect Presentations with a Personal Touch  Adding Audio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-innovate-your-visual-narrative-the-10-best-text-upgrades/"><u>2024 Approved  Innovate Your Visual Narrative - The 10 Best Text Upgrades</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-navigating-the-dynamic-world-of-drone-racing-and-top-5-high-speed-drones/"><u>2024 Approved  Navigating the Dynamic World of Drone Racing & Top 5 High-Speed Drones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-action-filmmaking-camera-picks-for-newbies/"><u>2024 Approved  Action Filmmaking  Camera Picks for Newbies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-explore-the-best-phone-options-for-enhanced-gear-vr-immersion/"><u>2024 Approved  Explore the Best Phone Options for Enhanced Gear VR Immersion</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-v27-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Vivo V27?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-major-firstrow-pursuits-that-arent-games/"><u>2024 Approved  Major Firstrow Pursuits That Aren't Games</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fast-friending-mastering-the-art-of-profile-searches-for-2024/"><u>[New] Fast Friending  Mastering the Art of Profile Searches for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-high-performance-goggles-ranked-drone-flyings-best/"><u>2024 Approved  High-Performance Goggles Ranked  Drone Flying's Best</u></a></li>
+</ul></div>

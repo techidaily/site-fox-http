@@ -1,7 +1,7 @@
 ---
 title: "[New] Unrivaled Dramas From the Eightfold Storytelling Sphere"
-date: 2024-06-22T18:14:36.704Z
-updated: 2024-06-23T18:14:36.704Z
+date: 2024-07-13T23:21:55.912Z
+updated: 2024-07-14T23:21:55.912Z
 tags: 
   - screen-recording
   - ai video
@@ -33,7 +33,7 @@ _Be it a blockbuster movie, an indie gem, a play on The Fringe, or the West End 
 
 ## Part 1\. Why did we pick these films?
 
-When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
+When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
@@ -69,10 +69,25 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Best comedy scripts
 
 **_1\. 21 Jump Street_**
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![21 jump street](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-4.jpg)
 
 **Writer:** [Michael Bacall](https://en.wikipedia.org/wiki/Michael%5FBacall), [Stephen J. Cannell](https://en.wikipedia.org/wiki/Stephen%5FJ.%5FCannell)
@@ -229,6 +244,9 @@ Download the script here: <https://www.takarabio.com/documents/User%20Manual/RR0
 
 **_2\. UNBREAKABLE_**
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![unbreakable](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-14.jpg)
 
 **Writer:** M. Night Shyamalan
@@ -239,6 +257,9 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 
 **Download the script here:** <https://www.scripts.com/script/unbreakable%5F1086>
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Best animation scripts
 
 **_1\. Cinderella_(1950)**
@@ -289,7 +310,7 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 ## Part 1\. Why did we pick these films?
 
-When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
+When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the [top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
@@ -566,3 +587,48 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-video-editing.techidaily.com/new-how-to-trim-video-in-premiere-pro-in-different-ways/"><u>New How To Trim Video In Premiere Pro in Different Ways</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-step-by-step-using-inshot-software-effectively-for-2024/"><u>[Updated] Step-by-Step  Using Inshot Software Effectively for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dive-into-sound-design-focus-on-auditions-fade-in-for-2024/"><u>Dive Into Sound Design  Focus on Audition's Fade In for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-easy-to-use-online-editors-for-quick-postings-for-2024/"><u>[Updated] Free, Easy-to-Use Online Editors for Quick Postings for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-streamline-your-shoots-top-lenses-recommended-by-professionals/"><u>[New] Streamline Your Shoots  Top Lenses Recommended by Professionals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-tips-for-embedding-and-posting-correct-subtitles-on-twitter-instagram-for-2024/"><u>[Updated] Top Tips for Embedding and Posting Correct Subtitles on Twitter, Instagram for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-first-timers-roadmap-earning-money-from-periscope-chats/"><u>[New] In 2024, First-Timer's Roadmap  Earning Money From Periscope Chats</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-inshots-competitors-for-pclaptop-editors/"><u>[New] In 2024, Inshot's Competitors for PC/Laptop Editors</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-itel-p40-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Itel P40 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/bebops-avian-acrobatics-a-parrot-revelation-for-2024/"><u>Bebop's Avian Acrobatics – A Parrot Revelation for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-discovering-the-most-used-audio-recorders-within-googles-browser/"><u>Updated In 2024, Discovering the Most Used Audio Recorders Within Googles Browser</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-your-picks-for-the-best-photovideo-makers-that-tune-in-music/"><u>[New] 2024 Approved  Your Picks for the Best Photo/Video Makers That Tune in Music</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-excellent-10-drone-fleet-for-professional-photos-and-films/"><u>In 2024, Excellent 10-Drone Fleet for Professional Photos & Films</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevating-media-quality-from-xmlssattml-to-premium-srt-for-2024/"><u>Elevating Media Quality  From XML/SSA/TTML to Premium SRT for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-10-gimbals-enhancing-dsrl-quality/"><u>[New] 2024 Approved  Top 10 Gimbals Enhancing DSRL Quality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/comparing-free-video-powerhouses-who-will-you-choose-vlc-or-mpc-in-2024/"><u>Comparing Free Video Powerhouses  Who Will You Choose, VLC or MPC, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-are-sellers-involved-in-monetizing-review-content-in-2024/"><u>[New] Are Sellers Involved in Monetizing Review Content, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-essential-techniques-in-producing-persuasive-video-testimonials/"><u>[New] In 2024, Essential Techniques in Producing Persuasive Video Testimonials</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-mastering-spotify-promos-your-comprehensive-guide/"><u>[New] 2024 Approved  Mastering Spotify Promos  Your Comprehensive Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-ideal-picks-9-best-video-calling-apps-for-androidios-business-needs/"><u>[New] 2024 Approved  Ideal Picks 9  Best Video Calling Apps for Android/iOS Business Needs</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-intenseflame-screen-recorders/"><u>[Updated] 2024 Approved  IntenseFlame Screen Recorders</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-much-money-can-you-make-via-youtube-ad-revenue-and-cpm-rates/"><u>[Updated] How Much Money Can You Make via YouTube Ad Revenue and CPM Rates?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/boost-your-competitive-edge-with-custom-vocal-alteration-techniques-in-free-fire-gaming-no-charge-for-2024/"><u>Boost Your Competitive Edge with Custom Vocal Alteration Techniques in Free Fire Gaming (No Charge!) For 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-video-chat-with-peace-of-mind-top-10-secure-call-apps-available-without-cost-for-2024/"><u>[New] Video Chat with Peace of Mind  Top 10 Secure Call Apps Available without Cost for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-crafting-dynamic-musical-journeys-with-crossfading/"><u>[New] In 2024, Crafting Dynamic Musical Journeys with Crossfading</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-kapwing-online-video-trimmer-tips-and-tricks-for-perfect-edits/"><u>New In 2024, Kapwing Online Video Trimmer Tips and Tricks for Perfect Edits</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-tool-for-video-cuts-full-review-of-vivacut-24-edition/"><u>In 2024, The Ultimate Tool for Video Cuts  Full Review of VivaCut '24 Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-video-capture-on-periscope-a-comprehensive-manual/"><u>Mastering Video Capture on Periscope  A Comprehensive Manual</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-prodigy-ai-image-editing-arsenal/"><u>[New] In 2024, Prodigy AI Image Editing Arsenal</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-shocking-news-summary-craftsman/"><u>2024 Approved  Shocking News Summary Craftsman</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-simplicity-in-skewing-photographic-content/"><u>2024 Approved  Simplicity in Skewing Photographic Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-tips-for-gaining-attention-via-snapchat-star-for-2024/"><u>[Updated] Tips for Gaining Attention via Snapchat Star for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dj-iq-upgrade-two-drone-brands-now-offer-free-lut-sets-for-2024/"><u>DJ IQ Upgrade – Two Drone Brands Now Offer FREE LUT Sets for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-a-chronicle-of-the-most-popular-reddit-threads-ever/"><u>In 2024, A Chronicle of the Most Popular Reddit Threads Ever</u></a></li>
+<li><a href="https://fox-http.techidaily.com/compact-your-content-explore-the-most-admirable-33-video-reducers/"><u>Compact Your Content  Explore the Most Admirable 33 Video Reducers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/lightroom-guide-creating-and-merging-stunning-hdr-images-for-2024/"><u>Lightroom Guide  Creating & Merging Stunning HDR Images for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-precision-video-correction-eradicating-fish-eye-from-gopro/"><u>2024 Approved  Precision Video Correction  Eradicating Fish Eye From GoPro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-guide-to-the-lg-bp350-visual-experience/"><u>[Updated] Ultimate Guide to the LG BP350 Visual Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-audience-accumulation-expedition-tutorials-1mplus-milestone/"><u>2024 Approved  Audience Accumulation Expedition  Tutorial's 1M+ Milestone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/10-commandments-of-eye-catching-podcast-album-imagery-for-2024/"><u>10 Commandments of Eye-Catching Podcast Album Imagery for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-8-best-cinematic-sound-effects-pack-included/"><u>In 2024, 8 Best Cinematic Sound Effects Pack Included</u></a></li>
+</ul></div>

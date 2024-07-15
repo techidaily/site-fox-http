@@ -1,7 +1,7 @@
 ---
 title: "\"Visionary Templates  High-Quality AFX Design Resources for 2024\""
-date: 2024-06-22T18:00:48.945Z
-updated: 2024-06-23T18:00:48.945Z
+date: 2024-07-13T23:07:07.955Z
+updated: 2024-07-14T23:07:07.955Z
 tags: 
   - screen-recording
   - ai video
@@ -69,10 +69,16 @@ This title template is a combination of cyberpunk designs and brush effects to c
 
 ![cyber brush ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/cyber-brush-ae-title-tempalte.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Minimal Titles After Effects Templates
 
 If your goal is to get the message across and you don’t want any colors or effects to interfere with the content, the Minimal Titles After Effects template is probably the best way to go. As the name suggests, there isn’t much going on with these templates and they are designed to simply get the message across. It is the perfect template for a corporate promo video or a brand showcase that doesn’t require too much fanfare. It is fully customizable and available in 4K resolution.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![minimal ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/minimal-ae-title-tempalte.jpg)
 
 ### 7\. Masonry Title After Effects Template
@@ -85,6 +91,9 @@ The complete opposite of the previous title template, the Masonry Title Template
 
 This is an After Effects title template bundle that comes with different types of glitching animations. It is an ideal title to choose for a creative video project, although it may also be useful if your video is dramatic or meant to capture attention. All the templates in the bundle are fully customizable; you can change the color, text, and animation at will.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![glitch ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/glitch-ae-title-tempalte.jpg)
 
 ### 9\. Cinematic After Effects Title Template
@@ -233,6 +242,18 @@ This is another great title template that you can choose if you want animations 
 
 ![cinematic ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/cinematic-ae-title-tempalte.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10\. Abstract Titles After Effects Text Animations
 
 If you are looking for a wide variety of choices when it comes to animations, this is a good template bundle to consider. The templates in this bundle have some of the best text effects that we have seen anywhere and there are multiple styles of title scenes to choose from. Each one of the titles is fully customizable and they are ideal for business or professional videos.
@@ -338,3 +359,42 @@ Step4 You can then use the “Effects Window” to change the color as desired.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-dive-deep-comprehensive-tutorial-for-launching-a-product-vlog-channel/"><u>[Updated] In 2024, Dive Deep  Comprehensive Tutorial for Launching a Product Vlog Channel</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-guide-to-the-finest-3d-blu-ray-equipment-for-2024/"><u>[Updated] Ultimate Guide to the Finest 3D Blu-Ray Equipment for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-top-10-iphone-and-android-apps-to-add-stickers-on-your-photos/"><u>In 2024, Top 10 iPhone and Android Apps to Add Stickers on Your Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-techniques-for-unbiased-and-structured-interviews/"><u>[New] In 2024, Techniques for Unbiased and Structured Interviews</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-uncover-the-best-free-ultimate-3d-videos-playing-solutions-for-2024/"><u>[New] Uncover the Best Free, Ultimate 3D Videos Playing Solutions for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/mastering-tempo-adjustment-in-songs-without-shifting-tonal-accuracy/"><u>Mastering Tempo Adjustment in Songs without Shifting Tonal Accuracy</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-humor-and-memes-galore-iphones/"><u>[New] Humor & Memes Galore, iPhones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-in-depth-study-androids-lightroom-app-functionality/"><u>[Updated] In 2024, In-Depth Study  Android's Lightroom App Functionality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-first-lessons-in-frame-rate-and-fidelity-for-newbies-for-2024/"><u>The First Lessons in Frame Rate and Fidelity for Newbies for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/spectacular-stop-motion-animations-15-list/"><u>Spectacular Stop-Motion Animations #15 List</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-your-first-video-journey-using-pixiz-effectively/"><u>[New] Your First Video Journey  Using Pixiz Effectively</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-epicurean-elites-top-food-vloggers-you-cant-miss/"><u>[Updated] 2024 Approved  Epicurean Elites  Top Food Vloggers You Can't Miss</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-a-primer-on-selecting-superior-free-srt-translator-platforms/"><u>[Updated] A Primer on Selecting Superior Free SRT Translator Platforms</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-cultivating-excellence-the-top-7-stardew-mods-ranked-7-14/"><u>[New] Cultivating Excellence - The Top 7 Stardew Mods (Ranked #7-14)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premier-presenter-label-provider-for-2024/"><u>Premier Presenter Label Provider for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-capturing-stability-mastering-shaky-images/"><u>2024 Approved  Capturing Stability  Mastering Shaky Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-close-up-views-on-web-conferencing-for-2024/"><u>[New] Mastering Close-Up Views on Web Conferencing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-subject-shine-clearing-backdrop-in-photos/"><u>[New] 2024 Approved  Subject Shine  Clearing Backdrop in Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-exploring-every-aspect-of-picsart-a-compre-cookie/"><u>[Updated] Exploring Every Aspect of PicsArt  A Compre Cookie</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/the-cloud-animators-toolkit-stop-motion-software-tips-and-tricks-for-2024/"><u>The Cloud Animators Toolkit Stop Motion Software, Tips, and Tricks for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-harness-the-web-to-preserve-and-share-live-music-sounds-for-2024/"><u>[New] Harness the Web to Preserve and Share Live Music Sounds for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-easy-to-follow-guide-recording-non-root-android-sounds/"><u>[Updated] In 2024, Easy-to-Follow Guide  Recording Non-Root Android Sounds</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/epic-historical-combat-showdowns-the-top-7-games/"><u>Epic Historical Combat Showdowns – The Top 7 Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-instantaneous-access-to-high-quality-passport-selfies-free-desktopweb-tool/"><u>[Updated] In 2024, Instantaneous Access to High-Quality Passport Selfies – Free Desktop/Web Tool</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-topeight-innovative-4k-blu-ray-player-options/"><u>[New] 2024 Approved  TopEight  Innovative 4K Blu-Ray Player Options</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-prime-sd-card-selections-for-optimal-gopro-hero-78-performance-for-2024/"><u>[New] Prime SD Card Selections for Optimal GoPro Hero 7/8 Performance for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-realism-refined-how-to-use-motion-blur-in-faces-using-picsart/"><u>[New] Realism Refined  How to Use Motion Blur in Faces Using Picsart</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-into-the-heart-of-windows-10-flawless-media-import-techniques-for-2024/"><u>[New] Into the Heart of Windows 10  Flawless Media Import Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-digital-asset-preservation-with-adobe-and-exploring-best-non-adobe-options/"><u>[New] In 2024, Mastering Digital Asset Preservation with Adobe & Exploring Best Non-Adobe Options</u></a></li>
+<li><a href="https://fox-http.techidaily.com/slow-it-down-on-iphone-filming-and-modifying-motion-content/"><u>Slow It Down on iPhone  Filming & Modifying Motion Content</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/break-the-chain-of-interruptions-on-facebook-lives/"><u>Break the Chain of Interruptions on Facebook Lives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-streamlining-your-workflow-with-zooms-pre-meeting-protocol/"><u>[Updated] 2024 Approved  Streamlining Your Workflow with Zoom's Pre-Meeting Protocol</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-experts-resource-advanced-screen-capture-techniques-by-zd/"><u>The Expert's Resource  Advanced Screen Capture Techniques by ZD</u></a></li>
+<li><a href="https://fox-http.techidaily.com/steps-for-initiating-a-social-media-charity-drive-for-2024/"><u>Steps for Initiating a Social Media Charity Drive for 2024</u></a></li>
+</ul></div>

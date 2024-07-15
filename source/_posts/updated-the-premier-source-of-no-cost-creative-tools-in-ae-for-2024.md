@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Premier Source of No-Cost Creative Tools in AE for 2024\""
-date: 2024-06-22T17:32:47.576Z
-updated: 2024-06-23T17:32:47.576Z
+date: 2024-07-13T22:36:47.106Z
+updated: 2024-07-14T22:36:47.106Z
 tags: 
   - screen-recording
   - ai video
@@ -145,10 +145,16 @@ Step1 Select all the layers that you have created so far and then go to “Layer
 
 Step2 Move the playhead to about 3 seconds and then click on “Edit” and select “Split Layer.” Delete the top Split Layer.”
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![delete the top split layer](https://images.wondershare.com/filmora/article-images/2022/07/delete-the-top-split-layer.jpg)
 
 Step3 Select the comp that is remaining and click on “Edit” to select “Duplicate.”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit duplicate ae](https://images.wondershare.com/filmora/article-images/2022/07/edit-duplicate-ae.jpg)
 
 Step4 Right-click on the duplicated layer and choose “Time” to select “Time Reverse Layer.”
@@ -191,6 +197,9 @@ If your video has a futuristic theme, the Future Action After Effects Title Temp
 
 This is a relatively simple, but very effective title template that can be used for a variety of videos. Its minimalistic effect makes it an ideal solution for a wide range of genres and it is fully customizable, meaning that you can change the colors and text as needed.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![arrive ae title tempalte](https://images.wondershare.com/filmora/article-images/2022/07/arrive-ae-title-tempalte.jpg)
 
 ### 3\. Laser After Effects Title Templates
@@ -251,6 +260,9 @@ Use this method to add a simple animation to your video’s title. This is an id
 
 Step1 Start by creating a new composition and then go to the crosshair icon under the preview window and select “Title/Action Safe.” This enables “Title Safe” which will add a guide to the screen to make sure your titles remain in the correct place.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![line title animation ae](https://images.wondershare.com/filmora/article-images/2022/07/line-title-animation-ae.jpg)
 
 Step2 Click on the Text Tool and type in your title. You can use the “Character Window” on the right to change the font, size, and formatting for the video.
@@ -340,3 +352,78 @@ Step4 You can then use the “Effects Window” to change the color as desired.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elucidating-techniques-in-user-motion-detection/"><u>2024 Approved  Elucidating Techniques in User Motion Detection</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-inside-asuss-proart-pa-329q-a-full-review-of-a-top-tier-workstation-monitor/"><u>2024 Approved  Inside Asus’s ProArt PA 329Q  A Full Review of a Top-Tier Workstation Monitor</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-evaluating-a-64gb-drive-writable-by-videos/"><u>2024 Approved  Evaluating a 64GB Drive' Writable by Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/cinematic-brilliance-through-masterful-application-of-luts-from-cg-central/"><u>Cinematic Brilliance Through Masterful Application of Luts From CG Central</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-next-level-splitting-tools-beyond-xsplit/"><u>In 2024, Next-Level Splitting Tools Beyond Xsplit</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-free-techniques-to-change-your-characters-voice-and-sound-identity-in-free-fire-gaming/"><u>2024 Approved  Free Techniques to Change Your Character's Voice and Sound Identity in Free Fire Gaming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-leveraging-live-streaming-for-maximum-impact-on-youtube-with-limited-subscribers/"><u>2024 Approved  Leveraging Live Streaming for Maximum Impact on YouTube with Limited Subscribers</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-blender-is-an-open-source-cross-platform-3d-graphics-program-but-this-doesnt-mean-its-a-low-rent-option-for-2024/"><u>New Blender Is an Open-Source Cross-Platform 3D Graphics Program, but This Doesnt Mean Its a Low-Rent Option for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-becoming-a-youtube-pro-the-ultimate-picture-post-guide/"><u>2024 Approved  Becoming a YouTube Pro  The Ultimate Picture Post Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-cash-in-comms-how-much-does-youtube-star-pewdopeep-make/"><u>2024 Approved  Cash in Comms  How Much Does YouTube Star PewDoPeep Make?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nokia-c32-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nokia C32 to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-srt-creation-a-comprehensive-manual-and-tricks/"><u>2024 Approved  Mastering SRT Creation  A Comprehensive Manual & Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-essential-guide-to-top-16-free-video-enthusiasts/"><u>2024 Approved  Essential Guide to Top 16 Free Video Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-enhancing-your-drones-visual-capabilities-with-the-right-camera-gimbals/"><u>2024 Approved  Enhancing Your Drones' Visual Capabilities with The Right Camera Gimbals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-nine-key-points-before-investing-in-a-new-4k-lens/"><u>2024 Approved  Nine Key Points Before Investing in a New 4K Lens</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-emulate-action-with-kinetic-blur-effects/"><u>2024 Approved  Emulate Action with Kinetic Blur Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-explore-best-selections-for-youtube-ringtone-downloads/"><u>2024 Approved  Explore Best Selections for YouTube Ringtone Downloads</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gear-up-essential-asmr-microphones-to-consider/"><u>[New] 2024 Approved  Gear Up  Essential ASMR Microphones to Consider</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pictomixer-dynamic-media-player-for-macos/"><u>2024 Approved  PictoMixer  Dynamic Media Player for macOS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-vida-transform-your-video-creations/"><u>2024 Approved  Discover Vida  Transform Your Video Creations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-a-step-further-elite-video-editing-hacks-for-tiktok/"><u>[Updated] In 2024, A Step Further  Elite Video Editing Hacks for TikTok</u></a></li>
+<li><a href="https://some-tips.techidaily.com/utilizing-b-roll-in-video-production-effectively-for-2024/"><u>Utilizing B-Roll in Video Production Effectively for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-a-guide-to-the-best-headsets-and-goggles-in-metaverse/"><u>2024 Approved  A Guide to the Best Headsets and Goggles in Metaverse</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-out-of-obscurity-reversing-tiktoks-stealth-ban/"><u>[Updated] 2024 Approved  Out of Obscurity  Reversing TikTok's Stealth Ban</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elevate-your-works-discover-the-elite-6-in-nft-creativity/"><u>2024 Approved  Elevate Your Works  Discover the Elite 6 in NFT Creativity</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-enhance-clarity-in-social-video-downloads-for-smartphonestablets/"><u>[Updated] 2024 Approved  Enhance Clarity in Social Video Downloads for Smartphones/Tablets</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-rapid-instagram-video-viewing-techniques/"><u>[Updated] In 2024, Rapid Instagram Video Viewing Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-decoding-auroras-advanced-photographic-capabilities/"><u>2024 Approved  Decoding Aurora's Advanced Photographic Capabilities</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-best-frame-rate-selection-for-effective-slow-motion-capture/"><u>2024 Approved  Best Frame Rate Selection for Effective Slow Motion Capture</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-nokia-c22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-chip-harmony-editors-reap-the-benefits-of-syncopated-precision/"><u>2024 Approved  Chip Harmony  Editors Reap the Benefits of Syncopated Precision</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-y200e-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo Y200e 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elite-android-3d-entertainment-hub/"><u>2024 Approved  Elite Android 3D Entertainment Hub</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-reno-8t-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo Reno 8T To Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-risks-in-accepting-everyones-friendship-overtures/"><u>The Hidden Risks in Accepting Everyone's Friendship Overtures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-download-apple-podcasts/"><u>2024 Approved  How to Download Apple Podcasts?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-integrating-background-footage-for-enhanced-narratives/"><u>2024 Approved  Integrating Background Footage for Enhanced Narratives</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-oppo-a1-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Oppo A1 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-jestful-journeys-an-in-depth-goofy-movie-review/"><u>2024 Approved  'Jestful Journeys'  An In-Depth Goofy Movie Review</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-x-fold-2-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-your-mobile-film-game-best-9-camera-add-ons-for-vloggers/"><u>Boost Your Mobile Film Game  Best 9 Camera Add-Ons For Vloggers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-review-of-top-mp4-players/"><u>2024 Approved  Exclusive Review of Top MP4 Players</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-essential-guide-to-youtubes-premier-unboxers/"><u>2024 Approved  Essential Guide to YouTube's Premier Unboxers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-top-5-election-simulation-games/"><u>[New] Top 5 Election Simulation Games</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-sky-high-engagement-50plus-outstanding-tiktok-username-ideas/"><u>[Updated] 2024 Approved  Sky-High Engagement  50+ Outstanding TikTok Username Ideas</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/seamless-transition-exploring-the-best-free-online-and-offline-audio-conversion-software-for-2024/"><u>Seamless Transition Exploring the Best Free Online & Offline Audio Conversion Software for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-infusing-identity-tips-for-iconic-podcast-graphics/"><u>2024 Approved  Infusing Identity  Tips for Iconic Podcast Graphics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-cutting-edge-meme-creation-app/"><u>2024 Approved  Cutting-Edge Meme Creation App</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-auditory-aesthetics-choosing-the-right-soundtracks-for-boxings/"><u>[New] Auditory Aesthetics  Choosing the Right Soundtracks for Boxings</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/every-frame-matters-top-11-multi-angle-photography-gems-for-2024/"><u>Every Frame Matters  Top 11 Multi-Angle Photography Gems for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-software-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-vivo-y77t-by-stellar-video-repair-mobile-video-repair/"><u>Best software to Fix and Repair Corrupt MP4,MOV,AVI video files of Vivo Y77t</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-switching-on-windows-11s-adaptive-hdr-option/"><u>2024 Approved  Switching On Windows 11'S Adaptive HDR Option</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-top-picks-video-grabbers-on-microsofts-os/"><u>[New] 2024 Approved  Top Picks  Video Grabbers on Microsoft's OS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-gentle-fading-audio-paths-in-live/"><u>2024 Approved  Gentle Fading Audio Paths in Live</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-adoption-trends-for-arvr-shopping/"><u>2024 Approved  Adoption Trends for AR/VR Shopping</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-vivo-y27-5g-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Vivo Y27 5G</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ideal-iphone-photo-apps-for-slide-shows-xr-to-x/"><u>2024 Approved  Ideal iPhone Photo Apps for Slide Shows (XR to X)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-capturing-every-corner-our-top-picks-for-best-11-bridge-cameras/"><u>2024 Approved  Capturing Every Corner  Our Top Picks for Best 11 Bridge Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-cloud-economy-unveiling-best-deals/"><u>2024 Approved  Cloud Economy  Unveiling Best Deals</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-tiktok-mastery-securing-your-content-with-android-and-ios-tools/"><u>[New] 2024 Approved  TikTok Mastery  Securing Your Content with Android & iOS Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-exclusive-performers-webcasts/"><u>2024 Approved  Exclusive Performers' Webcasts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-apple-iphone-14-pro-max-for-free-by-drfone-ios/"><u>How To Unlock Cricket Apple iPhone 14 Pro Max for Free</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elite-silent-input-transcription-suites/"><u>2024 Approved  Elite Silent Input Transcription Suites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-gamers-guide-to-best-4k-laptop-models/"><u>2024 Approved  Gamer's Guide to Best 4K Laptop Models</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-bridging-gap-integrating-zoom-into-your-gmail-setup/"><u>2024 Approved  Bridging Gap  Integrating Zoom Into Your Gmail Setup</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-chromebook-pitch-and-timbre-control-guide-the-leading-online-speech-modifiers/"><u>2024 Approved  Chromebook Pitch and Timbre Control Guide  The Leading Online Speech Modifiers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-hps-visionary-color-display-dissecting-the-z32x-monitor/"><u>2024 Approved  HP’s Visionary Color Display  Dissecting the Z32X Monitor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfect-podcast-summaries-strategies-and-case-studies/"><u>2024 Approved  Perfect Podcast Summaries  Strategies & Case Studies</u></a></li>
+</ul></div>

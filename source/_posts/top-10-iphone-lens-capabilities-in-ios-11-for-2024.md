@@ -1,7 +1,7 @@
 ---
 title: "Top 10 iPhone Lens Capabilities in iOS 11 for 2024"
-date: 2024-06-22T17:33:26.076Z
-updated: 2024-06-23T17:33:26.076Z
+date: 2024-07-13T22:37:29.302Z
+updated: 2024-07-14T22:37:29.302Z
 tags: 
   - screen-recording
   - ai video
@@ -80,6 +80,9 @@ thumbnail: https://thmb.techidaily.com/197c2ed369e4a9919f13d946f77f5157856e3dbfa
 
 #### 7\. Take Selfies in Portrait Mode - Only for iPhone X
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/selfie-portrait-mode-iphone.jpg)
 
  Image resource: Tom's Guide
@@ -92,12 +95,18 @@ thumbnail: https://thmb.techidaily.com/197c2ed369e4a9919f13d946f77f5157856e3dbfa
 
 #### 9\. Dual Optical Image Stabilization Lets you Take Better Photos - iPhone X/8
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/dual-image-stabilization-iphone.jpg)
 
  Keeping the moving objects in focus is a major concern regardless of the camera you are using. We were excited about the [dual camera feature in iPhone 7](https://tools.techidaily.com/wondershare/filmora/download/), now the Dual Optical Image Stabilization feature in iOS 11 reduces motion blur and it also decreases the impact the camera shakes have on your photos. iPhone 8's Optical Image Stabilization has been improved on iPhone X and it works alongside the image sensor to ensure that all pictures taken with this device are razor sharp.
 
 #### 10\. Portrait Lighting Lets You Adjust Light to Best Fit Your Subject - iPhone X/8
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/portrait-lighting-iphone.jpg)
 
  iPhone 8 Plus and iPhone X offer a new feature, specifically designed to let you find the perfect lighting for the subject of your photos. This feature doesn't work like a filter, but rather like a real-time light meter, that calculates the optimum light values on the face of the person or persons depicted in a photo.
@@ -106,6 +115,9 @@ thumbnail: https://thmb.techidaily.com/197c2ed369e4a9919f13d946f77f5157856e3dbfa
 
  iPhone photographers, who would like to take their photos and videos a step further will unquestionably benefit from using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The editor lets you create 9:16 aspect ratio images, designed to help mobile users who don't want to have the black bars alongside the edges of their vertically oriented photos and videos. Adding blur effects to your photos or videos, enhancing the colors or applying effects to your videos are just a few out of many possibilities provided by the Wondershare's software.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
@@ -134,3 +146,63 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-premier-winpodcast-options-reviewed/"><u>[New] Premier WinPodcast Options Reviewed</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-quicktime-mov-editor-roundup-top-10-free-options/"><u>2024 Approved QuickTime MOV Editor Roundup Top 10 Free Options</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-class-adding-podcasts-to-instagram-features-for-2024/"><u>[Updated] Master Class  Adding Podcasts to Instagram Features for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-step-by-step-path-to-smm-victory/"><u>[Updated] 2024 Approved  Step-by-Step Path to SMM Victory</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-hazy-endings-how-to-black-out-with-pro/"><u>In 2024, Hazy Endings  How to Black Out with Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-audio-dimming-the-live-approach/"><u>In 2024, Audio Dimming  The Live Approach</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-ioss-leading-edge-the-top-5-emulators-for-psp-games/"><u>[New] In 2024, IOS's Leading Edge  The Top 5 Emulators for PSP Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-perfecting-time-lapse-videos-on-a-gopro-hero5-black/"><u>[Updated] 2024 Approved  Perfecting Time-Lapse Videos on a GoPro Hero5 Black</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-comprehensive-guide-to-top-8-collaborative-video-collage-tools-android/"><u>2024 Approved  The Comprehensive Guide to Top 8 Collaborative Video Collage Tools (Android)</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-the-future-of-clear-communication-integrating-ai-to-combat-noise/"><u>New The Future of Clear Communication Integrating AI to Combat Noise</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-branding-beats-technicalities-focus-on-your-streams-signature-style-for-2024/"><u>[Updated] Branding Beats Technicalities  Focus on Your Stream's Signature Style for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-refine-your-remote-sessions-zoom-in-effectively-for-2024/"><u>[New] Refine Your Remote Sessions  Zoom in Effectively for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-drones-that-follow-you-back-top-10-drone-leaders/"><u>2024 Approved  Drones That Follow You Back - Top 10 Drone Leaders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-newbie-vlogger-tips-simple-video-concepts/"><u>[Updated] Newbie Vlogger Tips  Simple Video Concepts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-panoramic-power-play-gear-vs-lgcam-showdown-for-2024/"><u>[New] Panoramic Power Play  Gear vs LGCam Showdown for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-iphone-laughs-and-lightheartedness/"><u>2024 Approved  IPhone Laughs & Lightheartedness</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-perfect-pals-and-plotlines-the-10-best-family-flicks/"><u>[Updated] In 2024, Perfect Pals and Plotlines  The 10 Best Family Flicks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unearthing-vivas-video-capabilities/"><u>[Updated] Unearthing Viva's Video Capabilities</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-maximizing-your-dslr-footage-with-pc-or-mac-for-social-media/"><u>[Updated] Maximizing Your DSLR Footage with PC or Mac for Social Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-craft-clever-comical-content/"><u>In 2024, Craft Clever, Comical Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-decoding-dimensions-the-key-to-perfect-aspect-ratios-in-video/"><u>[Updated] In 2024, Decoding Dimensions  The Key to Perfect Aspect Ratios in Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-tips-for-transforming-twitter-videos-into-audio-songs-mp3/"><u>[Updated] 2024 Approved  Tips for Transforming Twitter Videos Into Audio Songs (MP3)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagrams-essential-edits-the-definitive-list-of-apps/"><u>Instagram's Essential Edits  The Definitive List of Apps</u></a></li>
+<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-getting-fcp-on-the-house-simple-steps/"><u>[Updated] In 2024, Getting FCP on the House - Simple Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-quest-for-immersion-reviewing-benqs-ultra-hd-sw320-for-2024/"><u>[New] The Quest for Immersion  Reviewing BenQ's Ultra HD SW320 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-peeps-funny-photos-iphones-style/"><u>[Updated] 2024 Approved  Peeps' Funny Photos, iPhones Style</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-instant-guide-how-to-safely-gratisly-download-vlc-on-macos/"><u>[New] Instant Guide  How to Safely, Gratisly Download VLC on MacOS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-future-is-in-your-cloud-price-rankings-and-bargains-2024/"><u>[Updated] The Future Is in Your Cloud  Price Rankings & Bargains 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-list-premier-online-church-service-sites/"><u>Essential List  Premier Online Church Service Sites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-soaring-strengths-top-10-industrial-drones/"><u>2024 Approved  Soaring Strengths  Top 10 Industrial Drones</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unlocking-social-media-stardom-essential-strategies-for-instagram-fame-for-2024/"><u>[New] Unlocking Social Media Stardom  Essential Strategies for Instagram Fame for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/live-follower-tracker-software-for-2024/"><u>Live Follower Tracker Software for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/iscover-the-most-reliable-royalty-free-audio-libraries-for-2024/"><u>[New] Discover the Most Reliable Royalty-Free Audio Libraries for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-authenticate-your-yt-account-a-hint-list-for-2024/"><u>[New] How to Authenticate Your YT Account? A Hint List for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/nikon-d500-at-a-glance-the-frontiers-of-4k-hd/"><u>Nikon D500 at a Glance  The Frontiers of 4K HD</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlocking-income-from-youtube-as-a-newbie/"><u>2024 Approved  Unlocking Income From YouTube as a Newbie</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-picks-premium-iphone-tune-selectors/"><u>Top Picks  Premium iPhone Tune Selectors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/10-essential-iphone-photo-layout-principles/"><u>10 Essential iPhone Photo Layout Principles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unifying-platforms-the-art-of-incorporating-linktree-in-tiktok-biographies/"><u>[Updated] 2024 Approved  Unifying Platforms  The Art of Incorporating Linktree in TikTok Biographies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-8-virtual-backdrops-for-macbook-upgrades-for-2024/"><u>[Updated] Best 8 Virtual Backdrops for MacBook Upgrades for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unveiling-immersion-the-lg-360-virtual-reality-experience/"><u>[New] Unveiling Immersion  The LG 360 Virtual Reality Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/wondershare-photo-story-platinum-for-2024/"><u>Wondershare Photo Story Platinum for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/three-key-strategies-to-frame-your-insta-films-better/"><u>Three Key Strategies to Frame Your Insta Films Better</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-top-10-free-audio-to-text-transformers-for-effortless-file-editing-wondershare-videomaker-for-2024/"><u>Updated Top 10 Free Audio-to-Text Transformers for Effortless File Editing - Wondershare VideoMaker for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-step-by-step-guide-transforming-audacity-files-into-mp3-songs/"><u>Updated Step-by-Step Guide Transforming Audacity Files Into MP3 Songs</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/the-ultimate-list-of-online-lyric-video-creators-you-need-to-know-for-2024/"><u>The Ultimate List of Online Lyric Video Creators You Need to Know for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-the-art-of-purchasing-drones-insider-advice/"><u>[Updated] Mastering the Art of Purchasing Drones  Insider Advice</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveil-the-8-greatest-places-to-download-3d-text-psd-files/"><u>[Updated] Unveil the 8 Greatest Places to Download 3D Text PSD Files</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-beyond-the-basics-transformative-tactics-for-facebook-advertising/"><u>[Updated] In 2024, Beyond the Basics  Transformative Tactics for Facebook Advertising</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unlocking-success-with-spotify-marketing-tips/"><u>[Updated] Unlocking Success with Spotify Marketing Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-a-guide-to-unwavering-visual-captures/"><u>[New] 2024 Approved  A Guide to Unwavering Visual Captures</u></a></li>
+</ul></div>

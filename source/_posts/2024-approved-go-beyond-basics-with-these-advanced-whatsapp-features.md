@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Go Beyond Basics with These Advanced WhatsApp Features\""
-date: 2024-06-29T18:52:37.929Z
-updated: 2024-06-30T18:52:37.929Z
+date: 2024-07-13T23:46:57.203Z
+updated: 2024-07-14T23:46:57.203Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,9 @@ With more than a billion active users worldwide, WhatsApp is now among the prima
 * [What are the Hidden Features of WhatsApp?](#part2)
 * [Edit WhatsApp Videos with Ease](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cool WhatsApp Text Tricks to Make You Look Edgy
 
 You can do a lot of things with your WhatsApp fonts, appearance, and texts that will make your messages look oh-so-edgy! From italics, bold, strikethrough to monospace there are plenty of text formatting tricks to dress up your epic announcements, festive greetings et al. Rounding it all, here are the best WhatsApp Typing Tricks you can use right away.
@@ -40,12 +43,18 @@ You can do a lot of things with your WhatsApp fonts, appearance, and texts that 
 
 Yes, you can bold your text. Just add a star (\*) symbol before and after your text. Don’t use space between the \* and the letter.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Bold](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-bold.jpg)
 
 #### 2.Italic
 
 Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol (\_text\_) at the starting and end of your sentence.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
 #### 3.Strikethrough
@@ -154,6 +163,9 @@ This is as simple as it sounds. Tap and hold to select a message in a group and 
 
 Manage how you are notified of messages from specific contacts and groups. Go to the main page of the contact or group you wish to customize, and there you will find Custom Notifications. Activate the mode to open a wide range of options - notification tones, pop up, preview, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
 Source: beebom.com
@@ -208,3 +220,66 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-podcasters-roadmap-to-seo-excellence/"><u>2024 Approved  The Podcaster’s Roadmap to SEO Excellence</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/in-2024-a-comprehensive-list-of-the-top-spongebob-voice-generators/"><u>In 2024, A Comprehensive List of The Top SpongeBob Voice Generators</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-keyboard-kings-and-queens-a-premium-free-royalty-free-collection-of-film-ready-piano-soundtracks/"><u>New 2024 Approved Keyboard Kings & Queens A Premium, Free Royalty-Free Collection of Film-Ready Piano Soundtracks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-samsung-galaxy-m14-5g-easily-by-drfone-android/"><u>How To Unlock a Samsung Galaxy M14 5G Easily?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unveiling-the-top-6-nft-environments-for-creatives-for-2024/"><u>[New] Unveiling the Top 6 NFT Environments for Creatives for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-complete-overview-bublcam-360-camera-explored/"><u>[Updated] Complete Overview  Bublcam 360 Camera Explored</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-screen-free-entertainment-top-10-best-offline-ipad-games/"><u>[New] Screen-Free Entertainment  Top 10 Best Offline iPad Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-start-shooting-smart-top-15-shot-techniques-for-beginners/"><u>[Updated] Start Shooting Smart  Top 15 Shot Techniques for Beginners</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-a-step-by-step-process-for-podcast-rss-creation/"><u>2024 Approved  A Step-by-Step Process for Podcast RSS Creation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-television-or-projector-for-peak-4k-performance/"><u>[Updated] Television or Projector for Peak 4K Performance?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-unlocking-tiktoks-photoshop-magic-effortlessly/"><u>In 2024, Unlocking TikTok's Photoshop Magic Effortlessly</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-x9a-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from X9a.</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-reactivating-the-silenced-obs-video-feed-for-2024/"><u>[New] Reactivating the Silenced OBS Video Feed for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/reclaiming-brightness-in-youtube-videos-for-2024/"><u>Reclaiming Brightness in YouTube Videos for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/make-your-moments-shine-top-highlight-video-editing-software-for-2024/"><u>Make Your Moments Shine Top Highlight Video Editing Software for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/through-virtual-lenses-a-historical-view-for-2024/"><u>Through Virtual Lenses  A Historical View for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-10-best-creative-youtube-video-reaction-ideas-you-should-know/"><u>In 2024, 10 Best Creative YouTube Video Reaction Ideas You Should Know</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-from-vid-to-gif-28-expert-approved-conversion-software/"><u>New 2024 Approved From Vid to GIF 28 Expert-Approved Conversion Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-identifying-relevant-metaphors-and-analogies/"><u>2024 Approved  Identifying Relevant Metaphors and Analogies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-guide-to-the-finest-3d-blu-ray-equipment-for-2024/"><u>[Updated] Ultimate Guide to the Finest 3D Blu-Ray Equipment for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/it-s-easy-to-share-your-winning-forex-trades-with-friends-and-family-by-mt4copier-guide/"><u>It's Easy to Share Your Winning Forex Trades With Friends and Family</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-capturing-stunning-time-lapses-on-galaxys/"><u>The Ultimate Guide to Capturing Stunning Time-Lapses on Galaxys</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-prime-mobileweb-invest-in-no-cost-imagery-upgrade/"><u>[Updated] In 2024, Prime Mobile/Web  Invest in No-Cost Imagery Upgrade</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-list-top-10-high-res-4k-cameras-in-smartphones/"><u>Ultimate List  Top 10 High-Res 4K Cameras in Smartphones</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-exploring-top-open-source-video-tools-for-pcs-and-macs-for-2024/"><u>[Updated] Exploring Top Open Source Video Tools for PCs and Macs for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-story-tempo-adjusting-video-speed-in-instagram/"><u>In 2024, Mastering Story Tempo  Adjusting Video Speed in Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-key-elements-in-constructing-a-podcast-rss-feed-for-2024/"><u>[Updated] Key Elements in Constructing a Podcast RSS Feed for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-making-your-videos-farewell-count-outro-essentials/"><u>[Updated] Making Your Video's Farewell Count  Outro Essentials</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-selecting-superior-gopro-casings-our-top-picks-for-2024/"><u>[Updated] Selecting Superior GoPro Casings - Our Top Picks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-8-stabilizers-optimal-tools-for-4k-camera-shooting-for-2024/"><u>Top 8 Stabilizers  Optimal Tools for 4K Camera Shooting for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-explore-virtual-lands-the-best-10-smartphone-vr-headsets/"><u>[Updated] Explore Virtual Lands  The Best 10 Smartphone VR Headsets</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppo-a59-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppo A59 5Gwith/without a PC</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transform-your-web-exploration-with-microsofts-split-screen-functionality/"><u>Transform Your Web Exploration with Microsoft's Split Screen Functionality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/superior-architects-cutting-edge-instagram-hlv-makers/"><u>Superior Architects  Cutting-Edge Instagram HLV Makers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultra-30-camera-a-detailed-examination-by-garmin-for-2024/"><u>[New] The Ultra 30 Camera - A Detailed Examination by Garmin for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instaloops-unleashed-the-ultimate-guide-to-engagement/"><u>[Updated] InstaLoops Unleashed  The Ultimate Guide to Engagement</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-exploring-the-dynamics-of-canon-timelapse-imagery/"><u>[Updated] 2024 Approved  Exploring the Dynamics of Canon Timelapse Imagery</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-love-and-light-nine-essential-filmora-elements/"><u>[New] Love and Light  Nine Essential Filmora Elements</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-adobe-illustrator-adding-smooth-motion-blurs/"><u>[New] In 2024, Mastering Adobe Illustrator  Adding Smooth Motion Blurs</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlocking-true-tints-and-shades-in-photos/"><u>Unlocking True Tints and Shades in Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/visionary-templates-high-quality-afx-design-resources-for-2024/"><u>Visionary Templates  High-Quality AFX Design Resources for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tap-into-endless-visual-archives-from-top-4-video-platforms/"><u>[Updated] Tap Into Endless Visual Archives From Top 4 Video Platforms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-decoding-windows-11-new-functionality/"><u>[Updated] Decoding Windows 11 New Functionality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/step-by-step-guide-fixing-non-operational-srt-exports/"><u>Step-by-Step Guide  Fixing Non-Operational SRT Exports</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-critical-5-changes-in-apple-phone-photoshoot-settings/"><u>[Updated] Critical 5 Changes in Apple Phone Photoshoot Settings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-shining-spotlight-on-luminous-hdr-techniques/"><u>[New] Shining Spotlight on Luminous HDR Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-updating-your-skills-regularly/"><u>[Updated] 2024 Approved  Updating Your Skills Regularly</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-smirk-spotlights-showcasing-7-comedic-content-pieces/"><u>2024 Approved  Smirk Spotlights  Showcasing 7 Comedic Content Pieces</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-definitive-list-of-cam-covers-for-secure-shopping-for-2024/"><u>[Updated] The Definitive List of Cam Covers for Secure Shopping for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-leading-sites-for-3d-type-artistry/"><u>2024 Approved  Leading Sites for 3D Type Artistry</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/rank-the-best-comparative-study-of-6-hdmi-21-monitors-for-2024/"><u>Rank the Best  Comparative Study of 6 HDMI 2.1 Monitors for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dive-into-the-world-of-superior-no-cost-webm-viewers/"><u>[Updated] Dive Into the World of Superior No-Cost WebM Viewers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-transforming-footage-a-guide-to-gopro-color-tweaks/"><u>[Updated] Transforming Footage  A Guide to GoPro Color Tweaks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/playback-of-srt-audio-files-in-computers-windowsmacos/"><u>Playback of SRT Audio Files in Computers (Windows/macOS)</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-no-cost-commercial-images-the-ultimate-resource-list/"><u>Updated No-Cost Commercial Images The Ultimate Resource List</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-exploring-the-worlds-top-8-rapidly-expanding-video-platforms/"><u>2024 Approved  Exploring the World's Top 8 Rapidly Expanding Video Platforms</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-apple-iphone-8-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From Apple iPhone 8</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-essential-zooid-creation-samples/"><u>[Updated] Essential Zooid Creation Samples</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-iphone-14-plus-device-from-icloud-by-drfone-ios/"><u>How to Remove iPhone 14 Plus Device from iCloud</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Understanding Invisible Social Signals in Online Media"
-date: 2024-06-22T17:18:01.073Z
-updated: 2024-06-23T17:18:01.073Z
+date: 2024-07-13T22:20:43.011Z
+updated: 2024-07-14T22:20:43.011Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,9 @@ Given how many students have smartphones, video is an excellent medium for conne
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 ## How to See Liked Comments on YouTube?
@@ -155,12 +158,15 @@ When you click over to the comments area after receiving a notification about a 
 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
-Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 ## How to See Liked Comments on YouTube?
@@ -205,6 +211,9 @@ Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Cl
 
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
 
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
@@ -253,7 +262,15 @@ When you click over to the comments area after receiving a notification about a 
 
 To put it another way, YouTube flags notable comments for you to ensure that new messages or significant replies aren't lost in the noise. Once you have read or replied to the comment, the highlight will go.
 
-Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Additionally, video creators can manually highlight commenters to mark them for later responses. To do this, click on the comment's timestamp (found next to the commenter's username). Ta-da ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
@@ -280,3 +297,39 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-ultimate-guide-to-the-top-youtube-video-editors/"><u>[Updated] In 2024, Ultimate Guide to the Top YouTube Video Editors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-expand-your-youtube-video-footprint/"><u>How to Expand Your YouTube Video Footprint</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-visually-dominating-podcast-identities-via-logo-designs/"><u>[New] 2024 Approved  Visually Dominating Podcast Identities via Logo Designs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-smiles-snorts-and-sighs-the-finest-meme-accounts-on-ig/"><u>[Updated] In 2024, Smiles, Snorts & Sighs  The Finest Meme Accounts on IG</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-beginners-ultimate-gear-list-for-film-shooting/"><u>[New] In 2024, Beginner's Ultimate Gear List for Film Shooting</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-live-band-webcasts/"><u>2024 Approved  Ultimate Live Band Webcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-action-cameras-face-off-gopro-hero-4-vs-ghost-s-drifting/"><u>2024 Approved  Action Cameras Face Off  GoPro Hero 4 Vs. Ghost-S Drifting</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-gliding-heroes-the-2022-winter-games/"><u>[New] Gliding Heroes  The 2022 Winter Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-best-5-pinterest-video-clips-download-for-no-cost/"><u>2024 Approved  Best 5 Pinterest Video Clips, Download for No Cost</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/avoiding-virtual-reality-nausea-tips-and-tricks/"><u>Avoiding Virtual Reality Nausea  Tips and Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unleashing-creativity-with-tiktok-video-tricks/"><u>[New] 2024 Approved  Unleashing Creativity with TikTok Video Tricks</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-timeless-treasures-unlocked-free-public-works/"><u>2024 Approved  Timeless Treasures Unlocked  Free Public Works</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-nokia-c12-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-how-to-overlay-photos-on-computer-desktop-and-online-for-2024/"><u>[New] How to Overlay Photos on Computer (Desktop & Online) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-how-to-get-more-likes-on-your-tiktok-unboxing-video-for-2024/"><u>[New] How to Get More Likes on Your TikTok Unboxing Video for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/integrate-efficiently-macos-sierra-for-desktop-enhancement/"><u>Integrate Efficiently  MacOS Sierra for Desktop Enhancement</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-how-to-transcribe-audio-to-text-free-on-android-and-ios-for-2024/"><u>Updated How to Transcribe Audio to Text Free on Android and iOS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-windows-phones-ultimate-guide-to-video-apps/"><u>2024 Approved  Windows Phone's Ultimate Guide to Video Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/navigating-affinity-photos-features-to-excise-borders-effectively-for-2024/"><u>Navigating Affinity Photo's Features to Excise Borders Effectively for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-optimal-online-stream-setup-the-vlc-methodology/"><u>[New] Optimal Online Stream Setup  The VLC Methodology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/innovations-in-portraying-chrono-displacement-on-screen-for-2024/"><u>Innovations in Portraying Chrono-Displacement on Screen for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-tier-text-transitions-reels/"><u>[New] 2024 Approved  Top-Tier Text Transitions Reels</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/steps-to-stop-and-resolve-printer-spooling-trouble/"><u>Steps to Stop and Resolve Printer Spooling Trouble</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-cross-promotion-the-art-of-collaborative-co-stars/"><u>2024 Approved  Channel Cross-Promotion  The Art of Collaborative Co-Stars</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-vivid-tone-enhancer-app/"><u>2024 Approved  Vivid Tone Enhancer App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/cinematic-sequence-best-video-cameras-for-extended-slow-motion/"><u>Cinematic Sequence  Best Video Cameras for Extended Slow Motion</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/youtube-boundaries-with-creative-studio-expertise-and-tactics/"><u>Push Youtube Boundaries with Creative Studio Expertise and Tactics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-face-flaunting-visual-guidebook/"><u>[New] Face Flaunting Visual Guidebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-straightforward-approach-to-editing-age-on-tiktok/"><u>[New] 2024 Approved  The Straightforward Approach to Editing Age on TikTok</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-10-online-hubs-for-public-domain-music-in-games/"><u>[New] 2024 Approved  Top 10 Online Hubs for Public Domain Music in Games</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-honor-magic-6-frp-by-drfone-android/"><u>The Updated Method to Bypass Honor Magic 6 FRP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-enhancing-photo-stability-with-the-right-gimbal/"><u>In 2024, Enhancing Photo Stability with the Right Gimbal</u></a></li>
+</ul></div>

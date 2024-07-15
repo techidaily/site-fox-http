@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Visual Flair  A Collection of AE Text Presets\""
-date: 2024-06-22T18:19:21.255Z
-updated: 2024-06-23T18:19:21.255Z
+date: 2024-07-13T23:27:07.412Z
+updated: 2024-07-14T23:27:07.412Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,9 @@ The glitch text effects are extremely common in today's videos as they instantly
 
 ![glitch text effects preset](https://images.wondershare.com/filmora/article-images/2022/09/glitch-text-effects-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Motion Type Text Animation Preset
 
 You should have simple but effective motion text effects in your video so that certain texts and titles can get the message across clearly to the viewers. In this pack, you get amazing motion text effects with and without keyframes. Besides, you get several useful parameters like in-out mirror, reverse in and out, and overshoot that you can tweak to get the desired text animations.
@@ -120,9 +123,9 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 Step1Install Wondershare Filmora and launch the application. Click on New Project option and drop your video clip for the background inside Project Media folder.
 
@@ -134,6 +137,9 @@ Step2Drop the video clip onto timeline if you want to use it as a background to 
 
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select any desired template](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
@@ -144,9 +150,9 @@ Step4Double-click on the text layer and edit the text. Place the text layer on t
 
 If you decide to use Adobe After Effects to add text effects to your video, we have listed the best text presets you should have in your possession. We have also stated how to add text effects to video in After Effects. We recommend Wondershare Filmora as the best video editor to add different types of text effects and animations to your video.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 * [Part 3\. Alternative Way to Create Text Effects for Video](#part3)
 
@@ -178,12 +184,18 @@ If the regular stroke feature is not enough, you have tapered stroke preset that
 
 ![tapered stroke preset](https://images.wondershare.com/filmora/article-images/2022/09/tapered-stroke-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Stranger Things Text Preset
 
 This is a simple but highly effective text preset that gets the serious attention of the viewers. When you apply the effect, the text turns white to red with fade in effect and viewers are most likely to read the displayed text. There is no keyframe but you change the color as well as the fade-in time.
 
 ![stranger things text preset](https://images.wondershare.com/filmora/article-images/2022/09/stranger-things-text-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Text Styles Preset
 
 You get 16 amazing text styles that you can use on your texts and titles to make them look different and refreshing. Thereafter, you can apply any animation you want to amplify the visual appeal. Starting from fiery and neon styles to different variations of 3D effects, these presets bring the fun and the color elements to your text.
@@ -234,9 +246,9 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 Step1Install Wondershare Filmora and launch the application. Click on New Project option and drop your video clip for the background inside Project Media folder.
 
@@ -258,9 +270,9 @@ Step4Double-click on the text layer and edit the text. Place the text layer on t
 
 If you decide to use Adobe After Effects to add text effects to your video, we have listed the best text presets you should have in your possession. We have also stated how to add text effects to video in After Effects. We recommend Wondershare Filmora as the best video editor to add different types of text effects and animations to your video.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -285,3 +297,75 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-fast-track-your-feed-mastering-instagram-likes-and-vids-artistry/"><u>In 2024, Fast-Track Your Feed  Mastering Instagram Likes & Vids Artistry</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-rhythms-of-romance-most-beloved-ballads-for-engagement/"><u>[New] In 2024, Rhythms of Romance  Most Beloved Ballads for Engagement</u></a></li>
+<li><a href="https://fox-http.techidaily.com/navigating-the-nuances-of-nonlinear-audio-editing-in-audacity-for-2024/"><u>Navigating the Nuances of Nonlinear Audio Editing in Audacity for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-expert-tips-6-advanced-strategies-for-gif-artistry/"><u>[New] Expert Tips  6 Advanced Strategies for GIF Artistry</u></a></li>
+<li><a href="https://fox-http.techidaily.com/boosting-online-videography-with-key-tools-for-2024/"><u>Boosting Online Videography with Key Tools for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevating-imagery-detailed-analysis-of-mavic-pro/"><u>In 2024, Elevating Imagery - Detailed Analysis of Mavic Pro</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/becoming-a-video-marketing-vanguard-on-facebook-with-these-20-methods/"><u>Becoming a Video Marketing Vanguard on Facebook with These 20 Methods</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-moto-g23-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Moto G23.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harmonious-blends-using-fades-in-logic-pro-x-for-2024/"><u>[New] Harmonious Blends  Using Fades in Logic Pro X for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-to-success-joining-youtubes-partner-program/"><u>2024 Approved  Step-by-Step to Success  Joining YouTube's Partner Program</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-esl-english-as-second-language-for-vr-for-2024/"><u>[Updated] The ESL (English as Second Language) for VR for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/steady-shots-the-best-free-online-video-stabilizers-reviewed-for-2024/"><u>Steady Shots The Best Free Online Video Stabilizers Reviewed for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-visual-storytelling-scribing-text-over-image-realms-online/"><u>[Updated] Visual Storytelling  Scribing Text over Image Realms Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-strategies-to-ensure-iphone-camera-focus/"><u>[New] 2024 Approved  Strategies to Ensure iPhone Camera Focus</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-launch-your-live-stream-a-comprehensive-beginners-manual/"><u>In 2024, Launch Your Live Stream  A Comprehensive Beginner's Manual</u></a></li>
+<li><a href="https://fox-http.techidaily.com/zigzag-zeal-spotlight-on-snowboard-cross-thrills-winter-olympics-22/"><u>Zigzag Zeal  Spotlight on Snowboard Cross Thrills, Winter Olympics '22</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-revolutionize-your-tiktok-presence-2-effective-ways-using-filmora-techniques/"><u>[New] In 2024, Revolutionize Your TikTok Presence  2 Effective Ways Using Filmora Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-nokia-150-2023-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Nokia 150 (2023)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-instantaneous-access-to-high-quality-passport-selfies-free-desktopweb-tool/"><u>[Updated] In 2024, Instantaneous Access to High-Quality Passport Selfies – Free Desktop/Web Tool</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-extract-and-convert-twitter-videos-hosted-on-youtube-to-mp3s-for-2024/"><u>How to Extract and Convert Twitter Videos Hosted on YouTube to MP3s for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-stand-out-design-and-customize-professional-logos-via-free-templates/"><u>[New] 2024 Approved  Stand Out  Design and Customize Professional Logos via Free Templates</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-auditory-ambience-finder-for-film-and-video-sets/"><u>[New] Auditory Ambience Finder  For Film and Video Sets</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-itel-a05s-frp-bypass-by-drfone-android/"><u>About Itel A05s FRP Bypass</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-review-vrs-winning-features-and-faults/"><u>[Updated] In-Depth Review  VR's Winning Features & Faults</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-capture-the-internets-attention-craft-with-kapwing-for-2024/"><u>[New] Capture the Internet’s Attention – Craft with Kapwing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-secrets-of-windows-10-effortless-media-importation-methods/"><u>[Updated] Secrets of Windows 10  Effortless Media Importation Methods</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/the-best-audio-converters-a-comprehensive-review/"><u>The Best Audio Converters A Comprehensive Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/iphone-macro-mastery-tips-for-clear-detail-focused-photos/"><u>IPhone Macro Mastery  Tips for Clear, Detail-Focused Photos</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-panasonic-hx-a1-actioncam-in-depth-review/"><u>[Updated] In 2024, Panasonic HX-A1 ActionCam  In-Depth Review</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-step-by-step-to-rotate-video-using-kmplayer/"><u>In 2024, Step by Step to Rotate Video Using KMPlayer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-kinemaster-tools-for-cohesive-narrative-flow/"><u>2024 Approved  Kinemaster Tools for Cohesive Narrative Flow</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-downloadable-cyber-mishaps-audio-library-no-cost-for-tech-enthusiasts/"><u>2024 Approved Downloadable Cyber Mishaps Audio Library – No Cost for Tech Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-sky-magnificence-in-focus-leading-websites-uncovered/"><u>[New] 2024 Approved  Sky Magnificence in Focus  Leading Websites Uncovered</u></a></li>
+<li><a href="https://fox-http.techidaily.com/discovering-the-ultimate-gopro-camera-max-or-hero-11/"><u>Discovering The Ultimate GoPro Camera  Max or Hero 11?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-4k-with-prime-lenses-for-professionals/"><u>In 2024, Mastering 4K with Prime Lenses for Professionals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-beginning-zoom-video-calls-on-android-devices/"><u>[New] Beginning Zoom Video Calls on Android Devices</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-how-to-remove-background-noise-in-audacity/"><u>[Updated] How to Remove Background Noise in Audacity?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/fundamentals-of-online-tale-creation-methods/"><u>Fundamentals of Online Tale Creation Methods</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-nubia-z50s-pro-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Nubia Z50S Pro Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-pros-choice-review-the-ultimate-4k-dslr-rigs/"><u>[Updated] In 2024, Pro's Choice Review  The Ultimate 4K DSLR Rigs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-boosting-mastery-unveiling-the-best-5-video-marketing-strategies/"><u>Channel Boosting Mastery  Unveiling the Best 5 Video Marketing Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-economical-dslrmirrorless-systems/"><u>[New] 2024 Approved  Economical DSLR/Mirrorless Systems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-top-viewers-playlist-on-youtube-history/"><u>[New] Ultimate Top Viewers' Playlist on YouTube History</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-hdr-portraiture-an-ultimate-guide/"><u>[New] Mastering HDR Portraiture  An Ultimate Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-quintessential-20-anime-openers-sounds/"><u>In 2024, Quintessential 20 Anime Openers' Sounds</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransforming-your-videos-for-igtv-excellence-3-methods-for-2024/"><u>[New] Transforming Your Videos for IGTV Excellence (3 Methods) for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>How to Check Distance and Radius on Google Maps For your Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-voice-memo-basics-your-complete-guide-to-audio-recording/"><u>[Updated] In 2024, Voice Memo Basics  Your Complete Guide to Audio Recording</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/journey-around-the-world-on-youtube-including-you/"><u>Journey Around the World on YouTube, Including You</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/draft-droll-diagrams/"><u>Draft Droll Diagrams</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-rotation-video-mounting-for-2024/"><u>[Updated] Ultimate Rotation Video Mounting for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-audiobook-making-made-simple-an-up-to-date-all-inclusive-handbook/"><u>In 2024, Audiobook Making Made Simple An Up-to-Date, All-Inclusive Handbook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-photography-transformed-simplifying-edges-and-corners-for-2024/"><u>[Updated] Photography Transformed  Simplifying Edges and Corners for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-olympic-snowscape-highlights-cross-style-22/"><u>In 2024, Olympic Snowscape Highlights - Cross Style '22</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/video-editing-like-a-pro-expert-techniques-for-jaw-dropping-effects-for-2024/"><u>Video Editing Like a Pro Expert Techniques for Jaw-Dropping Effects for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-meta-descriptions-top-template-strategies/"><u>[Updated] In 2024, Elevate Meta Descriptions  Top Template Strategies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-principles-of-creating-inspirational-day-to-day-visual-stories/"><u>[Updated] Principles of Creating Inspirational Day-to-Day Visual Stories</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-beginners-guide-steady-sound-volume-rise-in-editing/"><u>[New] Beginner's Guide  Steady Sound Volume Rise in Editing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-easier-than-ever-simplified-hdr-photography-insights-for-2024/"><u>[New] Easier Than Ever  Simplified HDR Photography Insights for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-reinforcing-photo-viewing-functionality-with-windows-10-solutions/"><u>[New] 2024 Approved  Reinforcing Photo Viewing Functionality with Windows 10 Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-beyond-ustream-live-streaming-choices-for-2024/"><u>[New] Beyond Ustream  Live Streaming Choices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-current-compendium-of-questions-for-captivating-audio-clips/"><u>In 2024, Current Compendium of Questions for Captivating Audio Clips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unveiling-the-hidden-accessing-youtube-video-comments/"><u>In 2024, Unveiling the Hidden  Accessing YouTube Video Comments</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/journeying-through-yesteryears-facebook-posts-on-mobilelaptop-for-2024/"><u>Journeying Through Yesteryear's Facebook Posts on Mobile/Laptop for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/a-guide-to-navigating-posting-on-altered-instagram-landscape/"><u>A Guide to Navigating Posting on Altered Instagram Landscape</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-infinix-zero-30-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Infinix Zero 30 5G Phone</u></a></li>
+</ul></div>

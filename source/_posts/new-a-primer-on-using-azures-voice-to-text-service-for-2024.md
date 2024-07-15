@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Primer on Using Azure's Voice-to-Text Service for 2024\""
-date: 2024-06-29T18:50:01.009Z
-updated: 2024-06-30T18:50:01.009Z
+date: 2024-07-13T23:18:30.496Z
+updated: 2024-07-14T23:18:30.496Z
 tags: 
   - screen-recording
   - ai video
@@ -24,6 +24,9 @@ Are you tired of manually typing texts into document editors like Word and Notep
 
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 ## Part 1: What is Microsoft Azure and Speech Studio?
@@ -48,6 +51,9 @@ Step2After creating a Microsoft Azure portal, you'll see all Azure services. Cli
 
 Step3The program will take a while to deploy an instance. Now tap Keys and endpoints on the left pane and copy the key and region identifier as you may need them later on.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
@@ -84,6 +90,9 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make STT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Use Filmora To Make STT videos
 
 ##### Step 1
@@ -130,6 +139,9 @@ Step2Drag-n-drop your video or audio file on the program and then choose the tra
 
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Final Words
 
 Up to this point, you should be ready to get started with the **Microsoft Cognitive Services Speech**. The speech-to-text feature allows you to convert unlimited voices to text on your computer. However, the program can be challenging to set up if you're not a techie.
@@ -160,3 +172,72 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-realme-narzo-60-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Realme Narzo 60 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-optimal-display-choices-the-top-5-for-ps5-games/"><u>[Updated] In 2024, Optimal Display Choices  The Top 5 For PS5 Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-kinemaster-techniques-and-top-10-online-rivals/"><u>[Updated] 2024 Approved  Mastering KineMaster  Techniques & Top 10 Online Rivals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/conduct-a-symphony-on-the-ppt-stage/"><u>Conduct a Symphony on the PPT Stage</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-effortless-capture-iphones-dual-task-technique/"><u>[Updated] 2024 Approved  Effortless Capture  IPhone's Dual-Task Technique</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-gopro-advanced-cinematic-skills-for-2024/"><u>Mastering GoPro  Advanced Cinematic Skills for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-cutting-edge-techniques-for-music-in-canva-videos/"><u>[New] In 2024, Cutting-Edge Techniques for Music in Canva Videos</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-digital-audio-collection-101-efficient-methods-to-download-and-store-podcast-episodes/"><u>In 2024, Digital Audio Collection 101 Efficient Methods to Download and Store Podcast Episodes</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-final-cut-pro-x-title-tutorial-a-step-by-step-guide/"><u>In 2024, Final Cut Pro X Title Tutorial A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/enhancing-visuals-a-stepwise-guide-to-sdr-transformation-into-hdri/"><u>Enhancing Visuals  A Stepwise Guide to SDR Transformation Into HDRI</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-simplify-video-annotation-adding-titles-and-captions-via-photos-win-11/"><u>[Updated] 2024 Approved  Simplify Video Annotation  Adding Titles & Captions via Photos Win 11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-elevating-vision-a-compre-written-by-jovita-lara-msn-student-arizona-state-university-for-2024/"><u>[Updated] Elevating Vision  A Compre Written By  Jovita Lara, MSN Student (Arizona State University) for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-samsung-galaxy-s23-ultra-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Samsung Galaxy S23 Ultra for Streaming | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-gionee-f3-pro-phone-by-drfone-android/"><u>How to Reset a Locked Gionee F3 Pro Phone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-science-behind-stopping-photo-booth-movies-for-2024/"><u>[New] The Science Behind Stopping Photo Booth Movies for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-borrow-without-cost-images-from-leading-youtubers-archives-for-2024/"><u>[Updated] Borrow Without Cost Images From Leading YouTubers' Archives for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harnessing-the-power-of-audio-on-your-device-apples-podcast-download-guide/"><u>[New] Harnessing the Power of Audio on Your Device  Apple's Podcast Download Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-new-age-of-memes-how-to-stand-out-in-the-metaverse-for-2024/"><u>The New Age of Memes  How to Stand Out in the Metaverse for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-delving-into-filmoras-appeal-its-essential-10-features/"><u>[Updated] 2024 Approved  Delving Into Filmora's Appeal  Its Essential 10 Features</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-itel-p40-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Itel P40 Through Google Earth?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-charting-course-essential-steps-from-concept-to-content-creation-in-review-channels/"><u>[Updated] 2024 Approved  Charting Course  Essential Steps From Concept to Content Creation in Review Channels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dive-deep-into-safe-area-mode-and-dual-screen-on-apple-devices/"><u>Dive Deep Into Safe Area Mode and Dual Screen on Apple Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-decoding-dji-phantom-3-a-thorough-examination/"><u>In 2024, Decoding DJI Phantom 3  A Thorough Examination</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-dynamic-directionality-prime-phone-friendly-tripods/"><u>In 2024, Dynamic Directionality  Prime Phone-Friendly Tripods</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-inspirational-titles-from-worlds-famous-tiktokers/"><u>[Updated] 2024 Approved  Inspirational Titles From World's Famous TikTokers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-filmographys-finest-shots-the-best-camera-and-lighting-tips/"><u>2024 Approved  Filmography's Finest Shots  The Best Camera & Lighting Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-frosty-olympics-highlights-in-figure-skating/"><u>[New] 2024 Approved  Frosty Olympics  Highlights in Figure Skating</u></a></li>
+<li><a href="https://fox-http.techidaily.com/making-the-most-out-of-your-films-b-roll-for-2024/"><u>Making the Most Out of Your Film's B-Roll for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-master-list-of-professional-windows-based-videography-tools/"><u>[New] Master List of Professional Windows-Based Videography Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unleash-potential-the-best-10-motivational-movies/"><u>Unleash Potential  The Best 10 Motivational Movies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/trek-through-the-territory-of-talkative-thoughts-for-2024/"><u>Trek Through the Territory of Talkative Thoughts for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-no-pay-no-problem-get-your-free-passport-photo-creator-now-online-and-on-desktop/"><u>[Updated] In 2024, No Pay, No Problem  Get Your Free Passport Photo Creator Now Online & On Desktop</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-complete-guide-to-designing-personalized-instagram-ringtone/"><u>In 2024, The Complete Guide to Designing Personalized Instagram Ringtone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-maximizing-fun-finding-hot-images-at-pexelscom/"><u>[Updated] Maximizing Fun  Finding Hot Images at Pexels.com</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-infinix-note-30-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Infinix Note 30 Phone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-optimized-auditory-experience-choosing-the-best-audio-device/"><u>In 2024, Optimized Auditory Experience  Choosing the Best Audio Device</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-your-youtube-success-story-a-comprehensive-guide-to-creative-studio/"><u>[Updated] Unlocking Your Youtube Success Story  A Comprehensive Guide to Creative Studio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/jokeglyph-customize-funny-visuals-easily-for-2024/"><u>Jokeglyph  Customize Funny Visuals Easily for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-easy-steps-making-time-lapses-on-galaxy-phones-for-2024/"><u>[Updated] Easy Steps  Making Time-Lapses on Galaxy Phones for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-multi-display-mode-an-in-depth-guide-to-pip-on-edge/"><u>Mastering Multi-Display Mode  An In-Depth Guide to PIP on Edge</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-artistic-awareness-accelerate-editing-in-the-photos-app-win10-style/"><u>[Updated] Artistic Awareness  Accelerate Editing in the Photos App, WIN10 Style</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-smooth-insertion-of-videos-into-your-custom-youtube-shelves-for-2024/"><u>[New] Smooth Insertion of Videos Into Your Custom YouTube Shelves for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-turn-swipes-to-love-powerful-tricks-and-ideas-for-standout-biographies/"><u>[Updated] In 2024, Turn Swipes to Love  Powerful Tricks and Ideas for Standout Biographies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-boost-your-movie-magic-free-text-animation-basics-for-2024/"><u>[New] Boost Your Movie Magic  Free Text Animation Basics for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-power-of-perception-iconic-podcast-design-tips/"><u>[Updated] 2024 Approved  The Power of Perception  Iconic Podcast Design Tips</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-editors-guide-to-age-old-vhs-effects-in-digital-video-production/"><u>[New] In 2024, The Editor's Guide to Age-Old VHS Effects in Digital Video Production</u></a></li>
+<li><a href="https://win11.techidaily.com/why-the-shift-from-windows-10-to-version-11-fails/"><u>Why the Shift From Windows 10 to Version 11 Fails</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-step-by-step-guide-to-zoom-use-on-windows-pcs-win10-for-2024/"><u>[New] A Step-by-Step Guide to Zoom Use on Windows PCs (Win10) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlining-your-websites-visual-content-via-cropping-for-2024/"><u>Streamlining Your Website's Visual Content via Cropping for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/capture-clearness-without-a-tripod-tool/"><u>Capture Clearness Without a Tripod Tool</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-compreran-analysis-asus-proart-pa-329qs-innovations-in-4k-monitoring/"><u>[New] A Compreran Analysis  Asus ProArt PA 329Q’s Innovations in 4K Monitoring</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-cutting-through-clutter-standout-techniques-for-tiktok-stars/"><u>[Updated] In 2024, Cutting Through Clutter  Standout Techniques for TikTok Stars</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-pro-tips-for-streaming-and-screening-netflix-on-mac/"><u>2024 Approved  Pro-Tips for Streaming & Screening Netflix on Mac</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-superior-techniques-for-adjusting-tempo-of-tracks-in-spotify/"><u>In 2024, Superior Techniques for Adjusting Tempo of Tracks in Spotify</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-transform-ideas-into-engaging-movies-using-youtube-editor/"><u>In 2024, Transform Ideas Into Engaging Movies Using YouTube Editor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-boost-engagement-with-top-tips-for-captivating-unboxing-videos/"><u>In 2024, Boost Engagement with Top Tips for Captivating Unboxing Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/quickcopy-custodians-judgment/"><u>QuickCopy Custodians' Judgment</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unveiling-viewer-insights-understanding-subscriber-feedback-for-2024/"><u>[New] Unveiling Viewer Insights  Understanding Subscriber Feedback for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-exploring-entertainment-youtubes-integration-with-fb/"><u>2024 Approved  Exploring Entertainment  YouTube's Integration with FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580458829-initiate-your-french-phonetic-journey-today/"><u>Initiate Your French Phonetic Journey Today!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-visuals-mastering-youtubes-video-enhancement-tools/"><u>[New] 2024 Approved  Boosting Visuals  Mastering YouTube's Video Enhancement Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-textual-brilliance-in-media-exploring-the-best-effects/"><u>[New] 2024 Approved  Textual Brilliance in Media  Exploring the Best Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-all-you-need-to-know-about-adding-apple-music-to-video-for-2024/"><u>[New] All You Need to Know About Adding Apple Music to Video for 2024</u></a></li>
+</ul></div>

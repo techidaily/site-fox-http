@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Two-Dimensions  Techniques for 3D Text in Illustrator\""
-date: 2024-06-22T17:20:17.649Z
-updated: 2024-06-23T17:20:17.649Z
+date: 2024-07-13T22:23:11.620Z
+updated: 2024-07-14T22:23:11.620Z
 tags: 
   - screen-recording
   - ai video
@@ -50,10 +50,16 @@ Step4 Next, choose any color you want for your text from the panel on the screen
 
 Step5 Align the text to make it easier to edit and move around the canvas later. Just click on it and then click on the three buttons in the image below. This section is located at the bottom-right corner of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
 
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
 
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
@@ -88,15 +94,21 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
-Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun ![Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
@@ -145,3 +157,44 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-androids-finest-10-free-video-editing-apps-without-watermarks/"><u>In 2024, Androids Finest 10 Free Video Editing Apps Without Watermarks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-reverse-trick-in-android-filmmaking-for-2024/"><u>[New] The Reverse Trick in Android Filmmaking for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-premiere-pros-full-scene-showcase-guide/"><u>[New] In 2024, Premiere Pro's Full Scene Showcase Guide</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-nokia-c110-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-boundless-adventures-exploring-vr-in-games/"><u>[Updated] 2024 Approved  Boundless Adventures  Exploring VR in Games</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-8-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone 8 Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-power-your-day-with-essential-windows-10-hacks/"><u>[New] In 2024, Power Your Day with Essential Windows 10 Hacks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-blueprint-for-memetic-virality-for-2024/"><u>[New] The Ultimate Blueprint for Memetic Virality for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-precise-procedures-for-pcs-role-in-tv-capture-for-2024/"><u>[New] Precise Procedures for PC's Role in TV Capture for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-chuckle-champions-humor-hunt-on-twitter/"><u>[Updated] 2024 Approved  Chuckle-Champions  Humor Hunt on Twitter</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-navigating-microsoft-azure-for-text-conversion/"><u>[New] In 2024, Navigating Microsoft Azure for Text Conversion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-how-to-edit-gopro-4k-video/"><u>[New] How to Edit GoPro 4K Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-power-of-words-in-marketing-top-20-essentials-for-2024/"><u>[New] The Power of Words in Marketing - Top 20 Essentials for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-tomorrows-reflection-varied-solutions/"><u>[New] Tomorrow’s Reflection  Varied Solutions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-most-viral-tweets-of-the-year-so-far-for-2024/"><u>[New] The Most Viral Tweets of the Year So Far for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/sites-where-virtual-worlds-come-alive-for-2024/"><u>Sites Where Virtual Worlds Come Alive for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-the-complete-guide-to-ducking-dynamics-in-adobe-premiere-for-windows-users/"><u>New The Complete Guide to Ducking Dynamics in Adobe Premiere for Windows Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-premium-gopro-enhancements-guide-for-2024/"><u>[New] Premium Gopro Enhancements Guide for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-no-watermark-video-joiners-our-top-picks/"><u>2024 Approved No-Watermark Video Joiners Our Top Picks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/clash-of-shadows-and-lightning-black-vs-silver-for-2024/"><u>Clash of Shadows and Lightning  BLACK vs SILVER for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-exploring-syma-x8c-battery-life/"><u>[Updated] Exploring Syma X8C Battery Life</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-open-markets-close-plans-strategy-inception/"><u>[New] Open Markets, Close Plans  Strategy Inception</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-honoring-heritage-photo-conversion-and-visual-storytelling-for-2024/"><u>[Updated] Honoring Heritage  Photo Conversion and Visual Storytelling for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-stepping-into-the-unseen-mastering-windows-11-through-less-known-tips-for-2024/"><u>[New] Stepping Into the Unseen  Mastering Windows 11 Through Less-Known Tips for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-digital-image-synergy-tactics/"><u>[Updated] Digital Image Synergy Tactics</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-audio-waveform-video-generation-made-easy-top-online-options/"><u>Updated In 2024, Audio Waveform Video Generation Made Easy Top Online Options</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-xiaomi-13-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-screen-recorder-showdown-experts-take-on-popular-tools-for-2024/"><u>[Updated] The Screen Recorder Showdown  Experts' Take on Popular Tools for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-ideal-internet-hubs-alarm-tunes-acquisition-spots/"><u>[Updated] Ideal Internet Hubs  Alarm Tunes Acquisition Spots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-prodigious-portfolio-creation-best-free-mac-software/"><u>[New] Prodigious Portfolio Creation  Best FREE Mac Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-elevate-your-micro-photography-key-tips-for-filmmakers/"><u>[Updated] In 2024, Elevate Your Micro Photography  Key Tips for Filmmakers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oppo-reno-10-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Oppo Reno 10 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-mastering-macbook-air-beginners-guide-to-screen-recording/"><u>[Updated] 2024 Approved  Mastering MacBook Air  Beginner's Guide to Screen Recording</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-combat-vr-motion-sickness-a-guide/"><u>[Updated] Combat VR Motion Sickness  A Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-avoid-abrupt-jumps-perfecting-inshot-transitions-for-2024/"><u>[Updated] Avoid Abrupt Jumps  Perfecting Inshot Transitions for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-lava-storm-5g-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Lava Storm 5G</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-reach-optimal-strategies-for-crafting-youtube-titles-and-tags/"><u>[New] In 2024, Elevate Reach  Optimal Strategies for Crafting YouTube Titles & Tags</u></a></li>
+</ul></div>

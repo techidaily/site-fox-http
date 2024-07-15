@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Concept to Delivery  Using LUTs with Adobe AE\""
-date: 2024-06-22T17:30:43.089Z
-updated: 2024-06-23T17:30:43.089Z
+date: 2024-07-13T22:34:32.178Z
+updated: 2024-07-14T22:34:32.178Z
 tags: 
   - screen-recording
   - ai video
@@ -232,6 +232,9 @@ Do you ever wonder why some Adobe After Effects videos look so great? Regardless
 
 If you are questioning why there lies your first challenge. You need to check the white balance of your creations because colors appear differently, depending on the lighting you use. As such, you need to adjust your white balance to suit conditions similar to when you made the video. For example, your settings should be between 4000 – 5000K if your light source is fluorescent.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![things to make sure before using luts in AE](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-2.jpg)
 
 Here is how you get the correct white balance when using Adobe After Effects.
@@ -278,6 +281,9 @@ C:\\Users\\yourusername\\AppData\\Roaming\\Adobe\\Common\\LUTs\\Creative
 C:\\Users\\yourusername\\AppData\\Roaming\\Adobe\\Common\\LUTs\\Technical
 * The custom LUT files will be available to you as presets next time you launch Adobe Effects. The process only works if you are the primary user. Furthermore, ensure you put each copy in the relevant directories.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to use LUTs in After Effects
 
 Now that you have a variety of Adobe After Effects LUTs at your disposal, here is how you apply them.
@@ -305,6 +311,9 @@ Are you looking to add some extra zing to your videos? If you use Adobe After Ef
 
 Additionally, you will find recommendations on where to get the best after effects luts. So, grab your favorite drink, and let your journey to video editing supremacy begin.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![luts in after effect](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-1.jpg)
 
 #### In this article
@@ -380,6 +389,9 @@ Now that you have a variety of Adobe After Effects LUTs at your disposal, here i
 5. Choose the LUT you want and press Open to apply the change.
 6. You can edit the LUT using the Effect Control Panel. The functions you need are on either side of the video.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ![how to use luts in after effects](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-4.jpg)
 
 Adobe After Effects allows you to use LUTs on multiple clips. However, you need an adjustment layer for this to work. Here is how you enable the function.
@@ -413,3 +425,59 @@ Adobe After Effects allows you to use LUTs on multiple clips. However, you need 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-vs-video-edition-gopro-hero-or-polaroid-cube/"><u>[Updated] In 2024, Vs. Video Edition  GoPro Hero or Polaroid Cube?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-complete-breakdown-the-android-adaptation-of-lightroom-app/"><u>[New] Complete Breakdown  The Android Adaptation of Lightroom App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-key-to-spreading-online-jokes-fast-for-2024/"><u>The Key to Spreading Online Jokes Fast for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-recommendation-best-websites-to-download-classical-ringtones/"><u>2024 Approved  Recommendation  Best Websites to Download Classical Ringtones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-professional-gopro-footage-in-3-simple-steps-for-2024/"><u>[Updated] Professional Gopro Footage in 3 Simple Steps for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-1-global-musical-views-for-2024/"><u>[Updated] Top 1 Global Musical Views for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-perfect-pathway-insta-to-tiktok-junction-for-2024/"><u>The Perfect Pathway  Insta to TikTok Junction for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-end-to-end-guide-to-picsart/"><u>[New] 2024 Approved  The End-to-End Guide to PicsArt</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-laptoppc-editors-steer-clear-of-inshot/"><u>[Updated] Laptop/PC Editors  Steer Clear of Inshot</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-understanding-the-role-and-impact-of-b-roll-in-editing/"><u>[Updated] 2024 Approved  Understanding the Role and Impact of B Roll in Editing</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-win-11-guide-to-storing-mov-files-effectively-for-2024/"><u>[New] Win 11 Guide to Storing .mov Files Effectively for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-audiovisual-experience-elevated-mastering-audio-blending-in-audacity/"><u>[New] 2024 Approved  The Audiovisual Experience Elevated  Mastering Audio Blending in Audacity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-cutting-edge-crossfading-steps-for-logic-pro-users/"><u>[Updated] In 2024, Cutting-Edge Crossfading Steps for Logic Pro Users</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-free-video-hosting-solutions-10-best-options-for-individuals-and-businesses-for-2024/"><u>Updated Free Video Hosting Solutions 10 Best Options for Individuals and Businesses for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-avi-to-mkv-streaming-any-video-format-to-google-chromecast-for-2024/"><u>From AVI to MKV Streaming Any Video Format to Google Chromecast for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-free-collection-top-8-tools-for-viewing-4k-media-on-winos-x/"><u>Ultimate Free Collection  Top 8 Tools for Viewing 4K Media on Win/OS X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-integrating-smooth-crossfades-into-your-sound-design/"><u>[Updated] In 2024, Integrating Smooth Crossfades Into Your Sound Design</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-brilliance-in-display-top-5-for-grading-professionals/"><u>[Updated] In 2024, Brilliance in Display  TOP 5 for Grading Professionals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-list-of-budget-friendly-editor-apps-for-2024/"><u>[New] The Ultimate List of Budget-Friendly Editor Apps for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gb-usage-for-full-day-film-length/"><u>2024 Approved  GB Usage for Full-Day Film Length</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unlock-fast-video-trimming-in-windows-11-apps-for-2024/"><u>[New] Unlock Fast Video Trimming in Windows 11 Apps for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-prime-choices-webcams-on-windows-10/"><u>2024 Approved  Prime Choices  Webcams on Windows 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-tinder-profiles-top-tricks-for-instant-love-interest/"><u>[New] Mastering the Art of Tinder Profiles  Top Tricks for Instant Love Interest</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-a-complete-treatise-on-adobes-cloud-and-its-competitors/"><u>[Updated] A Complete Treatise on Adobe's Cloud & Its Competitors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-explore-top-picks-for-high-resolution-4k-panels/"><u>[New] In 2024, Explore Top Picks for High-Resolution 4K Panels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-smileshop-memelore-hub-for-2024/"><u>[Updated] SmileShop  Memelore Hub for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-a-new-era-for-android-time-lapsing-trends-and-techniques/"><u>2024 Approved  A New Era for Android Time-Lapsing  Trends & Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-enhance-visual-magnification-without-quality-loss/"><u>[Updated] Enhance Visual Magnification without Quality Loss</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-cinematic-expertise-top-15-innovative-gopro-action-cam-look-ups/"><u>[Updated] Cinematic Expertise  Top 15 Innovative GoPro Action Cam Look-Ups</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-minimizing-moments-edit-longer-videos-for-youtube/"><u>[Updated] Minimizing Moments  Edit Longer Videos for YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-navigating-through-the-complexities-of-copyright-on-instagrams-music-platform/"><u>[New] In 2024, Navigating Through the Complexities of Copyright on Instagram’s Music Platform</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-economical-pc-graphics-saving-apps/"><u>[Updated] 2024 Approved  Economical PC Graphics Saving Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-freeloading-without-breaking-your-budget-on-aes/"><u>[Updated] 2024 Approved  Freeloading Without Breaking Your Budget on AEs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ehind-the-scenes-youtubes-view-count-algorithm-for-2024/"><u>[New] Behind the Scenes  YouTube's View Count Algorithm for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/emulate-action-with-kinetic-blur-effects/"><u>Emulate Action with Kinetic Blur Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-magix-vst-transform-your-home-studio-setup/"><u>In 2024, Magix VST  Transform Your Home Studio Setup</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unleash-the-power-of-visuals-with-top-free-slideshow-designs/"><u>[New] Unleash the Power of Visuals with Top Free Slideshow Designs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-best-8-free-4k-video-player-software-for-windows-pcandmac/"><u>[Updated] In 2024, Best 8 Free 4K Video Player Software for Windows PC&Mac</u></a></li>
+<li><a href="https://fox-http.techidaily.com/assessing-photoshop-sway-reduction-a-necessity-debate-for-2024/"><u>Assessing Photoshop Sway Reduction  A Necessity Debate for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-secrets-revealed-streamlined-importation-on-windows-10-os/"><u>[Updated] In 2024, Secrets Revealed  Streamlined Importation on Windows 10 OS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-amplify-in-game-voices-naturally-step-by-step-process-for-free-fire-players/"><u>2024 Approved  How to Amplify In-Game Voices Naturally  Step-by-Step Process for Free Fire Players</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/discovering-local-insta-stars-finding-your-niches-top-influencers/"><u>Discovering Local Insta Stars  Finding Your Niche's Top Influencers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-list-of-on-line-aid-sources-for-flawless-visual-text-for-2024/"><u>[Updated] The Ultimate List of On-Line Aid Sources for Flawless Visual Text for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-tecno-spark-10c-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Tecno Spark 10C</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-boosting-views-try-these-30-powerful-tiktok-monikers/"><u>[Updated] Boosting Views? Try These 30 Powerful TikTok Monikers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-enhance-your-cinematic-experience-camera-upgrade-tips/"><u>[New] Enhance Your Cinematic Experience - Camera Upgrade Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-virtual-horizons-redefining-the-movie-experience/"><u>[New] In 2024, Virtual Horizons  Redefining the Movie Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-top-free-sources-discovering-copyright-free-soundtracks-for-2024/"><u>[New] The Top Free Sources  Discovering Copyright-Free Soundtracks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-synergizing-brands-on-video-platforms/"><u>[Updated] In 2024, Synergizing Brands on Video Platforms</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-leading-8-multimedia-apps-for-creative-phones-android-ios/"><u>[New] The Leading 8 Multimedia Apps for Creative Phones (Android, iOS)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-breaking-down-snapchats-new-highlight-functionality/"><u>[New] In 2024, Breaking Down Snapchat's New Highlight Functionality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-50plus-best-text-effects-for-videographers/"><u>In 2024, 50+ Best Text Effects for Videographers</u></a></li>
+</ul></div>

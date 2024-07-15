@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Visual Consistency Through Masterful Use of LUTs in AE"
-date: 2024-06-22T17:55:59.813Z
-updated: 2024-06-23T17:55:59.813Z
+date: 2024-07-13T23:01:51.317Z
+updated: 2024-07-14T23:01:51.317Z
 tags: 
   - screen-recording
   - ai video
@@ -133,6 +133,9 @@ Additionally, you will find recommendations on where to get the best after effec
 
 03 [How to use LUTs in After Effects](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Things to Know Before Using LUTs in After Effect
 
 Do you ever wonder why some Adobe After Effects videos look so great? Regardless of your experience with the software, here are the points to consider when using LUTs in After Effects.
@@ -187,6 +190,9 @@ C:\\Users\\yourusername\\AppData\\Roaming\\Adobe\\Common\\LUTs\\Creative
 C:\\Users\\yourusername\\AppData\\Roaming\\Adobe\\Common\\LUTs\\Technical
 * The custom LUT files will be available to you as presets next time you launch Adobe Effects. The process only works if you are the primary user. Furthermore, ensure you put each copy in the relevant directories.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to use LUTs in After Effects
 
 Now that you have a variety of Adobe After Effects LUTs at your disposal, here is how you apply them.
@@ -323,6 +329,9 @@ Do you ever wonder why some Adobe After Effects videos look so great? Regardless
 
 If you are questioning why there lies your first challenge. You need to check the white balance of your creations because colors appear differently, depending on the lighting you use. As such, you need to adjust your white balance to suit conditions similar to when you made the video. For example, your settings should be between 4000 – 5000K if your light source is fluorescent.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![things to make sure before using luts in AE](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-2.jpg)
 
 Here is how you get the correct white balance when using Adobe After Effects.
@@ -380,6 +389,9 @@ Now that you have a variety of Adobe After Effects LUTs at your disposal, here i
 5. Choose the LUT you want and press Open to apply the change.
 6. You can edit the LUT using the Effect Control Panel. The functions you need are on either side of the video.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to use luts in after effects](https://images.wondershare.com/filmora/article-images/2022/03/after-effects-luts-4.jpg)
 
 Adobe After Effects allows you to use LUTs on multiple clips. However, you need an adjustment layer for this to work. Here is how you enable the function.
@@ -413,3 +425,52 @@ Adobe After Effects allows you to use LUTs on multiple clips. However, you need 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-mastering-video-sharing-understanding-vimeo-membership-plans/"><u>In 2024, Mastering Video Sharing  Understanding Vimeo Membership Plans</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-masterful-marketing-essential-expressions-for-professionals/"><u>2024 Approved  Masterful Marketing  Essential Expressions for Professionals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/creative-ae-templates-select-10-for-2024/"><u>Creative AE Templates  Select 10 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-prime-10-live-streaming-networks-revealed-and-compared/"><u>In 2024, Prime 10 Live Streaming Networks Revealed and Compared</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-saving-screen-scenes-pcmac-and-mobile-devices-walkthrough/"><u>[Updated] Saving Screen Scenes  PC/Mac & Mobile Devices Walkthrough</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-wave-warriors-cam-selection-best-surf-gear-2023/"><u>[Updated] 2024 Approved  Wave Warriors' Cam Selection - Best Surf Gear 2023</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-diving-deep-into-the-world-of-immersive-gaming-with-htc-vive/"><u>[Updated] In 2024, Diving Deep Into the World of Immersive Gaming with HTC Vive</u></a></li>
+<li><a href="https://fox-http.techidaily.com/10-must-know-iphone-x-tricks-to-enhance-usage-for-2024/"><u>10 Must-Know iPhone X Tricks to Enhance Usage for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-navigating-quick-file-scan-in-windows/"><u>[Updated] Navigating Quick File Scan in Windows</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-what-is-an-ai-presentation-maker/"><u>New What Is an AI Presentation Maker?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-prime-portfolio-exceptional-webcam-supports/"><u>In 2024, Prime Portfolio  Exceptional Webcam Supports</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-turning-photos-into-cartoon-online-for-2024/"><u>New Turning Photos Into Cartoon Online for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-color-contrast-reimagined-choosing-hdr-for-better-videos/"><u>2024 Approved  Color Contrast Reimagined  Choosing HDR for Better Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-list-of-6-best-nft-platforms-for-artists/"><u>The Ultimate List of 6 Best NFT Platforms for Artists</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevate-meetings-key-strategies-with-zoom-adapter-for-2024/"><u>Elevate Meetings  Key Strategies with Zoom Adapter for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-guide-to-choosing-a-screen-for-superior-4k-video/"><u>2024 Approved  The Ultimate Guide to Choosing a Screen for Superior 4K Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-masterclass-softening-auditory-peaks-gently-in-logic-pro/"><u>[Updated] Masterclass  Softening Auditory Peaks Gently in Logic Pro</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-synchronizing-tiktok-viewership-and-facebook-shares/"><u>[Updated] In 2024, Synchronizing TikTok Viewership and Facebook Shares</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-crafting-impactful-medical-messages-in-social-media/"><u>[New] 2024 Approved  Crafting Impactful Medical Messages in Social Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-best-practices-for-getting-high-quality-pictures-without-spending-money/"><u>2024 Approved  Best Practices for Getting High Quality Pictures Without Spending Money</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-soundscape-shifting-made-easy-unveiling-the-best-free-vocal-transformers/"><u>[Updated] Soundscape Shifting Made Easy  Unveiling the Best Free Vocal Transformers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/optimal-webcams-designed-for-smooth-zoom-conferencing-for-2024/"><u>Optimal Webcams Designed for Smooth Zoom Conferencing for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-launch-any-video-projects-with-free-kits/"><u>[New] Launch Any Video Projects with Free Kits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-low-volume-settings-in-os-xwindows/"><u>[Updated] Mastering Low-Volume Settings in OS X/Windows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-introduction-to-cinematic-graphics-techniques/"><u>In 2024, Introduction to Cinematic Graphics Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/enhancing-selfie-quality-iphone-burst-mode/"><u>Enhancing Selfie Quality  IPhone Burst Mode</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-sony-xperia-5-v-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Sony Xperia 5 V To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-fasttrackpodcastlive-your-straightforward-guide-to-livestreaming-success/"><u>[Updated] In 2024, FastTrackPodcastLive  Your Straightforward Guide to Livestreaming Success</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/breaking-ground-video-capture-breakdown-for-2024/"><u>Breaking Ground  Video Capture Breakdown for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-revolutionize-visual-storytelling-by-incorporating-cg-centrals-look-up-tables-luts/"><u>[Updated] In 2024, Revolutionize Visual Storytelling by Incorporating CG Central's Look-Up Tables (Luts)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-essential-samples-the-finest-free-after-effects-templates/"><u>[Updated] Essential Samples  The Finest Free After Effects Templates</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tips-for-embedding-music-in-social-media-videos/"><u>[Updated] Tips for Embedding Music in Social Media Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-embedding-youtube-videos-seamlessly-into-stories-for-2024/"><u>[New] Embedding YouTube Videos Seamlessly Into Stories for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-best-stream-software-is-xsplit-outshining-obs-for-2024/"><u>Exploring Best Stream Software - Is XSplit Outshining OBS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unveil-windows-xp-professional-for-video-production/"><u>[Updated] In 2024, Unveil Windows XP Professional for Video Production</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-creating-effective-fb-fundraising-posts/"><u>[Updated] Creating Effective FB Fundraising Posts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-devising-visual-temporal-anomalies-effects/"><u>In 2024, Devising Visual Temporal Anomalies Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-top-10-curated-list-of-superior-vector-portals/"><u>[Updated] In 2024, A Top 10 Curated List of Superior Vector Portals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-best-way-to-use-zoom-for-skype/"><u>[New] 2024 Approved  Best Way to Use Zoom for Skype</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-easy-to-use-vocal-modification-tools-overview-of-functions-rules-and-substitutes-for-2024/"><u>New Easy-to-Use Vocal Modification Tools Overview of Functions, Rules, and Substitutes for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-shaking-up-the-status-quo-unique-naming-tips-for-filmmakers/"><u>[New] Shaking Up the Status Quo  Unique Naming Tips for Filmmakers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-mastering-online-meetings-with-these-budget-friendly-video-conferencing-services/"><u>[New] In 2024, Mastering Online Meetings with These Budget-Friendly Video Conferencing Services</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-guide-to-finding-free-westeros-ringtones/"><u>[Updated] The Ultimate Guide to Finding Free Westeros Ringtones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-video-production-with-powerdirector-24-for-2024/"><u>[Updated] Mastering Video Production with PowerDirector '24 for 2024</u></a></li>
+</ul></div>

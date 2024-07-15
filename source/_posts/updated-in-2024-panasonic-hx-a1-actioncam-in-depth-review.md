@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Panasonic HX-A1 ActionCam  In-Depth Review\""
-date: 2024-06-22T18:01:28.616Z
-updated: 2024-06-23T18:01:28.616Z
+date: 2024-07-13T23:07:51.216Z
+updated: 2024-07-14T23:07:51.216Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/0c231e30e1cde65144bf91e6e96a309bb581e79a5
 
 # Panasonic HX-A1 Wearable Action Camera Review
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -32,12 +35,18 @@ thumbnail: https://thmb.techidaily.com/0c231e30e1cde65144bf91e6e96a309bb581e79a5
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design and Usability
 
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -96,8 +105,11 @@ thumbnail: https://thmb.techidaily.com/0c231e30e1cde65144bf91e6e96a309bb581e79a5
 
 #### Wind jammer and strap adapter
 
- Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
+ Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all ![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Features
 
 #### **1. Video and photo quality**
@@ -158,3 +170,53 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-vdieo-software.techidaily.com/merge-multiple-mov-files-for-free-top-tools/"><u>Merge Multiple MOV Files for Free Top Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-youtubes-economic-model-month-to-month-income/"><u>[New] YouTube's Economic Model  Month-to-Month Income?</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-the-great-dvr-debate-tivo-vs-comcasts-features-and-pricing/"><u>In 2024, The Great DVR Debate TiVo vs Comcasts Features and Pricing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ace-tiktok-live-leveraging-zoom-capabilities/"><u>In 2024, Ace TikTok Live  Leveraging Zoom Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-cinematic-blackout-premiere-pro-guide-for-2024/"><u>[New] Cinematic Blackout - Premiere Pro Guide for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-create-a-playlist-on-youtube-a-complete-guide-for-2024/"><u>[Updated] How to Create a Playlist on Youtube - a Complete Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-transforming-srt-into-subc-top-3-actionable-steps/"><u>2024 Approved  Transforming SRT Into SUBC  Top 3 Actionable Steps</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-the-essence-of-vimeo-user-friendly-video-service/"><u>[New] The Essence of Vimeo  User-Friendly Video Service</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mediamagic-8-edition/"><u>2024 Approved  MediaMagic 8 Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-funny-faces-for-iphone-users/"><u>In 2024, Funny Faces for iPhone Users</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-glitch-video-editing-software-for-windows-and-mac-free-and-paid-options/"><u>New 2024 Approved Top Glitch Video Editing Software for Windows and Mac Free and Paid Options</u></a></li>
+<li><a href="https://fox-http.techidaily.com/high-five-lookout-breakdown-for-2024/"><u>High-Five Lookout Breakdown for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-shades-and-tints-in-action-practical-application/"><u>[New] 2024 Approved  Shades & Tints in Action  Practical Application</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/city-escapades-games-paralleling-gta-v-adventure-for-2024/"><u>City Escapades  Games Paralleling GTA V Adventure for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-top-8-best-fbx-game-recorder-alternatives/"><u>[Updated] In 2024, Top 8 Best FBX Game Recorder Alternatives</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/full-screen-issue-windowed-display-on-monitor-with-win11/"><u>Full-Screen Issue: Windowed Display on Monitor with Win11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/budget-planning-for-music-video-production-for-2024/"><u>Budget Planning for Music Video Production for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-animatedapp-full-guide-and-review-24-overview/"><u>2024 Approved  AnimatedApp Full Guide & Review '24 Overview</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-starting-out-right-budget-friendly-game-editing-software-for-beginners/"><u>[New] In 2024, Starting Out Right  Budget-Friendly Game Editing Software for Beginners</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-xr-official-method-to-unlock-your-iphone-xr-by-drfone-ios/"><u>How To Unlock iPhone XR Official Method to Unlock Your iPhone XR</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-samsung-galaxy-m14-4g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Samsung Galaxy M14 4G Lock Screen Password</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-tablet-artistry-top-8-drawing-software-for-ipados/"><u>[New] 2024 Approved  Tablet Artistry  Top 8 Drawing Software for iPadOS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-windows-10-essential-knowledge-for-2024/"><u>Mastering Windows 10  Essential Knowledge for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ensuring-compliance-for-apple-podcast-listing/"><u>In 2024, Ensuring Compliance for Apple Podcast Listing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-quick-steps-to-efficient-zoom-meetings/"><u>2024 Approved  Quick Steps to Efficient Zoom Meetings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-understanding-instagrams-privacy-features-for-anonymous-livestreams/"><u>[Updated] In 2024, Understanding Instagram's Privacy Features for Anonymous Livestreams</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-realistic-quantum-leaps-a-vfx-perspective/"><u>[Updated] In 2024, Realistic Quantum Leaps  A VFX Perspective</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-quick-start-utilizing-zoom-in-windows-10-systems/"><u>[Updated] Quick Start  Utilizing Zoom in Windows 10 Systems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-from-raw-files-to-artwork-beginners-guide-to-lunapic/"><u>2024 Approved  From Raw Files to Artwork  Beginner’s Guide to LunaPic</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-webcam-mastery-unique-ideas-explored/"><u>[New] In 2024, Webcam Mastery  Unique Ideas Explored</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-poco-c51-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Poco C51 Fingerprint Lock</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-enhancing-audio-transition-smoothness-in-audacity/"><u>[New] Enhancing Audio Transition Smoothness in Audacity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-essential-mic-recommendations-for-professional-4k-recording/"><u>[Updated] In 2024, Essential Mic Recommendations for Professional 4K Recording</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/background-blur-101-boosting-video-clarity-on-youtube-for-2024/"><u>Background Blur 101  Boosting Video Clarity on YouTube for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-premier-recommendations-best-iphone-tones-designers/"><u>2024 Approved  Premier Recommendations  Best iPhone Tones Designers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-note-13-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi Note 13 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/harnessing-the-power-of-instagrams-video-connectivity-for-2024/"><u>Harnessing the Power of Instagram's Video Connectivity for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-motorola-moto-g13-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Motorola Moto G13 FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-prime-locations-boosting-your-youtube-content-visibility/"><u>[Updated] In 2024, Prime Locations  Boosting Your YouTube Content Visibility</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-overcoming-handheld-vibration-secure-your-gopro-movies/"><u>[New] Overcoming Handheld Vibration  Secure Your GoPro Movies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-pp-playbook-for-silent-scene-transitions-for-2024/"><u>[Updated] The Ultimate PP Playbook for Silent Scene Transitions for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-from-gifs-to-videos-in-a-snap-top-online-platforms-for-content-upgraders/"><u>[Updated] In 2024, From GIFs to Videos in a Snap  Top Online Platforms for Content Upgraders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-mastering-footage-select-best-gimbals-and-handhelds-guide/"><u>[Updated] In 2024, Mastering Footage  Select Best Gimbals & Handhelds Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-championing-the-leading-gif-apps-on-iphones/"><u>[New] Championing the Leading GIF Apps on iPhones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-best-match-image-taking-and-music-merging-technology/"><u>[New] Best Match  Image Taking & Music Merging Technology</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ghostly Glimpses  Video Review\""
-date: 2024-06-29T18:56:02.590Z
-updated: 2024-06-30T18:56:02.590Z
+date: 2024-07-13T23:50:45.147Z
+updated: 2024-07-14T23:50:45.147Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 
 # Drift Innocations Ghost-S Action Camera Review
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -30,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 
  Ghost S follows the same design as that of HD Ghost and its bullet shaped model assists athletes in easy scene recording. The overall weight of this device is 5.9 ounces so it can be easily paired with goggles or strapped over helmet. The 2 inch LCD screen is protected with Gorilla Glass protection and the wide angle lens can cover views up to 160 degree. You will have plenty of mounting options with Drift Ghost-S device and it always stays safe with quick connect clip. Further, this device can be easily controlled from Wi-Fi remote and the outstanding combination of audio and video make it significantly stunning and fragile camera.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![drift-ghost-s-image](https://images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B00GJRCPRO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00GJRCPRO&linkId=02d9f7ab2afeae8b2f0e96dcd1f5f44b)
@@ -107,8 +113,14 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 
  What’s more, it has all the features you will need to make you feel like a pro. Simple editing functionalities like trimming, cropping, merging, adjusting speed, fast or slow motion, mosaic etc. will meet most of your demands. Besides all that, advanced features like split screen, green screen, filters&overlay effects, together with hundreds of licensed music, motion elements, transiton effects etc will definitely turn your video into something extraordinary with the least amount of effort. Check to video below to get an overview of this gorgeous video editing program:
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -135,3 +147,55 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-clip-concoction-station/"><u>In 2024, Clip Concoction Station</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-palette-of-airborne-mechanics/"><u>[Updated] 2024 Approved  The Palette of Airborne Mechanics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-quantum-quadrants-cinematic-frontiers-for-2024/"><u>[Updated] Quantum Quadrants  Cinematic Frontiers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-facetune-a-comprehensive-2024-user-manual/"><u>Ultimate Facetune  A Comprehensive 2024 User Manual</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-efficient-path-to-time-stamped-image-documentation/"><u>[New] In 2024, The Efficient Path to Time-Stamped Image Documentation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-ten-tools-to-transform-your-picture-grids/"><u>[New] Top Ten Tools to Transform Your Picture Grids</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/most-attractive-ringtones-for-your-phone-for-2024/"><u>Most Attractive Ringtones for Your Phone for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-picsart-app-deep-dive-full-review-analysis-and-instructions-for-the-new-year/"><u>[Updated] PicsArt App Deep Dive  Full Review, Analysis & Instructions for the New Year</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-honor-play-7t-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Honor Play 7T Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/leveraging-famebits-expertise-for-maximum-youtube-affiliate-gains/"><u>Leveraging FameBit's Expertise for Maximum YouTube Affiliate Gains</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-editing-apps-revolutionize-your-photo-backgrounds-for-2024/"><u>Top Editing Apps  Revolutionize Your Photo Backgrounds for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-10-android-and-ios-timers-for-effortless-wedding-countdown-management/"><u>[New] In 2024, Top 10 Android and iOS Timers for Effortless Wedding Countdown Management</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-from-silence-to-soundtrack-making-music-centric-tiktoks-for-2024/"><u>[Updated] From Silence to Soundtrack  Making Music-Centric TikToks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-quick-and-easy-creating-beautifully-detailed-slow-motion-videos-in-mobile-apps/"><u>[New] In 2024, Quick and Easy  Creating Beautifully Detailed Slow Motion Videos in Mobile Apps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-the-art-of-igtv-production-phone-and-dslr-techniques/"><u>[Updated] In 2024, Mastering the Art of IGTV Production  Phone and DSLR Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-infuse-audiovisual-experience-in-ppt-for-2024/"><u>[New] Infuse Audiovisual Experience in PPT for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-synergizing-brands-on-video-platforms-for-2024/"><u>[Updated] Synergizing Brands on Video Platforms for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-pc-intro-creation-made-easy-top-10-tools-online-and-offline/"><u>In 2024, PC Intro Creation Made Easy Top 10 Tools Online and Offline</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-introduction-to-dynamic-graphic-techniques-for-2024/"><u>[New] Introduction to Dynamic Graphic Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-streamlining-color-correction-leveraging-look-up-tables-from-cg-central-for-2024/"><u>[New] Streamlining Color Correction  Leveraging Look-Up Tables From CG Central for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-step-by-step-guide-for-using-zoom-via-gmail/"><u>[New] In 2024, Step-by-Step Guide for Using Zoom via Gmail</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-transform-your-avi-images-from-video-to-graphics-using-filmora/"><u>[Updated] 2024 Approved  Transform Your AVI Images  From Video To Graphics Using Filmora</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-guide-on-purging-stored-videos-from-youtube-watchlater/"><u>[New] 2024 Approved  Guide on Purging Stored Videos From YouTube Watchlater</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-5-amazing-voice-changer-for-google-meet/"><u>In 2024, 5 Amazing Voice Changer for Google Meet</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-master-video-capturing-with-the-top-3-smartphone-titans/"><u>2024 Approved  Master Video Capturing with the Top 3 Smartphone Titans</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-leveraging-virtual-collaboration-with-zoom-and-win11-tools/"><u>[New] Leveraging Virtual Collaboration with Zoom & Win11 Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/building-awesome-channel-art-for-your-youtube-presence/"><u>Building Awesome Channel Art for Your YouTube Presence</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-how-to-curate-christian-chimes-for-devotion/"><u>[New] In 2024, How to Curate Christian Chimes for Devotion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unlocking-the-power-of-podcast-dialogue-writing/"><u>[Updated] 2024 Approved  Unlocking the Power of Podcast Dialogue Writing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-elite-cameras-for-windows-11-pro-review-of-the-latest-gear/"><u>[New] 2024 Approved  Elite Cameras for Windows 11 - Pro Review of the Latest Gear</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-hd-experience-1-blu-ray-players-list-for-2024/"><u>Ultimate HD Experience  #1 Blu-Ray Players List for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elite-sound-to-text-conversion-technology/"><u>[New] In 2024, Elite Sound to Text Conversion Technology</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-insights-for-integrating-hashtags-into-game-focused-yt-content/"><u>In 2024, Essential Insights for Integrating Hashtags Into Game-Focused YT Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-image-merging-techniques/"><u>[New] In 2024, Mastering Image Merging Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-simplified-processes-inshot-for-pc-and-laptop-video-creation/"><u>[Updated] 2024 Approved  Simplified Processes  Inshot for PC and Laptop Video Creation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-aqtime-media-center-diverse-audio-video-options/"><u>[New] In 2024, Aqtime Media Center  Diverse Audio, Video Options</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-understanding-instagrams-video-restriction/"><u>[New] Understanding Instagram's Video Restriction</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-infinix-smart-8-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Infinix Smart 8 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-influence-made-possible-today/"><u>[Updated] Instagram Influence Made Possible Today</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-premiere-video-editing-options-for-app-developers/"><u>[Updated] Premiere Video Editing Options for App Developers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-secrets-to-streamlining-lone-broadcasts-a-practical-guide/"><u>[Updated] In 2024, Secrets to Streamlining Lone Broadcasts  A Practical Guide</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-top-rated-mts-video-editors-expert-reviews/"><u>Updated 2024 Approved Top-Rated MTS Video Editors Expert Reviews</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-switch-off-guide-instagrams-igtv/"><u>[Updated] In 2024, Switch-Off Guide  Instagram's IGTV</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-thorough-introduction-to-gdocs-speech-to-text-capabilities/"><u>[New] A Thorough Introduction to GDoc's Speech-to-Text Capabilities</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-incorporating-obs-setting-up-a-countdown-scheduler-for-2024/"><u>[Updated] Incorporating OBS  Setting Up A Countdown Scheduler for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-exploring-high-res-videography-with-nikon-j5/"><u>[New] In 2024, Exploring High-Res Videography with Nikon J5</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-ps5xbox-series-x-gaming-sets-the-top-5-list/"><u>[New] In 2024, PS5/Xbox Series X Gaming Sets  The Top 5 List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-kinemaster-wisely-skills-and-top-ranked-digital-counterparts/"><u>[New] Navigating KineMaster Wisely  Skills and Top-Ranked Digital Counterparts</u></a></li>
+</ul></div>

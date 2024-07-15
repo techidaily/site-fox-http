@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ultimate Tips for Erasing Backgrounds in Figma Design\""
-date: 2024-07-07T15:38:28.839Z
-updated: 2024-07-08T15:38:28.839Z
+date: 2024-07-13T23:58:08.296Z
+updated: 2024-07-14T23:58:08.296Z
 tags: 
   - screen-recording
   - ai video
@@ -72,6 +72,9 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
@@ -83,6 +86,9 @@ Follow these tips to remove the background of images with transparent or solid c
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### (2) 3 Other Figma Plugins
 
 You can use the following **Figma plugins to remove the image background**:
@@ -105,6 +111,9 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -135,6 +144,9 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -176,3 +188,53 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/in-2024-discover-5-premier-mac-livestream-tools/"><u>In 2024, Discover 5 Premier Mac Livestream Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-free-videography-starter-pack-openers-and-more/"><u>In 2024, Free Videography Starter Pack  Openers & More</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-complete-biomechanical-study-2023-for-2024/"><u>[New] Complete Biomechanical Study 2023 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-collecting-classics-copyrights-released/"><u>[New] Collecting Classics  Copyrights Released</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pathways-to-gaining-premium-image-content-without-payment/"><u>2024 Approved  Pathways to Gaining Premium Image Content Without Payment</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unlock-potential-embrace-note-taking-on-mematic/"><u>[New] 2024 Approved  Unlock Potential  Embrace Note-Taking on Mematic</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-11-with-imei-code-by-drfone-ios/"><u>How to Unlock iPhone 11 with IMEI Code?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-making-movies-magical-the-use-of-youtube-music-in-videos/"><u>[New] Making Movies Magical  The Use of YouTube Music in Videos</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-beyond-virtualdub-exploring-other-video-editing-software-options/"><u>Updated In 2024, Beyond VirtualDub Exploring Other Video Editing Software Options</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-chroma-magic-with-green-background-tech-for-newbies/"><u>2024 Approved  Mastering Chroma Magic with Green Background Tech for Newbies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/maximizing-mac-audio-quality-in-mixer-streaming/"><u>Maximizing Mac Audio Quality in Mixer Streaming</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-high-quality-fb-vids-on-demand/"><u>[Updated] 2024 Approved  High-Quality FB Vids on Demand</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-nokia-c22-drfone-by-drfone-android/"><u>How to Screen Mirroring Nokia C22? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo S17t? | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/maximizing-communication-mastering-the-discovoice-on-discord/"><u>Maximizing Communication Mastering the DiscoVoice on Discord</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-windows-movie-maker-6-download-and-install-in-minutes/"><u>In 2024, Windows Movie Maker 6  Download and Install in Minutes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/lite-10-audio-boosters-for-os-x-ios-android-for-2024/"><u>[New] Elite 10 Audio Boosters for OS X, iOS, Android for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-audience-friendly-audio-fades-practices-in-audacity/"><u>[New] In 2024, Audience-Friendly Audio Fades  Practices in Audacity</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-laptop-and-mobile-commencing-a-google-meet-session/"><u>[Updated] 2024 Approved  Laptop & Mobile  Commencing a Google Meet Session</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-the-art-of-modern-360-camera-purchases-2enas-for-2024/"><u>Mastering the Art of Modern 360 Camera Purchases (2Enas) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elevate-reality-tiktoks-artistic-transformations/"><u>[New] Elevate Reality  TikTok's Artistic Transformations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-tips-and-insights-for-successful-spotify-marketing-for-2024/"><u>[Updated] Tips and Insights for Successful Spotify Marketing for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-ultimate-tips-to-streamline-your-ipad-screen-saving/"><u>[New] Ultimate Tips to Streamline Your iPad Screen Saving</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/unleashing-your-vocal-potential-the-best-free-online-tools-to-transform-your-voice-for-2024/"><u>Unleashing Your Vocal Potential The Best Free Online Tools to Transform Your Voice for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevate-your-xbox-chats-with-powerful-zoom-tools/"><u>Elevate Your Xbox Chats with Powerful Zoom Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elite-groups-revolutionizing-virtual-reality/"><u>[New] Elite Groups Revolutionizing Virtual Reality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-high-def-gaming-gpu-recommendations/"><u>[New] 2024 Approved  High-Def Gaming GPU Recommendations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-structuring-stimulating-podcast-trailers/"><u>In 2024, Structuring Stimulating Podcast Trailers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-final-word-on-powerdirector-a-complete-review-for-2024/"><u>[Updated] The Final Word on PowerDirector  A Complete Review for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/accelerate-artistry-in-windows-11-photoshop-for-2024/"><u>Accelerate Artistry in Windows 11 Photoshop for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-splendor-on-youtube-the-hue-harmonization-way/"><u>2024 Approved  Digital Splendor on YouTube  The Hue Harmonization Way</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-whatsapp-chat-history-from-iphone-12-pro-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How To Recover Whatsapp Chat History From iPhone 12 Pro | Stellar</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-samsung-galaxy-f04-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Samsung Galaxy F04 Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-your-phones-potential-with-custom-android-audio-alerts-for-2024/"><u>Unlocking Your Phone's Potential with Custom Android Audio Alerts for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/install-windows-movie-lab-for-creative-windows-11-users-for-2024/"><u>Install Windows Movie Lab for Creative Windows 11 Users for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-all-about-triller-diverging-from-standard-tiktok-experience/"><u>[New] 2024 Approved  All About Triller  Diverging From Standard TikTok Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-stream-reversal-hacks-an-overview-of-eight-simple-steps/"><u>[New] In 2024, Stream Reversal Hacks  An Overview of Eight Simple Steps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-boost-visual-impact-selecting-excellent-edges-for-instagram-shots/"><u>2024 Approved  Boost Visual Impact  Selecting Excellent Edges for Instagram Shots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-3d-tvs-for-immersive-blu-ray-viewing/"><u>[Updated] Top 3D TVs for Immersive Blu-Ray Viewing</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-asmr-excellence-superior-performance-for-less-money/"><u>2024 Approved  ASMR Excellence  Superior Performance for Less Money</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-how-to-live-stream-360-videos-on-facebook/"><u>[New] How to Live Stream 360 Videos on Facebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-crafting-a-captivating-periscope-livestream/"><u>[New] Crafting a Captivating Periscope Livestream</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-discover-the-pathway-to-photo-mosaic-brilliance/"><u>2024 Approved  Discover the Pathway to Photo Mosaic Brilliance</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-snickel-and-snicker-5-best-meme-generating-apps-for-2024/"><u>[Updated] Snickel & Snicker  5 Best Meme Generating Apps for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-iphones-finest-photo-tools-for-objection-erasure/"><u>[New] IPhone's Finest Photo Tools for Objection Erasure</u></a></li>
+</ul></div>

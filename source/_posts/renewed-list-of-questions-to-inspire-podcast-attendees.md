@@ -1,7 +1,7 @@
 ---
 title: "Renewed List of Questions to Inspire Podcast Attendees"
-date: 2024-06-22T17:50:08.490Z
-updated: 2024-06-23T17:50:08.490Z
+date: 2024-07-13T22:55:29.504Z
+updated: 2024-07-14T22:55:29.505Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,9 @@ Here are some icebreaker questions that you can ask to start an interview.
 
 A leading question suggests a particular answer to the question that the questioner desires. These questions mostly have a yes or no answer. However, if you extract your question from the answer just given by the guest of the podcast, it is also a leading question.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
 
 Some leading questions that you can ask are discussed below.
@@ -77,6 +80,9 @@ Some leading questions that you can ask are discussed below.
 
 In an interview, a comparison question is one where you ask a person what he prefers between these two things. This type of question can also advance the discussion of the topic. Besides, you can get a deeper understanding of what guests think and feel about this podcast episode.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
 
 You can ask questions from the comparison questions given below.
@@ -129,6 +135,9 @@ You can get the best information from the person you are interviewing if you do 
 
 ### Ask WHY?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
@@ -137,6 +146,9 @@ As an interviewer, "why" is your most powerful tool. Guests usually provide surf
 
 If your guest is overwhelmed by the emotions and has stopped before completing his answer, help him achieve it by asking, "What Happened Next?" Use a softer tone while asking this question.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
@@ -207,3 +219,44 @@ Consider the following when picking which of the above questions to use on your 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-public-domain-zen-soundscape/"><u>[New] In 2024, Public Domain Zen Soundscape</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/interactive-television-integrating-fb-vids/"><u>Interactive Television  Integrating FB Vids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/a-step-by-step-tutorial-for-speech-transcription-in-word/"><u>A Step-by-Step Tutorial for Speech Transcription in Word</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-mastering-mobile-captions-ios-and-androids-leading-helpers/"><u>In 2024, Mastering Mobile Captions  IOS & Android's Leading Helpers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-bypassing-ban-secret-insights-into-avoiding-fb-blacklist-for-2024/"><u>[New] Bypassing Ban  Secret Insights Into Avoiding FB Blacklist for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-highlights-of-short-track-speed-skating-olympics-2022/"><u>[New] Highlights of Short Track Speed Skating Olympics 2022</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-transforming-creativity-into-a-sustainable-livelihood/"><u>[New] 2024 Approved  Transforming Creativity Into a Sustainable Livelihood</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-discover-14-inspiring-text-based-motion-masterpieces-for-2024/"><u>[New] Discover 14 Inspiring Text-Based Motion Masterpieces for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-no-cost-windowsmac-video-software-top-picks/"><u>In 2024, No-Cost Windows/Mac Video Software, Top Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elevate-your-videography-best-hd-android-video-apps-guide/"><u>[New] In 2024, Elevate Your Videography  Best Hd Android Video Apps Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/culinary-stars-of-tiktoks-feasting-scene/"><u>Culinary Stars of TikTok's Feasting Scene</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-churning-up-channels-top-gear-list/"><u>[New] 2024 Approved  Churning Up Channels  Top Gear List</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/2024-approved-recommended-video-background-changers/"><u>2024 Approved Recommended Video Background Changers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/breaking-boundaries-education-through-vr-lenses-for-2024/"><u>Breaking Boundaries  Education Through VR Lenses for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/dissecting-av1s-capabilities-beyond-vp9/"><u>Dissecting AV1's Capabilities Beyond VP9</u></a></li>
+<li><a href="https://fox-http.techidaily.com/action-camera-bargains-selecting-top-6-for-under-100-costs/"><u>Action Camera Bargains  Selecting Top 6 for Under $100 Costs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-comedic-craftsmanship-unlocking-gags-at-zero-cost/"><u>In 2024, Comedic Craftsmanship  Unlocking Gags at Zero Cost</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-from-words-to-wax-mastering-voice-note-techniques/"><u>[New] 2024 Approved  From Words to Wax  Mastering Voice Note Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/enrich-your-art-through-6-premier-nft-platforms-for-2024/"><u>Enrich Your Art Through 6 Premier NFT Platforms for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-utilizing-b-roll-enhancing-video-quality/"><u>In 2024, Utilizing B Roll  Enhancing Video Quality</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-enhance-creativity-with-these-top-6-instagram-reel-tools/"><u>[New] In 2024, Enhance Creativity with These Top 6 Instagram Reel Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/crafting-captivating-content-for-a-consistent-climb-in-subscribers/"><u>Crafting Captivating Content for a Consistent Climb in Subscribers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-decoding-techniques-in-human-gesture-recognition/"><u>In 2024, Decoding Techniques in Human Gesture Recognition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-essential-tips-for-magix-video-pro-x-users/"><u>In 2024, Essential Tips for Magix Video Pro X Users</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-skypessay-revolutionize-communication-by-altering-your-voice-on-video-calls/"><u>Updated SkypEssay Revolutionize Communication by Altering Your Voice on Video Calls</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-5-vr-headsets-for-drones/"><u>Best 5 VR Headsets for Drones</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-master-meetings-the-ultimate-list-of-10-free-recorders/"><u>[New] Master Meetings  The Ultimate List of 10 Free Recorders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-precise-methods-for-creating-impactful-client-spots-on-film/"><u>In 2024, Precise Methods for Creating Impactful Client Spots on Film</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-excellence-in-flight-choosing-superior-drone-motor-technology/"><u>[New] In 2024, Excellence in Flight  Choosing Superior Drone Motor Technology</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-guiding-principles-for-modifying-photographic-identities-on-major-social-platforms/"><u>[New] Guiding Principles for Modifying Photographic Identities on Major Social Platforms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-pushing-videography-to-new-heights-with-the-1j5-camera/"><u>In 2024, Pushing Videography to New Heights with the 1J5 Camera</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-10-high-definition-gaming-laptops-reviewed/"><u>[New] 2024 Approved  Top 10 High-Definition Gaming Laptops Reviewed</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-motorola-g24-power-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Motorola G24 Power FRP</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-8-passcode-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 8 Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/premier-slideshows-to-videos-for-2024/"><u>Premier Slideshows to Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-techniques-for-uploading-original-posts-again/"><u>[Updated] In 2024, Techniques for Uploading Original Posts Again</u></a></li>
+</ul></div>
