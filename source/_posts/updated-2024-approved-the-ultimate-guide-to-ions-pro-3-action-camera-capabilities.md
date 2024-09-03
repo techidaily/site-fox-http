@@ -1,0 +1,164 @@
+---
+title: "\"[Updated] 2024 Approved  The Ultimate Guide to ION's Pro 3 Action Camera Capabilities\""
+date: 2024-09-02T08:43:49.528Z
+updated: 2024-09-03T08:43:49.528Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [Updated] 2024 Approved: The Ultimate Guide to ION's Pro 3 Action Camera Capabilities\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: The Ultimate Guide to ION's Pro 3 Action Camera Capabilities\""
+keywords: "Pro 3 Guide,ION Pro3,ION Camera Tips,Action Cam Pro,Ultimate Pro3 Guide,Capabilities ION3,Pro3 ION Guide"
+thumbnail: https://thmb.techidaily.com/390e6108c338c717535ae5268513a4f027783679d87088006ba977c8519d5351.jpg
+---
+
+## The Ultimate Guide to ION's Pro 3 Action Camera Capabilities
+
+# iON Air Pro 3 Action Camera Review
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+ Here is a simple yet stunning action camera unit for you: iON Air Pro 3\. It can provide amazing video quality with its bullet shaped, aluminium clad type hardware design. You need not to spend on additional housing arrangement to make it waterproof. There is a big slider on upper side of camera that assists in easy operations; you can operate it perfectly even under water while wearing gloves. Those who are searching for a low profile yet impressive action camera unit with all essential features can definitely keep their eyes at iON Air Pro 3 device. It is definitely a fine choice with price tag of $169.99 only. If you want a camera that can provide stunning results even with helmet mounting then pick iON Air from market.
+
+## Complete Review for iON Air Pro 3 Wi-Fi
+
+![ion-air-pro3](https://images.wondershare.com/filmora/article-images/ion-air-pro3.jpg)
+
+[Check at Amazon]( https://www.amazon.com/gp/product/B00H8H7MU4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00H8H7MU4&linkId=57ebbae6fea3b5b36db500ba411ab485)
+
+[Check at Amazon](https://www.amazon.com/gp/product/B00H8H7MU4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00H8H7MU4&linkId=e6660d0d0724fe7eea7b8576b71b81b6
+)
+
+1. **Specs Table:**  
+| **Item name**            | **iON Air Pro 3 Wi-Fi**                                                 |                      |                                                          |  
+| ------------------------ | ----------------------------------------------------------------------- | -------------------- | -------------------------------------------------------- |  
+| **Date available**       | **November 2013**                                                       |                      |                                                          |  
+| **Price**                | **Official: $169.99**                                                   |                      |                                                          |  
+| **Manufacture**          | **iON (US)**                                                            |                      |                                                          |  
+| **Basic Specifications** |                                                                         |                      |                                                          |  
+| **Parameters**           | **Details**                                                             | **Parameters**       | **Details**                                              |  
+| **Weight**               | 177 grams only                                                          | **Shape**            | Bullet shape                                             |  
+| **Memory**               | Micro SD – Up To 64GB                                                   | **Dimensions**       | 21\*53\*111mm                                            |  
+| **Image resolution**     | Up to 12 MP                                                             | **Video resolution** | Up to 1080P/60fps                                        |  
+| **Battery**              | Build in 1200MAH Lithium Ion Battery (2.5 Hours of Continuous Shooting) | **Waterproof**       | Waterproof to Depths of 49ft (15 meters) without housing |  
+| **Display**              | Not included                                                            | **Feature**          | Wi-Fi Enabled and FREE 10GB Of Cloud Storage             |
+2. **Pros and Cons:**  
+| Pros                                              | Cons                                                                             |  
+| ------------------------------------------------- | -------------------------------------------------------------------------------- |  
+| 1080P/60fps leads to amazing video quality        | Poor apps lack in functionality                                                  |  
+| Easy-to-use (just point and start recording)      | Microphone picks too much wind noise                                             |  
+| Slick flashlight-like design                      | Non-removable type battery                                                       |  
+| Waterproof without housing (Can go up to 49 feet) | In-built image stabilizer leads to jelly-like effect and it can't be turned off. |  
+| 8 Point G-Sensor Stabilization included           |                                                                                  |  
+| Vibration alert                                   |                                                                                  |
+3. **What is Inside the Box?**  
+ The box contains:  
+   * iON Pro 3 Action Camera unit  
+   * Adhesive Pad  
+   * Mini Tripod  
+   * Helmet Mount  
+   * Power Adapter  
+   * Mini USB Cable
+4. **Design and Accessories:**  
+ This extensive action camera unit lacks somewhere the waterproofing ability because it can serve you only up to 15 meters whereas the competitor GoPro device can easily go below up to 40 meter. So iON Air Pro can be rated as a good choice for surfing needs but when it comes to diving then you have to look at GoPro.  
+ The package includes decent accessories such as universal power adapter, USB cable and mounts. Even if you want to buy few additional accessories then they can be obtained with much cheaper price tag as compared to GoPro collections. The mount upgrade options include surfboards, handle bars and headbands. On the front side you will find a f2.8 fog free lens with 16 mm dimensions.
+5. **Video and Photo Quality:**  
+ The iON Air Pro 3 device can serve users with 1080p resolution level at 30 fps frame rate settings. The maximum supported bit rate with this mode is 12 Mbps. You can easily switch to 720p with 120 fps, 30fps and 60 fps frame rate settings where bit rate increases up to 22 Mbps. The best thing to know is its ability to record a secondary thumbnail at WQVGA resolution level during 1080p resolution setting, this file can be easily uploaded on internet and can be shared immediately with other devices. In case if you are working with remote application then supported resolution settings are 720p/30fps and 1080p/ 30 fps, the mode gets automatically selected depending upon resolution switch position. Videos can be easily captured at 160 degree wide angle type view. Further, it can be adjusted to obtain little tighter details with 140 and 150 degree focus. This fixed focus type lens is best from 3.3 feet and ranges perfectly up to infinity thus you need to maintain proper space between subject and camera.  
+ It can capture stills at 12Mp and 5MP resolution level while serving with 4:3 aspect ratio. Users can prefer to switch between time lapse and burst modes with interval selection of 60, 30\. 10, 5 and 2 for the first case and 10 shot type settings in case of burst mode.
+6. **Wi-Fi and Application:**  
+ It is much simpler to access Wi-Fi settings with this device. Switch on your device as well as the Wi-Fi Podz then move to Wi-Fi setting of your tablet or smart phone. Here also select Podz from your network and then add password. The settings part is over and now you can control your device from remote location easily. Settings can be adjusted from camera application and it also provides facility to fast media transfers between both connected devices.  
+
+## Recommend best video editing software for action camera users  
+
+ If you want to take your video content to the next level with some video editing without being completely overwhelmed, you will definitely want to give Wondershare Filmora (originally Wondershare Video Editor) a try. The software offers a free trial period which allows you to try before buy. Well-designed intuitive interface enables anyone to master the program within minutes.  
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+7. **Battery life and Storage:**  
+ iON Air Pro 3 comes with a non removable battery that is really sad because you don’t have option to replace when it dies during shoot. But the good news is that this non removable battery makes it a compact action camera with waterproof body so that it can be easily used in tough situations. With 1080p resolution level it can record easily up to 2.5 hours. On the other side, the supported Micro SD card goes up to 64 GB capacity. Thus you can easily store a shoot of 4 hours 20 minute length if working on 1080p at 60 fps rating. Additionally, you will be able to obtain 8GB additional space from MiMedia that can be easily used for sharing videos or photos online.
+
+**Conclusion:**
+
+ This bullet shaped camera is right option for you if you are searching for something having features close to Toshiba or GoPro designs. The Wi-Fi PODZ adds flexibility to controls and accessibility. As the box include only few basic mounts so you may have to spend little extra to get the remaining ones from market. This device is best rated for helmet mount needs. The excellent video quality along with ease of operation and wide angle focus make it first choice under affordable action cam model category. You don’t need to spend on a waterproof case but apps are yet to be improved to enhance flexibility.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-capturing-details-with-intimate-filming-techniques/"><u>[New] 2024 Approved  Capturing Details with Intimate Filming Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-guide-to-unwavering-visual-captures/"><u>[New] A Guide to Unwavering Visual Captures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-breakdown-average-monthly-earning-for-podcasters/"><u>[New] In 2024, Breakdown  Average Monthly Earning for Podcasters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-gopro-hero5-black-vs-yi-4k-latest-camera-showdown/"><u>[New] In 2024, GoPro Hero5 Black VS Yi 4K - Latest Camera Showdown</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-ultimate-strategy-for-selecting-a-premium-stream-service/"><u>[New] In 2024, The Ultimate Strategy for Selecting a Premium Stream Service</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-innovative-iphone-and-ipad-video-players-the-10-best-options-for-2024/"><u>[New] Innovative iPhone & iPad Video Players  The 10 Best Options for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-perfect-pivoting-mastering-video-angles-for-social-success-for-2024/"><u>[New] Insta Perfect Pivoting  Mastering Video Angles for Social Success for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-leading-tactics-sourcing-high-quality-photo-and-video-backdrops-for-2024/"><u>[New] Leading Tactics  Sourcing High-Quality Photo & Video Backdrops for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-maximizing-pc-color-with-windows-hdri/"><u>[New] Maximizing PC Color with Windows HDRI</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-optimizing-your-podcasts-the-seo-blueprint-for-2024/"><u>[New] Optimizing Your Podcasts  The SEO Blueprint for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-new-face-of-sony-updates-to-s6500-blu-rayhd-player-for-2024/"><u>[New] The New Face of Sony  Updates to S6500 Blu-Ray/HD Player for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-bare-essentials-for-relaxation/"><u>[Updated] 2024 Approved  Bare Essentials for Relaxation</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-essential-equipment-list-secure-your-zoom-sessions/"><u>[Updated] 2024 Approved  Essential Equipment List  Secure Your Zoom Sessions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-achieving-stunning-light-conditions-with-an-iphone/"><u>[Updated] Achieving Stunning Light Conditions with an iPhone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-comprehensive-overview-dji-inspire-2/"><u>[Updated] Comprehensive Overview - DJI Inspire 2</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-deciding-on-the-best-upgrade-for-your-4k-vision-for-2024/"><u>[Updated] Deciding on the Best Upgrade for Your 4K Vision for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-cut-to-the-chase-impactful-branding/"><u>[Updated] In 2024, Cut to the Chase  Impactful Branding</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-peak-choice-top-five-high-definition-cameras/"><u>[Updated] In 2024, Peak Choice  Top Five High Definition Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-reviving-retro-shots-step-by-step-for-image-conversion-and-curation/"><u>[Updated] In 2024, Reviving Retro Shots  Step-by-Step for Image Conversion & Curation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unveiling-novel-window-11-secrets-for-enhanced-usage/"><u>[Updated] In 2024, Unveiling Novel WINDOW 11 Secrets for Enhanced Usage</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-why-videos-speak-louder-for-brands/"><u>[Updated] In 2024, Why Videos Speak Louder for Brands</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-analysis-av1-versus-vp9-video-encoding-for-2024/"><u>[Updated] In-Depth Analysis  AV1 versus VP9 Video Encoding for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-listenguide-breakdown-for-2024/"><u>[Updated] ListenGuide Breakdown for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-new-frontiers-unpacking-windows-10-improvements-for-2024/"><u>[Updated] New Frontiers  Unpacking Windows 10 Improvements for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crystal-clear-imagery-best-online-tools-for-clarity/"><u>2024 Approved  Crystal Clear Imagery  Best Online Tools for Clarity</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-navigating-minecraft-recording-top-5-techniques-for-mac-users/"><u>2024 Approved  Navigating Minecraft Recording  Top 5 Techniques for Mac Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-editors-treasure-trove-curated-list-of-iconic-80s-vhs-hacks-for-editing/"><u>2024 Approved  The Editor's Treasure Trove  Curated List of Iconic 80S VHS Hacks for Editing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/action-spectacular-the-full-t5-camera-review/"><u>Action Spectacular  The Full T5 Camera Review</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-infinix-zero-30-5g-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Infinix Zero 30 5G</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/capturing-change-time-lapse-on-samsung-smartphones/"><u>Capturing Change  Time-Lapse on Samsung Smartphones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elite-catch-footage-cameras-top-5-list/"><u>Elite Catch Footage Cameras - Top 5 List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/highpoint-artist-toolkit-review/"><u>Highpoint Artist Toolkit Review</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-correctly-handle-iomap64sys-failures-in-winos/"><u>How To Correctly Handle IOMap64.sys Failures in WinOS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-device-drivers-manually-on-windows-11-and-10-and-7-by-drivereasy-guide/"><u>How to install device drivers manually on Windows 11 & 10 & 7</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-designing-dynamic-movie-synopses/"><u>In 2024, Designing Dynamic Movie Synopses</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-iphone-guide-inverting-your-media-files/"><u>In 2024, IPhone Guide  Inverting Your Media Files</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-tecno-spark-20-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Tecno Spark 20 for Parents | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-transforming-audiencier-names-with-top-ai-tools/"><u>In 2024, Transforming Audiencier Names with Top AI Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-videohub-app-critique-compendium/"><u>In 2024, VideoHub App Critique Compendium</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/itel-p55t-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel P55T Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/poco-c65-messages-recovery-recover-deleted-messages-from-poco-c65-by-fonelab-android-recover-messages/"><u>Poco C65 Messages Recovery - Recover Deleted Messages from Poco C65</u></a></li>
+<li><a href="https://windows11.techidaily.com/revisiting-exe-execution-hurdles-in-windows/"><u>Revisiting EXE Execution Hurdles in Windows</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-cutting-edge-tech-a-deep-dive-into-computer-hardware-by-toms-hardware/"><u>Unveiling Cutting-Edge Tech: A Deep Dive Into Computer Hardware by Tom's Hardware</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
