@@ -1,7 +1,7 @@
 ---
 title: "\"Spark AR Visual Upgrades  The Role of Downloadable LUTs in Development\""
-date: 2024-07-13T23:41:03.056Z
-updated: 2024-07-14T23:41:03.056Z
+date: 2024-09-06T18:19:01.533Z
+updated: 2024-09-07T18:19:01.533Z
 tags: 
   - screen-recording
   - ai video
@@ -16,6 +16,12 @@ keywords: "Spark AR LUTs,AR Visual Enhancements,LUT Downloads AR,AR Development 
 thumbnail: https://thmb.techidaily.com/796380b2f6e477c41fdb5986a336623e799bf688b4a29cd4a3d817de3e2d744c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Spark AR Visual Upgrades: The Role of Downloadable LUTs in Development
 
 Color LUTs (Lookup Textures) are tables of RGB color values. In Spark AR, you can use color LUTs to quickly create color gradation effects throughout the scene. Go through the article and create your color LUT effect.
@@ -29,7 +35,10 @@ To develop AR effects for mobile cameras, you can use the Mac and Windows augmen
 ![create a color gradient effect](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2\. How to use LUTs in Spark AR?
 
@@ -57,6 +66,12 @@ The patch graph that renders the color gradation effect looks like this:
 
 ![color lut patch graph](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **To create the effect:**
 
 * Fix Scene Render Pass renders cameraTexture0 and all objects in the scene that are children of the device. This creates the output texture.
@@ -67,15 +82,42 @@ The patch graph that renders the color gradation effect looks like this:
 
 Here are the best free LUTs resources for Spark AR:
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Frost Zombie (Technical Showcase)
 
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Fur
 
 Here are the key building principles.
@@ -95,28 +137,46 @@ Even while using large image sequences is frequently discouraged, you can still 
 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Transition Curves
 
 There are 11 distinct animation curves included with Spark AR in the Transition patch. Here is a helpful visual aid because it might be challenging to distinguish between a quartic and a quintic when working on a project. With the SDF circle doubled (to sharpen the edge) and inserted into the Patch Pack's alpha channel, the circles are likewise straightforward rectangles. Since RGB values are three times one, the object is white.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Realistic Smoke
 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
 
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6\. Rainbow Glitter
 
 Given how beautifully Glitter Rain was received, I believed it would be fitting to broaden the potential with an HDR setting. While Glitter Rain made use of two different colors, this technique makes use of an entirely colorless substance and gets its color information via HDR.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
 
 ### Closing Thoughts
@@ -154,3 +214,42 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-corporate-crown-best-cloud-keepers/"><u>[New] 2024 Approved Corporate Crown Best Cloud Keepers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-crafting-your-unique-look-in-windows-photos-app-with-music-and-filter-choices/"><u>[New] Crafting Your Unique Look in Windows Photos App with Music and Filter Choices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-discovering-advanced-video-formats-av1-and-vp9/"><u>[New] Discovering Advanced Video Formats AV1 & VP9</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-easy-insights-into-effective-use-of-showmore-screen-recorder-for-2024/"><u>[New] Easy Insights Into Effective Use of ShowMore Screen Recorder for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-affordable-high-frame-rate-recordings/"><u>[New] In 2024, Affordable High Frame Rate Recordings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-androids-5-prime-photo-tools-ultimate-editing-companion/"><u>[New] In 2024, Android's 5 Prime Photo Tools Ultimate Editing Companion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-boosting-channel-traffic-with-youtube-backlink-tactics/"><u>[New] In 2024, Boosting Channel Traffic with YouTube Backlink Tactics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-finding-the-right-sound-top-asmrists-advice/"><u>[New] In 2024, Finding the Right Sound Top ASMRists Advice</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-instagram-guide-for-curating-and-sharing-podcasts/"><u>[New] The Instagram Guide for Curating and Sharing Podcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-science-of-writing-gripping-documentaries-for-2024/"><u>[New] The Science of Writing Gripping Documentaries for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-transform-overload-into-order-with-skillful-tiktok-saves-edits/"><u>[New] Transform Overload Into Order with Skillful TikTok Saves Edits</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-maintaining-continuous-connections-on-snapchat-tips-and-tricks/"><u>[Updated] 2024 Approved Maintaining Continuous Connections on Snapchat Tips & Tricks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-take-fullscreen-digital-canvas/"><u>[Updated] 2024 Approved Take Fullscreen Digital Canvas</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-10-text-boosting-techniques-in-videos/"><u>[Updated] 2024 Approved Top 10 Text Boosting Techniques in Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-customizing-your-pixels-melodic-identity-for-2024/"><u>[Updated] Customizing Your Pixel's Melodic Identity for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-essential-tips-for-simple-hdr-mastery-for-2024/"><u>[Updated] Essential Tips for Simple HDR Mastery for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-synching-melodies-to-photos-virtually/"><u>[Updated] In 2024, Synching Melodies to Photos Virtually</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-most-upvoted-reddit-post-of-all-time-a-list-of-10/"><u>[Updated] In 2024, The Most Upvoted Reddit Post of All Time - (A List of 10)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-perfect-whatsapp-ringtones-for-iphone-and-android-users-for-2024/"><u>[Updated] Perfect WhatsApp Ringtones for iPhone & Android Users for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-stand-out-in-the-crowd-ingenious-tips-for-top-tinder-bios-for-2024/"><u>[Updated] Stand Out in the Crowd - Ingenious Tips for Top Tinder Bios for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-what-phone-is-compatible-with-gear-vr-in-2024/"><u>[Updated] What Phone Is Compatible With Gear VR, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-fitness-forward-6-video-concepts-to-energize-your-online-community/"><u>2024 Approved Fitness Forward 6 Video Concepts to Energize Your Online Community</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-tecno-camon-30-pro-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Tecno Camon 30 Pro 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-14-without-passcode-now-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 14 Without Passcode Now</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-ipad-or-apple-iphone-se-2022-stuck-on-activation-lock-by-drfone-ios/"><u>How to Fix iPad or Apple iPhone SE (2022) Stuck On Activation Lock?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-essential-action-cam-recommendations-for-winter-sports/"><u>In 2024, Essential Action Cam Recommendations for Winter Sports</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-unlocking-the-basics-kinetic-design-techniques/"><u>In 2024, Unlocking the Basics Kinetic Design Techniques</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/learn-how-to-program-any-device-using-a-universal-remote-made-simple/"><u>Learn How to Program Any Device Using a Universal Remote Made Simple</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-two-screen-viewing-step-by-step-guide-for-netflix-users-for-2024/"><u>Mastering Two Screen Viewing - Step By Step Guide For Netflix Users for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-checking-for-updates-error-in-msfs-microsoft/"><u>Overcoming 'Checking for Updates' Error in MSFS (Microsoft</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-no-more-searching-the-best-filmora-coupon-codes-revealed/"><u>Updated No More Searching The Best Filmora Coupon Codes Revealed</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/what-is-truthgpt-coin-and-is-it-a-scam/"><u>What Is TruthGPT Coin, and Is It a Scam?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/win-mac-and-beyond-best-8-tools-that-transform-sub-to-universal-srtr-standards-for-2024/"><u>Win, Mac & Beyond Best 8 Tools that Transform SUB to Universal SRTR Standards for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/wirecast-vs-obs-the-ultimate-guide-to-live-streamers-for-2024/"><u>Wirecast Vs. OBS The Ultimate Guide to Live Streamers for 2024</u></a></li>
+</ul></div>

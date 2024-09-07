@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding Windows 11 New Functionality"
-date: 2024-09-02T08:39:08.228Z
-updated: 2024-09-03T08:39:08.228Z
+date: 2024-09-06T18:27:19.956Z
+updated: 2024-09-07T18:27:19.956Z
 tags: 
   - screen-recording
   - ai video
@@ -16,6 +16,12 @@ keywords: "Win11 New Features,Unlocking Win11's Capabilities,Understanding Win11
 thumbnail: https://thmb.techidaily.com/943166f05e826acb5eb0097146d69c366fc0ed75a4c0f9eeb903504474e41f95.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Decoding Windows 11 New Functionality
 
 # Windows 10 New Features at a Glance
@@ -40,18 +46,36 @@ Microsoft is clearly looking to bring the world at large on board with Windows 1
 
 ![update win10 13](https://images.wondershare.com/windows10/update-win10-13.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Cortana is one of the biggest features Microsoft is rolling out for the Windows 10\. If you have been using the Windows Phone, then you already have an idea of what to expect from the tablet/PC version. This digital assistant is designed to be vastly superior to Siri or Google Now. You'll find Cortana next to your desktop's start button, but you can also say "Hey, Cortana" to bring it to life. You remain in complete control of how much Cortana knows about you, but you'll definitely love the way Cortana can bring up requested information instantly. Early users have also noted that Cortana is more than capable of maintaining a full, almost-natural conversational flow.
 
 **Edge Web Browser**
 
 ![edge](https://images.wondershare.com/filmora/article-images/edge.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Say goodbye to Internet Explorer. The long-disliked browser is finally being chucked aside, in favor of something that will strive to be decidedly different. Although IE will still support legacy software, Edge is clearly the one taking center stage as the default browser for Windows 10\. Features will include a screen grabbing tool that offers touchscreen sketching capabilities, a reading mode, and even a notepad. Search results will be built around your preferences, and you will have the ability as well to get restaurant information or directions shot to you in an instant.
 
 **Windows 10 Start Menu**
 
 ![a8](https://images.wondershare.com/windows10/a8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 No one really liked the start menu layout for Windows 8 and Windows 8.1\. Windows 10 offers a fantastic improvement to that end. If the start menu looks quite familiar, that's because Microsoft has made it a point to bring back the style virtually all of us prefer. Yet Windows 10 will have some decided differences. The start menu will allow you to look over frequently-used apps, use the universal search without swiping, and yes, the tiles will be there, as well. However, you will be able to control how prominent they are.
 
 These are just three of the new features of Windows 10\. Ready to learn about a few more?
@@ -64,12 +88,24 @@ The above three features are good examples of what Windows 10 will bring to the 
 
 ![xbox games windows10](https://images.wondershare.com/windows10/xboy-games-windows10-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Windows 10 will include an exciting Xbox app, which will come loaded with possibilities. The Xbox app will give you the ability to control your Xbox One, but you'll also be able to utilize your DVR capture for your Windows games. Even more exciting is the way you'll have the ability to play multiplayer titles across between your Xbox One and your PC. With the streaming side of things, Windows 10 will allow you to stream titles from your Xbox Box. There will also be DirectX 12 support.
 
  **Universal Apps**
 
 ![universal_apps](https://images.wondershare.com/filmora/article-images/universal_apps.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you're going to use Windows 10 across several different devices, you're going to love this aspect. Photos, Music, Video, Map, People, and other apps will be available across all your devices. Furthermore, Windows 10 will ensure that your apps will look and function the same, regardless of the app you're using.
 
  **Design and Interface Improvements**
@@ -171,7 +207,3 @@ Follow @Liza Brown
 <li><a href="https://video-screen-grab.techidaily.com/visionsonic-vsdc-review-ideal-substitutes-for-2024/"><u>VisionSonic VSDC Review - Ideal Substitutes for 2024</u></a></li>
 <li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Samsung Galaxy Z Fold 5? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
