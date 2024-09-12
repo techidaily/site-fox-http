@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Examining the Limitations of Immersive Tech\""
-date: 2024-09-06T18:35:28.926Z
-updated: 2024-09-07T18:35:28.926Z
+date: 2024-09-11T13:08:57.564Z
+updated: 2024-09-12T13:08:57.564Z
 tags: 
   - screen-recording
   - ai video
@@ -16,24 +16,12 @@ keywords: "Tech Limits Analysis,Immersion Boundaries,VR/AR Restrictions,Virtual 
 thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c88648a5d01b942d93707afe0dac.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Examining the Limitations of Immersive Tech
 
 # What are the disadvantages of VR?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
@@ -45,27 +33,23 @@ _[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/fi
 _[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The equipment used for VR is very expensive
 
  Of course with any early stage technology, there are a host of issues to overcome among the first is cost for consumers to participate. Many systems run between $100 and $600 and we have not yet discussed the cost of purchasing experiences or games.
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Low resoultion content, large file size
 
  The new goggles or headsets that are coming out offer best available high resolution displays. But gaming experience is coming on at low resolution, leaving you with a low resolution experience. Below is a greatly condensed technical discussion explaining why VR is still so profoundly mediocre.
@@ -87,22 +71,31 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
  There is an addictive quality of Virtual Reality environments that should not be ignored. Those who are regular users of these spaces, even in its developmental state find that it can be hard to stay away. Users find themselves in some cases, preferring the virtual world to the real one. If these anecdotal experiences are being reported by a very small sample size what will be the impact on entire cultures that embrace this technology? Considerations of Virtual Reality must extend into the world of human activity and definitions of normal behavior. And as a reminder most of us who love science fiction have a sense of what true Virtual Reality really is. It should be clear that we are a very long way from enjoying the holodeck.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -129,39 +122,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-ultimate-guide-top-6-fb-lite-video-extractors/"><u>[New] 2024 Approved Ultimate Guide Top 6 FB Lite Video Extractors</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-color-perfection-interface/"><u>[New] Color Perfection Interface</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-complete-guide-for-seamlessly-linking-content-into-your-tiktok-profile/"><u>[New] In 2024, Complete Guide for Seamlessly Linking Content Into Your TikTok Profile</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-taking-comedy-to-the-digital-frontier-your-gif-creation-roadmap/"><u>[New] In 2024, Taking Comedy to the Digital Frontier Your GIF Creation Roadmap</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-science-behind-time-warp-visuals/"><u>[New] In 2024, The Science Behind Time Warp Visuals</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-unlocking-the-upside-exploring-asmrs-advantages/"><u>[New] In 2024, Unlocking the Upside Exploring ASMR's Advantages</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-iphones-ultimate-video-capture-list/"><u>[New] IPhone's Ultimate Video Capture List</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-sdr-to-hdri-step-by-step-video-enhancement-guide/"><u>[New] SDR to HDRI Step-by-Step Video Enhancement Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-sj4000-stylish-essentials-a-comprehensive-list/"><u>[New] SJ4000 Stylish Essentials A Comprehensive List</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elevate-your-basketball-viewing-top-15-strategies-for-live-streams/"><u>[Updated] 2024 Approved Elevate Your Basketball Viewing Top 15 Strategies for Live Streams</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-fundamentals-of-narrative-crafting/"><u>[Updated] 2024 Approved Fundamentals of Narrative Crafting</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-streamline-and-enhance-your-filmmaking-an-intro-to-final-cut-pro/"><u>[Updated] 2024 Approved Streamline and Enhance Your Filmmaking An Intro to Final Cut Pro</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-ideal-matches-mac-and-pc-video-decoders-freepaid/"><u>[Updated] In 2024, Ideal Matches Mac & PC Video Decoders (FREE/PAID)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-in-depth-analysis-our-selection-of-premium-21-hdmi-tvs/"><u>[Updated] In 2024, In-Depth Analysis Our Selection of Premium 2.1 HDMI TVs</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-quick-and-easy-the-top-ten-for-youtube-mpeg-transformation/"><u>[Updated] In 2024, Quick and Easy The Top Ten for YouTube MPEG Transformation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-innovative-14-examples-of-moving-text-art/"><u>[Updated] Innovative 14 Examples of Moving Text Art</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-kickstarting-a-successful-social-good-campaign-online/"><u>[Updated] Kickstarting a Successful Social Good Campaign Online</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-metaverse-chuckles-building-your-own-humorous-artifacts/"><u>[Updated] Metaverse Chuckles Building Your Own Humorous Artifacts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-prime-picks-the-finest-cardboard-compatible-virtual-reality-titles-for-2024/"><u>[Updated] Prime Picks The Finest Cardboard-Compatible Virtual Reality Titles for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-seamless-integration-iphone-video-editing-guide/"><u>[Updated] Seamless Integration IPhone Video Editing Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-seeking-the-8-pinnacle-of-androids-collaborative-video-collage-tools/"><u>[Updated] Seeking the #8 Pinnacle of Android's Collaborative Video Collage Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unveiling-sj-cam-s6-a-comprehensive-assessment/"><u>[Updated] Unveiling SJ-CAM S6 A Comprehensive Assessment</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/1716465494008-boost-channels-to-partner-status-in-under-90-days-start-now/"><u>Boost Channels to Partner Status in Under 90 Days, Start Now!</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-11-to-an-older-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 11 to an Older iOS System Version? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-hide-your-identity-share-your-life-instagram-live-secrets/"><u>In 2024, Hide Your Identity, Share Your Life - Instagram Live Secrets</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-display-apple-iphone-xr-screen-on-pc-easily-drfone-by-drfone-ios/"><u>In 2024, How to Display Apple iPhone XR Screen on PC Easily? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-mememakerpro-share-your-giggles/"><u>In 2024, MemeMakerPro Share Your Giggles</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-quick-start-mastering-ez-grabbers-downloading-and-usage/"><u>In 2024, Quick Start Mastering EZ Grabber's Downloading & Usage</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/infinity-edge-and-f3-display-cases-showcase-inwins-mastery-of-glass-fabrication-at-computex-2024/"><u>Infinity Edge & F3 Display Cases Showcase InWin’s Mastery of Glass Fabrication at Computex 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/maximizing-your-gameplay-overcoming-fps-drops-in-resident-evil-village-on-pc/"><u>Maximizing Your Gameplay: Overcoming Fps Drops in Resident Evil Village on PC</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/pewdiepies-paycheck-profile-a-glimpse-into-his-earnings-for-2024/"><u>PewDiePie’s Paycheck Profile – A Glimpse Into His Earnings for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/quiet-cinematic-dialogue-draft-for-2024/"><u>Quiet Cinematic Dialogue Draft for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/resolving-javascript-bugs-step-by-step-guide-for-discord-applications/"><u>Resolving JavaScript Bugs: Step-by-Step Guide for Discord Applications</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/successfully-updating-and-repairing-idt-high-definition-sound-card-drivers-on-windows-10-operating-system/"><u>Successfully Updating and Repairing IDT High Definition Sound Card Drivers on Windows 10 Operating System</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-vr-shopping-interface-prototyping/"><u>[New] 2024 Approved VR Shopping Interface Prototyping</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-assessing-gopro-hero5-session-quality/"><u>[New] Assessing GoPro Hero5 Session Quality</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-essential-guide-to-premium-cost-free-chat-apps-on-web/"><u>[New] In 2024, Essential Guide to Premium, Cost-Free Chat Apps on Web</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-essential-scripts-for-advanced-affects-workflows/"><u>[New] In 2024, Essential Scripts for Advanced Affects Workflows</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-embrace-the-future-facebook-video-autoplay-for-2024/"><u>[Updated] Embrace the Future Facebook Video Autoplay for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-complete-guide-to-video-content-creation-for-modern-marketers/"><u>[Updated] In 2024, The Complete Guide to Video Content Creation for Modern Marketers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-visionaryzoom-x7pro-elevate-images-to-new-heights/"><u>[Updated] In 2024, VisionaryZoom X7Pro Elevate Images to New Heights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-visionenhance-pro-high-fidelity-video-upgrade/"><u>[Updated] In 2024, VisionEnhance Pro - High Fidelity Video Upgrade</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-seamless-snapshots-mobile-tripods-for-iphones-androids/"><u>[Updated] Seamless Snapshots Mobile Tripods for iPhones, Androids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-rankings-top-10-free-ios-and-android-live-streamers/"><u>[Updated] The Ultimate Rankings Top 10 Free iOS and Android Live Streamers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-windows-snapshot-mastery-3-easy-approaches-for-2024/"><u>[Updated] Windows Snapshot Mastery (3 Easy Approaches) for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-10-innovative-ai-based-podcast-name-generators/"><u>2024 Approved Top 10 Innovative AI-Based Podcast Name Generators</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-update-available-enhance-your-brother-mfc-l2690dw-wireless-printer-experience/"><u>Latest Update Available: Enhance Your Brother MFC-L2690DW Wireless Printer Experience!</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/mastering-hardware-choices-wisdom-from-toms-tech-vault/"><u>Mastering Hardware Choices: Wisdom From Tom's Tech Vault</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-list-of-virtual-journeys-by-channel/"><u>The Ultimate List of Virtual Journeys, By Channel</u></a></li>
 </ul></div>
+

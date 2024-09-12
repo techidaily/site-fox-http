@@ -1,7 +1,7 @@
 ---
 title: "Key Frames per Second in Superior Slow Motion Imaging"
-date: 2024-07-13T23:33:06.403Z
-updated: 2024-07-14T23:33:06.403Z
+date: 2024-09-11T12:57:15.367Z
+updated: 2024-09-12T12:57:15.367Z
 tags: 
   - screen-recording
   - ai video
@@ -23,8 +23,12 @@ Frame rate is an extremely important parameter in videography. Frame rate is the
 The shooting frame rate determines how slow your video will look. If you shoot at 120 frames per second(fps) and display it at 30 fps, the video will play at 4 times slower. If you shoot at 480 fps, you are primarily shooting for super slow motion videos. We will explain all the different shooting frame rates for slow motion and state the best situations to use them.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 1\. 60 fps
 
 Anything higher than 30 fps is for creating slow-motion videos. 60 fps is the standard slow motion frame rate for Hollywood movies. You must have come across scenes where the superhero walks out slowly in a dramatic manner. Such scenes are shot at 60fps and displayed at 24 or 30 fps. Besides, this frame rate is suitable for capturing character's emotions as well.
@@ -36,8 +40,19 @@ Best Situation - When you are shooting slow-motion video for any action that is 
 ![60 fps slow motion video](https://images.wondershare.com/filmora/article-images/60-fps-for-slow-motion-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. 120 fps
 
 Let us assume that you are shooting at 120 fps and displaying at 30 fps. The video will play 4 times slower than it is in real life. The slow-motion effect will be two times slower than shooting at 60fps. If you shoot slow action at 120 fps, the output will be unusually slow and visually unpleasant. Therefore, you should shoot fast action scenes at 120 fps.
@@ -49,8 +64,18 @@ Best Situation - When you are shooting slow-motion video for fast-paced action a
 ![120 fps slow motion](https://images.wondershare.com/filmora/article-images/120-fps-for-slow-motion-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. 180 fps
 
 The scenes that are suitable for 120 fps are also suitable for 180 fps. This means you can shoot fast-moving subjects, objects, and elements. Some of the examples are horse riding, subject running, riding a bike, and likewise. But when you shoot at 180 fps, your objective is to show down the action much further.
@@ -59,10 +84,14 @@ This means that a scene shot at 180 fps will look slower than at 120 fps. You mu
 
 Best Situation - When you are shooting slow-motion video for fast moving action with emphasis on slow downing motion further.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![180 fps slow motion](https://images.wondershare.com/filmora/article-images/180-fps-for-slow-motion-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. 240 fps
 
@@ -73,6 +102,19 @@ The broadcasters show replays in slow motion by capturing bat and ball strikes a
 Best Situation - When you are shooting slow-motion video for action that are too fast for the eyes.
 
 ![240 fps slow motion video](https://images.wondershare.com/filmora/article-images/240-fps-for-slow-motion-video.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. 480 fps
 
@@ -109,6 +151,18 @@ The shooting frame rate determines how slow your video will look. If you shoot a
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-impressive-array-of-mobile-text-options-for-2024/"><u>[Updated] Impressive Array of Mobile Text Options for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-definitive-guide-to-classic-anime-themes/"><u>[Updated] In 2024, The Definitive Guide to Classic Anime Themes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-pinnacle-of-plot-construction-the-worlds-best-8-academies/"><u>[Updated] Pinnacle of Plot Construction – The World's Best 8 Academies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-the-secrets-to-parallel-playback-prowess/"><u>[Updated] Unlocking the Secrets to Parallel Playback Prowess</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-zoom-and-google-meet-visual-clarity-your-step-by-step-guide-to-cleaner-participation-for-2024/"><u>[Updated] Zoom & Google Meet Visual Clarity Your Step-by-Step Guide to Cleaner Participation for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/cracking-the-code-to-niche-celeb-content-creators-on-insta-for-2024/"><u>Cracking the Code to Niche Celeb Content Creators on Insta for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-audio-made-simple-for-imovie-editors/"><u>In 2024, YouTube Audio, Made Simple for iMovie Editors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-speed-with-premium-controller-add-ons/"><u>Mastering Speed with Premium Controller Add-Ons</u></a></li>
+</ul></div>
 
