@@ -1,7 +1,7 @@
 ---
 title: "\"Separate Visual Elements  Videos to Pics via Windows 10 Photos for 2024\""
-date: 2024-09-11T13:18:15.807Z
-updated: 2024-09-12T13:18:15.807Z
+date: 2024-09-10T19:55:41.518Z
+updated: 2024-09-17T20:19:13.111Z
 tags: 
   - screen-recording
   - ai video
@@ -52,13 +52,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -67,13 +60,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 * Hit the ‘slider’ for manually adjusting the frames > tap ‘Save a photo’ for a desired frame you need to save.
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
@@ -87,23 +73,9 @@ We are explaining the solutions here –
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -117,27 +89,14 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -145,6 +104,13 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -171,19 +137,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-implementing-gradual-audio-reduction-tricks-in-audacity/"><u>[Updated] 2024 Approved Implementing Gradual Audio Reduction Tricks in Audacity</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-from-raw-to-ready-a-comprehensive-instruction-manual-for-picture-posting-on-youtube-for-2024/"><u>[Updated] From Raw to Ready A Comprehensive Instruction Manual for Picture Posting on YouTube for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-capture-dynamic-movements-ipad-timelapse-tips/"><u>[Updated] In 2024, Capture Dynamic Movements IPad Timelapse Tips</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-picture-perfection-with-background-ipod-sounds/"><u>[Updated] In 2024, Picture Perfection with Background iPod Sounds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unlock-your-audio-cues-with-ease-windows-and-os-x-guide-to-srt/"><u>[Updated] Unlock Your Audio Cues with Ease Windows & OS X Guide to SRT</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/agriplay-squad-top-10-farming-games-to-bond-over/"><u>AgriPlay Squad Top 10 Farming Games to Bond Over</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-motorola-moto-g24-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Motorola Moto G24 to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-newcomers-pathway-maximizing-money-on-periscope-platform/"><u>In 2024, Newcomer's Pathway Maximizing Money on Periscope Platform</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/instant-best-picture-viewer-pro-for-2024/"><u>Instant Best Picture Viewer Pro for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/master-the-fix-overcoming-fifa-20-pc-stability-problems-comprehensive-instructions/"><u>Master the Fix: Overcoming FIFA 20 PC Stability Problems - Comprehensive Instructions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/microsoft-surface-studio-2-review/"><u>Microsoft Surface Studio 2 Review</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-best-10-chinese-video-to-english-translators/"><u>New 2024 Approved Best 10 Chinese Video to English Translators</u></a></li>
-<li><a href="https://media-tips.techidaily.com/oled-technology-face-off-choosing-between-the-clarity-of-samsung-and-lg-displays/"><u>OLED Technology Face-Off: Choosing Between the Clarity of Samsung and LG Displays</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-instagram-stories-integrating-personalized-graphics/"><u>[New] 2024 Approved Mastering Instagram Stories Integrating Personalized Graphics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-role-of-storytelling-in-presenting-market-research-findings/"><u>[New] 2024 Approved The Role of Storytelling in Presenting Market Research Findings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-ace-your-project-advanced-srt-tweaks-on-a-mac/"><u>[New] In 2024, Ace Your Project Advanced SRT Tweaks on a Mac</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-macos-11-big-sur-a-complete-hardware-overview/"><u>[New] MacOS 11 Big Sur A Complete Hardware Overview</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-microsofts-hololens-adventure-a-3d-visionary-experience/"><u>[New] Microsoft’s HoloLens Adventure – A 3D Visionary Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-reestablishing-iphone-x-trust-restoring-biometric-lock-for-2024/"><u>[New] Reestablishing iPhone X Trust Restoring Biometric Lock for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-explore-new-movie-landscapes-top-7-alternates/"><u>[Updated] Explore New Movie Landscapes - Top 7 Alternates</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-superior-pfv-optimization-in-tardy-action-for-2024/"><u>[Updated] Superior PFV Optimization in Tardy Action for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-iphone-flash-optimization-tips/"><u>2024 Approved IPhone Flash Optimization Tips</u></a></li>
+<li><a href="https://games-able.techidaily.com/dual-purpose-computers-vs-specialized-gaming-rigs/"><u>Dual Purpose Computers Vs. Specialized Gaming Rigs</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/final-cut-pro-color-correction-tips-tricks-and-techniques-for-2024/"><u>Final Cut Pro Color Correction Tips, Tricks, and Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-discover-the-top-10-igtv-editing-app-wonders/"><u>In 2024, Discover the Top 10 IGTV Editing App Wonders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-pushing-boundaries-with-high-speed-video-discovering-polaroids-xs/"><u>In 2024, Pushing Boundaries with High-Speed Video - Discovering Polaroid's XS</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-streamlining-gaming-experience-how-to-record-games-obs/"><u>In 2024, Streamlining Gaming Experience How to Record Games OBS</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tips-for-prolonging-gopros-energy-stamina/"><u>Tips for Prolonging GoPro's Energy Stamina</u></a></li>
 </ul></div>
 

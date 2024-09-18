@@ -1,7 +1,7 @@
 ---
 title: "\"Reconnaissance From Above  Deciphering GoPro Karma's Offering for 2024\""
-date: 2024-09-11T13:17:58.904Z
-updated: 2024-09-12T13:17:58.904Z
+date: 2024-09-15T20:14:53.551Z
+updated: 2024-09-17T19:01:51.297Z
 tags: 
   - screen-recording
   - ai video
@@ -41,13 +41,6 @@ thumbnail: https://thmb.techidaily.com/f78d1d150df9704e5a6635f2d8f1d9b65ffaf1875
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Pros and cons of GoPro Karma
 
 **Pros**
@@ -62,13 +55,6 @@ thumbnail: https://thmb.techidaily.com/f78d1d150df9704e5a6635f2d8f1d9b65ffaf1875
 **Verdict**
 
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
 
@@ -106,19 +92,6 @@ thumbnail: https://thmb.techidaily.com/f78d1d150df9704e5a6635f2d8f1d9b65ffaf1875
 
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
 #### Conclusion
@@ -126,13 +99,6 @@ thumbnail: https://thmb.techidaily.com/f78d1d150df9704e5a6635f2d8f1d9b65ffaf1875
 Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can be expensive when compared to the specifications on some of the other drones, if you do have some experience flying drones and you are looking for a great image quality, this could be the choice for you especially if you are looking for a portable drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -159,16 +125,28 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-cool-youtube-previews-in-imovie-easily/"><u>[New] 2024 Approved Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-screen-play-perfect-apples-no1-top-8-movie-app-guide/"><u>[New] Screen Play Perfect Apple's No.1, Top 8 Movie App Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-vector-artistry-unleashed-picks-of-the-year-for-designers/"><u>[New] Vector Artistry Unleashed Picks of the Year for Designers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-choosing-prime-top-8-budget-friendly-srt-translator-tools/"><u>[Updated] In 2024, Choosing Prime Top 8 Budget-Friendly SRT Translator Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/captivating-customer-revelation/"><u>Captivating Customer Revelation</u></a></li>
-<li><a href="https://techtrends.techidaily.com/creating-an-oculus-meta-quest-2-login-a-comprehensive-walkthrough/"><u>Creating an Oculus Meta Quest 2 Login: A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-iphone-photography-techniques-for-clear-mirror-captures/"><u>In 2024, IPhone Photography Techniques for Clear Mirror Captures</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-step-by-step-navigation-in-telegram-web-app/"><u>In 2024, Step-by-Step Navigation in Telegram Web App</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-tune-tracker-audio-for-visual-creations/"><u>In 2024, Tune Tracker Audio for Visual Creations</u></a></li>
-<li><a href="https://video-capture.techidaily.com/making-your-mark-with-video-content-in-captivate-for-2024/"><u>Making Your Mark with Video Content in Captivate for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/what-is-ai-voice-text-to-speech-for-2024/"><u>What Is AI Voice Text to Speech for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-behind-the-scenes-with-intova-edge-x/"><u>[New] 2024 Approved Behind the Scenes with Intova Edge X</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-a-complete-guide-to-twitter-archive-mastery/"><u>[New] A Complete Guide to Twitter Archive Mastery</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-avatar-makeover-building-your-cartoon-personality/"><u>[New] Avatar Makeover Building Your Cartoon Personality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-6-empowering-metaverse-instances-explained/"><u>[New] In 2024, 6 Empowering Metaverse Instances Explained</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-step-by-step-guide-to-create-flawless-animation-movies/"><u>[New] Step-by-Step Guide to Create Flawless Animation Movies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-media-upload-instruction-manual/"><u>[Updated] 2024 Approved Twitter Media Upload Instruction Manual</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-stream-smoothly-with-obs-studio-on-your-android/"><u>[Updated] In 2024, Stream Smoothly with OBS Studio on Your Android</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-amplify-your-storytelling-music-for-instagram-stories-and-videos/"><u>2024 Approved Amplify Your Storytelling Music for Instagram Stories & Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/bright-ideas-for-android-video-mastery/"><u>Bright Ideas for Android Video Mastery</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-90-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-disabled-iphone-7-plusipad-without-computer-by-drfone-ios/"><u>How to Unlock Disabled iPhone 7 Plus/iPad Without Computer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-record-and-upload-speeches-to-powerpoint/"><u>In 2024, Record and Upload Speeches to PowerPoint</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-ultimate-strategy-guide-to-digital-video-enhancement/"><u>In 2024, The Ultimate Strategy Guide to Digital Video Enhancement</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ultimate-phone-filters-and-camera-cases/"><u>In 2024, Ultimate Phone Filters & Camera Cases</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unlock-clarity-in-photos-leading-10-online-edits-at-a-glance/"><u>Unlock Clarity in Photos Leading 10 Online Edits at a Glance</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

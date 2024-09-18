@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Revamping Your Windows 11 Photo Viewer  Add Filters and Background Music\""
-date: 2024-09-11T13:19:20.018Z
-updated: 2024-09-12T13:19:20.018Z
+date: 2024-09-16T22:56:25.063Z
+updated: 2024-09-17T19:09:01.069Z
 tags: 
   - screen-recording
   - ai video
@@ -50,34 +50,13 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5**: Just select one you like. Preview it and then click Done.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -91,38 +70,17 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 **Step 5**: Hit the ‘Done’ button.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -149,18 +107,25 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-expert-techniques-in-creating-timelapses-on-black-hero5/"><u>[New] Expert Techniques in Creating Timelapses on Black Hero5</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-complete-breakdown-the-dji-inspire-1-uav/"><u>[Updated] Complete Breakdown The DJI Inspire 1 UAV</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-game-on-android-a-deep-dive-into-kinemaster-features/"><u>[Updated] Game On Android A Deep Dive Into KineMaster Features</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-essentials-for-effective-free-timer-utilization/"><u>2024 Approved The Essentials for Effective Free Timer Utilization</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/advanced-tactics-for-backdrop-cleanup-in-figma-for-2024/"><u>Advanced Tactics for Backdrop Cleanup in Figma for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-the-issue-why-is-davinci-resolve-not-launching-on-your-windows-computer/"><u>Fixing the Issue: Why Is DaVinci Resolve Not Launching on Your Windows Computer?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-perfect-photos-applying-radial-blur-in-ps/"><u>In 2024, Perfect Photos Applying Radial Blur in PS</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-what-is-a-watermark-how-to-watermark-your-facebook-photosvideos/"><u>In 2024, What Is a Watermark? How to Watermark Your Facebook Photos/Videos</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Vivo V30 Pro | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-create-stunning-mac-slideshows-a-beginners-guide-to-ezvid/"><u>New In 2024, Create Stunning Mac Slideshows A Beginners Guide to Ezvid</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/rejuvenating-distorted-mov-mp4-files-on-pcos-x/"><u>Rejuvenating Distorted MOV, MP4 Files on PC/OS X</u></a></li>
-<li><a href="https://fox-http.techidaily.com/strategies-for-merging-youtube-music-and-video-content-effectively-for-2024/"><u>Strategies for Merging YouTube Music & Video Content Effectively for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/stream-and-record-gamers-ultimate-guide-for-2024/"><u>Stream and Record Gamers' Ultimate Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-how-to-autoplay-youtube-videos-on-facebook/"><u>[New] 2024 Approved How to Autoplay Youtube Videos on Facebook?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-superior-engine-picks-elevating-your-quadcopters-capabilities/"><u>[New] 2024 Approved Superior Engine Picks Elevating Your Quadcopter's Capabilities</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-choosing-google-pixel-music-matches-online/"><u>[New] Choosing Google Pixel Music Matches Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-creating-a-clickable-thumbnail-enhancing-video-visibility-without-costs/"><u>[New] Creating a Clickable Thumbnail Enhancing Video Visibility without Costs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-full-facetune-review-the-pathway-to-picture-perfection/"><u>[New] Full Facetune Review The Pathway to Picture Perfection</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-the-ultimate-roadmap-to-unearthing-elusive-discord-servers/"><u>[Updated] 2024 Approved The Ultimate Roadmap to Unearthing Elusive Discord Servers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-the-art-of-monochrome-modification/"><u>[Updated] Mastering the Art of Monochrome Modification</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-app-reception-a-comprehensive-scrutiny/"><u>In 2024, App Reception A Comprehensive Scrutiny</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-best-practices-for-efficient-slide-capture/"><u>In 2024, Best Practices for Efficient Slide Capture</u></a></li>
+<li><a href="https://fox-http.techidaily.com/key-elements-of-constructive-job-interviews/"><u>Key Elements of Constructive Job Interviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/senso-activbuds-wireless-headphones-review/"><u>Senso ActivBuds Wireless Headphones Review</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-oppo-a78-by-drfone-android/"><u>Universal Unlock Pattern for Oppo A78</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

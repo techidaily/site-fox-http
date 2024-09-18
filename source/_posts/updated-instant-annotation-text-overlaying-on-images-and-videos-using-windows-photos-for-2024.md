@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Instant Annotation  Text Overlaying on Images & Videos Using Windows Photos for 2024\""
-date: 2024-09-11T13:12:55.950Z
-updated: 2024-09-12T13:12:55.950Z
+date: 2024-09-14T16:45:22.638Z
+updated: 2024-09-17T16:04:34.104Z
 tags: 
   - screen-recording
   - ai video
@@ -52,23 +52,9 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
@@ -81,36 +67,15 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
@@ -119,19 +84,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -158,19 +110,34 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-funimate-essentials-for-the-avid-gamer/"><u>[New] In 2024, Funimate Essentials for the Avid Gamer</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-iphone-photo-excellence-simple-tips-and-tricks/"><u>[New] In 2024, IPhone Photo Excellence Simple Tips & Tricks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-jungle-beat-parrots/"><u>[Updated] 2024 Approved Jungle Beat Parrots</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-digital-laughter-lab/"><u>[Updated] Digital Laughter Lab</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-budget-friendly-video-settings-for-low-end-systems/"><u>2024 Approved Budget-Friendly Video Settings for Low-End Systems</u></a></li>
-<li><a href="https://article-posts.techidaily.com/a-detailed-guide-to-ending-your-linkedin-user-experience-for-2024/"><u>A Detailed Guide to Ending Your LinkedIn User Experience for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/decoding-youtubes-economics-how-to-quantify-watches-and-earnings-for-2024/"><u>Decoding YouTube's Economics How to Quantify Watches and Earnings for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-motorola-razr-40-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Motorola Razr 40</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-8-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 8 Plus Without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-honor-x50i-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Honor X50i Phone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo V30 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-recording-your-world-how-camstudio-redefined/"><u>In 2024, Recording Your World - How CamStudio Redefined</u></a></li>
-<li><a href="https://extra-support.techidaily.com/luminance-hdr-review-is-this-a-good-choice-to-create-hdr-for-2024/"><u>Luminance HDR Review Is This a Good Choice to Create HDR for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/quick-guide-activatingdeactivating-picture-in-picture-pip-for-youtube/"><u>Quick Guide Activating/Deactivating Picture In Picture (PIP) for YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-best-aspect-ratios-to-enhance-video-quality/"><u>[New] 2024 Approved Best Aspect Ratios to Enhance Video Quality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-countdown-magic-discover-10-must-have-androidios-clocks/"><u>[New] 2024 Approved Countdown Magic Discover 10 Must-Have Android/iOS Clocks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-exploring-mukbang-culture-in-live-video-formats/"><u>[New] 2024 Approved Exploring Mukbang Culture in Live Video Formats</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-essential-sites-for-watching-vr-media/"><u>[Updated] 2024 Approved Essential Sites for Watching VR Media</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-snapperview-4-review-synopsis-for-2024/"><u>[Updated] SnapperView 4 Review Synopsis for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-audio-alchemy-transforming-videos-through-music-addition-and-cutting/"><u>2024 Approved Audio Alchemy Transforming Videos Through Music Addition & Cutting</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-14-pro-max-without-apple-password-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Reset iPhone 14 Pro Max Without Apple Password? | Stellar</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-transform-your-media-projects-uploading-images-to-youtube/"><u>In 2024, Transform Your Media Projects Uploading Images to YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/macsierras-top-picks-for-dvd-creation-software/"><u>MacSierra’s Top Picks for Dvd Creation Software</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-around-chatgpts-size-barrier-insights-and-solutions/"><u>Navigating Around ChatGPT's Size Barrier: Insights and Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/popular-imagery-origins-decoded/"><u>Popular Imagery Origins Decoded</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-guide-upgrading-to-the-latest-nvidia-mx150-graphics-drivers-on-windows-machines/"><u>Step-by-Step Guide: Upgrading to the Latest Nvidia MX150 Graphics Drivers on Windows Machines</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-solutions-for-fixing-the-clownfish-voice-alteration-device/"><u>Step-by-Step Solutions for Fixing the Clownfish Voice Alteration Device</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamline-and-shine-the-top-5-video-quality-tools/"><u>Streamline & Shine The Top 5 Video Quality Tools</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/taste-trek-journey-through-global-cuisine-secrets/"><u>Taste Trek Journey Through Global Cuisine Secrets</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-make-your-own-dvds-a-step-by-step-guide-to-movie-creation/"><u>Updated Make Your Own DVDs A Step-by-Step Guide to Movie Creation</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
