@@ -1,7 +1,7 @@
 ---
 title: "[New] Ultimate SD Compatibility with Sony A7S II for 2024"
-date: 2024-07-13T23:24:30.705Z
-updated: 2024-07-14T23:24:30.705Z
+date: 2024-09-21T16:53:24.771Z
+updated: 2024-09-22T21:16:29.347Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 
 # Best Memory Card for Sony A7S II
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -33,9 +30,6 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -73,9 +67,6 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -114,9 +105,6 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -142,6 +130,27 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-become-proficient-at-note-management-through-mematic/"><u>[New] Become Proficient at Note Management Through Mematic</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-best-top-timelapses-quick-capture-and-edit/"><u>[New] Best Top Timelapses Quick Capture & Edit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-accelerated-mp4-conversion-for-fb-media/"><u>[New] In 2024, Accelerated MP4 Conversion for FB Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-interactive-narratives-basics-and-beyond/"><u>[New] In 2024, Interactive Narratives Basics and Beyond</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transforming-srt-into-subc-top-3-actionable-steps/"><u>[New] In 2024, Transforming SRT Into SUBC Top 3 Actionable Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-tips-for-obtaining-pristine-photos-without-payment-for-2024/"><u>[New] Top Tips for Obtaining Pristine Photos Without Payment for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-employee-training/"><u>[Updated] 2024 Approved Employee Training</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-comprehensive-tutorial-for-effective-screen-recording/"><u>[Updated] Comprehensive Tutorial for Effective Screen Recording</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-innovative-techniques-for-captivating-ae-titles/"><u>[Updated] In 2024, Innovative Techniques for Captivating AE Titles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-techniques-succeeding-in-spotify-advertising-for-2024/"><u>[Updated] Top Techniques Succeeding in Spotify Advertising for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-most-enjoyable-free-movies-streaming-on-youtube-this-july-2nd4/"><u>Discover the Most Enjoyable Free Movies Streaming on YouTube This July 2nD4</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-8-webcam-filters-to-elevate-your-streaming-for-2024/"><u>Top 8 Webcam Filters to Elevate Your Streaming for 2024</u></a></li>
+<li><a href="https://techidaily.com/topo-5-mais-eficientes-softwares-para-combinar-imagens-em-um-unico-local/"><u>Topo 5 Mais Eficientes Softwares Para Combinar Imagens Em Um Único Local</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

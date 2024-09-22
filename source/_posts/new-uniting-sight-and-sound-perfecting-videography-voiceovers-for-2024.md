@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Uniting Sight & Sound  Perfecting Videography Voiceovers for 2024\""
-date: 2024-07-13T23:27:05.209Z
-updated: 2024-07-14T23:27:05.209Z
+date: 2024-09-21T21:06:02.682Z
+updated: 2024-09-22T20:50:11.500Z
 tags: 
   - screen-recording
   - ai video
@@ -44,18 +44,6 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
@@ -66,9 +54,6 @@ A good example of this would be narrating a story on top of some still images an
 
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
@@ -87,6 +72,13 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -95,17 +87,18 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
@@ -145,6 +138,21 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-explore-virtual-realms-with-these-videos/"><u>[New] Explore Virtual Realms with These Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-from-basics-to-high-quality-srgb-vs-rgb/"><u>[New] In 2024, From Basics to High-Quality Srgb vs Rgb</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-best-in-class-evaluating-the-top-8-sub-to-srt-convertors/"><u>[New] The Best in Class Evaluating the Top 8 Sub to SRT Convertors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-beijing-winter-olympics-highlights-2022-for-2024/"><u>[Updated] Beijing Winter Olympics Highlights 2022 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-step-by-step-srt-manipulation-for-mac-enthusiasts/"><u>[Updated] In 2024, Step-by-Step SRT Manipulation for Mac Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-leveraging-video-conferencing-a-guide-to-zipping-up-zoom-and-gmail-integration-for-2024/"><u>[Updated] Leveraging Video Conferencing A Guide to Zipping Up Zoom and Gmail Integration for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Best 10 Mock Location Apps Worth Trying On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/boost-your-tiktok-presence-zoom-integration-guide/"><u>Boost Your TikTok Presence Zoom Integration Guide</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/dicas-certificadas-para-resolver-problemas-de-reparacao-em-discos-dvd-copiados-no-windows-1011-e-mac/"><u>Dicas Certificadas Para Resolver Problemas De Reparação Em Discos DVD Copiados No Windows 10/11 E Mac</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-and-techniques-for-dominating-royal-match/"><u>Expert Tips and Techniques for Dominating Royal Match</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-conquer-iphone-podcast-downloads-a-step-by-step-guidebook/"><u>In 2024, Conquer iPhone Podcast Downloads – A Step-by-Step Guidebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-flight-to-perfection-assessing-gopro-karmas-capabilities/"><u>In 2024, Flight to Perfection Assessing GoPro Karma's Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-premiere-sneak-peeks-cinema-edition/"><u>In 2024, Premiere Sneak Peeks - Cinema Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-dawn-of-distinctive-filmmaking-with-vr/"><u>The Dawn of Distinctive Filmmaking with VR</u></a></li>
+</ul></div>
 

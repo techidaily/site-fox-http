@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Photo Cropping Apps  How to Crop Photos on iPhone\""
-date: 2024-07-13T23:24:52.252Z
-updated: 2024-07-14T23:24:52.252Z
+date: 2024-09-21T18:53:46.772Z
+updated: 2024-09-22T18:20:18.130Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/d940e7732f01996ef0ed9bff8746265de4ef97bd2
 
 # Photo Cropping Apps: How to Crop Photos on iPhone
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -35,27 +32,18 @@ thumbnail: https://thmb.techidaily.com/d940e7732f01996ef0ed9bff8746265de4ef97bd2
 
  Cropping a photo is one of the most basic photo editing operations and almost all photo editing apps for iPhones provide this option. As a matter of fact, iPhone's Photo app features the crop tool, which means that you can crop all your photos without ever downloading a photo editing app.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/crop-photo-on-iphone.gif)
 
  Once you've launched the Photos app, select the photo from your camera roll or any other photo album on your iPhone and double tap on it to display it in full screen. Click on the Adjustments icon that is located next to the trash bin at the bottom of your screen, and after the new window opens, tap on the crop icon.
 
  The crop menu will open and you'll be offered to choose whether you want to crop your photo manually or if you want to utilize a preset. Presets allow you to automatically convert your pictures into a square or 9:16 aspect ratio, so you can just tap on the option that you find the most helpful at the moment. Once the image is cropped simply click on the Done icon to save the changes you've made to your photo.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Photo cropping apps for iPhone
 
  iPhone owners who'd like to have access to superb photo cropping options and a plethora of powerful photo editing tools should try using some of the apps listed below.
 
 #### 1\. Cropic
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/cropic.jpg)
 
  Despite the fact that Cropic can be downloaded for free, the Pro version of the app must be purchased if you'd like to exploit the full potential of this remarkable image cropping tool. However, even the free version of Cropic will allow you to post entire photos and videos to Instagram, while a large selection of Canvas options will enable you to create beautiful backgrounds for images you cropped with this app. Using the Design Layout feature will enable you to scale, rotate or flip videos and photos effortlessly, but the app's lack of other photo editing options makes it less powerful than some of its competitors
@@ -97,6 +85,25 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-diving-into-samsung-galaxy-s8-the-ultra-hd-milestone/"><u>[New] Diving Into Samsung Galaxy S8 The Ultra HD Milestone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-from-basics-to-high-quality-srgb-vs-rgb/"><u>[New] In 2024, From Basics to High-Quality Srgb vs Rgb</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-iphone-photography-techniques-for-clear-mirror-captures/"><u>[New] IPhone Photography Techniques for Clear Mirror Captures</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-memetic-mastery-the-finest-text-based-jesters/"><u>[New] Memetic Mastery The Finest Text-Based Jesters</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-educator-elite-selective-learning-yt-channels-for-2024/"><u>[Updated] Educator Elite Selective Learning YT Channels for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-step-by-step-srt-manipulation-for-mac-enthusiasts/"><u>[Updated] In 2024, Step-by-Step SRT Manipulation for Mac Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-leveraging-video-conferencing-a-guide-to-zipping-up-zoom-and-gmail-integration-for-2024/"><u>[Updated] Leveraging Video Conferencing A Guide to Zipping Up Zoom and Gmail Integration for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-leveraging-jump-cuts-to-improve-video-flow/"><u>2024 Approved Leveraging Jump Cuts to Improve Video Flow</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mpeg-wma-movavi/"><u>在线免费将 MPEG 文件转换为 WMA音频 - 利用 Movavi 软件</u></a></li>
+<li><a href="https://common-error.techidaily.com/scroll-jumps-elevate-your-windows-experience/"><u>Scroll Jumps: Elevate Your Windows Experience</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/unleash-creativity-10-best-animation-tools-for-schools-for-2024/"><u>Unleash Creativity 10 Best Animation Tools for Schools for 2024</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

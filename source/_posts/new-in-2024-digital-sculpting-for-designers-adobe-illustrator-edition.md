@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Digital Sculpting for Designers  Adobe Illustrator Edition\""
-date: 2024-07-13T23:21:49.366Z
-updated: 2024-07-14T23:21:49.366Z
+date: 2024-09-17T16:09:56.005Z
+updated: 2024-09-22T18:36:02.346Z
 tags: 
   - screen-recording
   - ai video
@@ -42,9 +42,6 @@ Step2 Click on the **Type tool** and click anywhere on your blank canvas. Then, 
 
 Step3 Now, look at the bottom-right corner of the program. Find the **Font** settings and change your font type and size to anything you want.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![change font illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-font.png)
 
 Step4 Next, choose any color you want for your text from the panel on the screen's left side. Just remember to click on your text first before you start changing colors.
@@ -61,9 +58,6 @@ Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be
 
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![turn text into three d](https://images.wondershare.com/filmora/article-images/adobe-illustrator-panel.png)
 
 Step8 Now, all left to do is experiment with the settings in this panel and adjust how you want your 3D text to look. You can adjust its width, rotation, presets, angle, perspective, and so on. Just play around with the settings until you find your ideal result.
@@ -92,11 +86,15 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
@@ -109,6 +107,13 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -119,11 +124,15 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
@@ -156,6 +165,20 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/ai-driven-branding-the-top-10-podcast-name-makers-for-2024/"><u>AI-Driven Branding The Top 10 Podcast Name Makers for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabled-iphone-7-plus-how-to-unlock-a-disabled-iphone-7-plus-by-drfone-ios/"><u>Disabled iPhone 7 Plus How to Unlock a Disabled iPhone 7 Plus?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/free-online-conversion-change-mp3-files-into-high-quality-wav-or-aiff/"><u>Free Online Conversion: Change MP3 Files Into High-Quality WAV or AIFF</u></a></li>
+<li><a href="https://fox-http.techidaily.com/free-online-converter-transform-avi-and-m4v-files-without-cost-movavi/"><u>Free Online Converter: Transform AVI and M4V Files Without Cost - Movavi</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ganhe-mais-visualizacoes-com-os-microfones-perfeitos-top-8-do-youtube-revelados/"><u>Ganhe Mais Visualizações Com Os Microfones Perfeitos – Top 8 Do YouTube Revelados!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/gratis-online-converter-vrije-f4v-naar-flv-met-movavi-kort-en-eenvoudig/"><u>Gratis Online Converter: Vrije F4V Naar FLV Met Movavi - Kort en Eenvoudig</u></a></li>
+<li><a href="https://fox-http.techidaily.com/gratuit-konvertent-mov-van-mxf-online-met-movavi-expertise-and-vriendelijke-gebruikersoepbouw/"><u>Gratuit Konvertent MOV Van MXF Online Met Movavi - Expertise & Vriendelijke Gebruikersoepbouw</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-g2-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo G2 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-vivo-t2-pro-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Vivo T2 Pro 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-proven-strategies-for-selecting-elite-sound-engineers-in-modern-filmmaking/"><u>New In 2024, Proven Strategies for Selecting Elite Sound Engineers in Modern Filmmaking</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/pioneering-the-next-wave-the-best-8-android-applications-for-sound-engineering-for-2024/"><u>Pioneering the Next Wave The Best 8 Android Applications for Sound Engineering for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/revolutionizing-virtual-reality-with-xreal-air-2-a-complete-user-perspective/"><u>Revolutionizing Virtual Reality with Xreal Air 2 - A Complete User Perspective</u></a></li>
+<li><a href="https://fox-http.techidaily.com/f4v-avi-movavi/"><u>이제 사용자 친화적인 F4V-AVI 변환기가 새로운 Movavi 원격 바인딩에 추가됨!</u></a></li>
+</ul></div>
 

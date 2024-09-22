@@ -1,7 +1,7 @@
 ---
 title: "\"Smooth Shifts  Audio Transition Wisdom From Sonar by Platinum\""
-date: 2024-09-13T16:12:35.022Z
-updated: 2024-09-18T00:15:46.690Z
+date: 2024-09-20T17:25:01.830Z
+updated: 2024-09-22T20:27:27.992Z
 tags: 
   - screen-recording
   - ai video
@@ -95,27 +95,20 @@ Start saving your faded file to your PC in the proper location and format by dow
 
 ## Part 3\. Related FAQs of Crossfading
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. What does crossfading mean?
 
 Your audio, or any particular portion of your audio, may have a variety of transitions thanks to the crossfades tool. It's crucial to make a crossfade at the border where the edit takes place while editing. Right side fades in, left side fades out, and the fades cross at the location of the edit. If the cross fade isn't accomplished, it's probable that there may be an audible click or pop.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do I add crossfade?
 
 to make the second clip's audio fade up as the first clip's audio fades down. Audio from both clips is audible during the crossfade. Move the mouse toward the bottom of the track, near to a region border. The pointer will transform into a crossfade-like symbol. A crossfade will emerge, centered on the border, when you click and move the pointer to the left or the right. Cross dissolves, a kind of video transition, are comparable to crossfades.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. How do you crossfade MIDI logic?
 
@@ -141,6 +134,13 @@ In the next step, the two icons will appear above the audio file after you've ch
 
 ![fade the tracks](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Click and drag the other icon in Filmora to the required length to complete the fade-out. Playing the file inside the timeline of the Filmora preview layout will allow you to hear the soundtrack.
 
 ##### Step4 Export the Faded File
@@ -149,16 +149,22 @@ Start saving your faded file to your PC in the proper location and format by dow
 
 ## Part 3\. Related FAQs of Crossfading
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. What does crossfading mean?
 
 Your audio, or any particular portion of your audio, may have a variety of transitions thanks to the crossfades tool. It's crucial to make a crossfade at the border where the edit takes place while editing. Right side fades in, left side fades out, and the fades cross at the location of the edit. If the cross fade isn't accomplished, it's probable that there may be an audible click or pop.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How do I add crossfade?
 
@@ -192,21 +198,14 @@ Unlike audio fades, MIDI fades are not implemented in the same manner. One metho
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-revolutionary-techniques-for-chronological-categorization-of-photographs/"><u>[New] 2024 Approved Revolutionary Techniques for Chronological Categorization of Photographs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-insiders-guide-to-instagrams-chroma-key-effect/"><u>[New] 2024 Approved The Insider's Guide to Instagram’s Chroma Key Effect</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-comprehensive-guide-to-achieving-smooth-color-keying-for-2024/"><u>[New] A Comprehensive Guide to Achieving Smooth Color-Keying for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-essential-tech-for-effective-pc-image-capture-the-5-best/"><u>[New] Essential Tech for Effective PC Image Capture, The 5 Best</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-evaluating-hdr-tvs-does-aurora-hit-the-mark-for-2024/"><u>[New] Evaluating HDR TVs Does Aurora Hit the Mark for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-speedy-pace-fb-videos-innovative-apps-and-proxies-ensuring-faster-uploaddownload/"><u>[Updated] 2024 Approved Speedy Pace FB Videos Innovative Apps & Proxies Ensuring Faster Upload/Download</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-professionals-choice-leading-video-editors-for-sierra/"><u>[Updated] Professional's Choice Leading Video Editors for Sierra</u></a></li>
-<li><a href="https://win11.techidaily.com/from-failures-to-functionality-mastery-of-windows-script-repair/"><u>From Failures to Functionality: Mastery of Windows Script Repair</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>How to Watch Hulu Outside US On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-balancing-act-camera-gimbals-for-drones/"><u>In 2024, Balancing Act Camera Gimbals for Drones</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-eyefirefox-capture-extensions/"><u>In 2024, EyeFirefox Capture Extensions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-ultimate-online-broadcast-platforms/"><u>In 2024, Ultimate Online Broadcast Platforms</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolved-troubleshooting-steps-for-launching-forza-horizon-4-expert-advice/"><u>Resolved! Troubleshooting Steps for Launching Forza Horizon 4 | Expert Advice</u></a></li>
-<li><a href="https://fox-http.techidaily.com/step-by-step-crafting-captivating-haul-videos/"><u>Step-by-Step Crafting Captivating Haul Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-quest-for-visual-excellence-can-pickup-be-the-top-photo-editor-on-android/"><u>The Quest for Visual Excellence – Can PickUp Be the Top Photo Editor on Android?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/want-your-deleted-iphone-photos-back-use-iclouds-hidden-storage-top-8-tips/"><u>Want Your Deleted iPhone Photos Back? Use iCloud's Hidden Storage: Top 8 Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-a-filmmakers-must-visit-list-free-visual-effect-and-editing-websites-reviewed/"><u>[New] 2024 Approved A Filmmaker's Must-Visit List Free Visual Effect & Editing Websites Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-fundamentals-of-online-tale-creation-methods/"><u>[Updated] Fundamentals of Online Tale Creation Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-funnyframefarm-digital-jokes-galore/"><u>[Updated] FunnyFrameFarm Digital Jokes Galore</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-speech-to-text-efficient-conversion-techniques-for-microsoft-word-users/"><u>[Updated] Speech to Text Efficient Conversion Techniques for Microsoft Word Users</u></a></li>
+<li><a href="https://windows11.techidaily.com/essential-tracker-tools-the-ultimate-6-list-for-windows-users/"><u>Essential Tracker Tools: The Ultimate 6 List For Windows Users</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-get-your-mac-to-detect-and-use-an-outside-monitor-again/"><u>How to Get Your Mac to Detect and Use an Outside Monitor Again</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-select-an-ergonomic-keyboard-for-maximum-productivity-in-202-cufflinks/"><u>How to Select an Ergonomic Keyboard for Maximum Productivity in 202 Cufflinks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-honor-magic5-ultimate-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Honor Magic5 Ultimate Device</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/quick-corrections-for-iphone-shot-blur-issues-for-2024/"><u>Quick Corrections for iPhone Shot Blur Issues for 2024</u></a></li>
 </ul></div>
 

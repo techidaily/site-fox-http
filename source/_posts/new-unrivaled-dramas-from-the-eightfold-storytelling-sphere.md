@@ -1,7 +1,7 @@
 ---
 title: "[New] Unrivaled Dramas From the Eightfold Storytelling Sphere"
-date: 2024-07-13T23:21:55.912Z
-updated: 2024-07-14T23:21:55.912Z
+date: 2024-09-15T20:06:12.349Z
+updated: 2024-09-22T19:26:58.884Z
 tags: 
   - screen-recording
   - ai video
@@ -69,25 +69,10 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Best comedy scripts
 
 **_1\. 21 Jump Street_**
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![21 jump street](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-4.jpg)
 
 **Writer:** [Michael Bacall](https://en.wikipedia.org/wiki/Michael%5FBacall), [Stephen J. Cannell](https://en.wikipedia.org/wiki/Stephen%5FJ.%5FCannell)
@@ -244,9 +229,6 @@ Download the script here: <https://www.takarabio.com/documents/User%20Manual/RR0
 
 **_2\. UNBREAKABLE_**
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![unbreakable](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-14.jpg)
 
 **Writer:** M. Night Shyamalan
@@ -257,9 +239,6 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 
 **Download the script here:** <https://www.scripts.com/script/unbreakable%5F1086>
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Best animation scripts
 
 **_1\. Cinderella_(1950)**
@@ -314,6 +293,13 @@ When you look at the top-grossing movies at the box office, it's no surprise tha
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Sure, we'd all love to write one of those big blockbusters, but it's going to take a lot of blood, sweat, and writing to earn Marvel's trust. That's why I want to draw attention to the movie that is in fourth place: A Quiet Place Part II. The sequel to 2018's A Quiet Place has grossed over $160 million this year and still has three months to go. Why is this significant? I will explain.
 
 As aspiring screenwriters, it is important for us to focus on markets where we can break through. Some genres don't necessarily require a huge budget or an A-list star to be successful, and that's good news. Making a movie is the beginning of the journey to getting hired to write a superhero movie.
@@ -352,6 +338,13 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 
 ![21 jump street](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Writer:** [Michael Bacall](https://en.wikipedia.org/wiki/Michael%5FBacall), [Stephen J. Cannell](https://en.wikipedia.org/wiki/Stephen%5FJ.%5FCannell)
 
 The script of 21 Jump Street gives a new twist to the Buddy action movie genre by giving comedy equal weight to action. It takes the premise of the original TV show but flips the tone from straightforward action to offbeat comedy. Always think, “How can I subvert genres? How can I mix genres and create something new?
@@ -371,6 +364,13 @@ How this amazing comedy drama script came about is a good example of a writer wh
 That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikipedia.org/wiki/Kelly%5FFremon%5FCraig) did when she sent a copy of the script to James L. Brooks, and he eventually became her mentor. As she says, “It was a crazy longshot I took at the beginning! And I never thought it would work. But I sent him the script and he ended up taking on the project.”
 
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Best Christmas play scripts
 
@@ -397,6 +397,13 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 ### Best promotional video scripts
 
 ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _**1\. Announcement**_
 
@@ -437,6 +444,13 @@ Ages of the actors: _Approximately 30-40 years of age_
 Suitable for: _All ages_
 
 ![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In this ten-minute play for two actors, two young men meet on a train. One is a serious young man on his way to propose to his girlfriend, the other is a cynical loner who advises the former to escape the wedding while he can. The council backfires and an earnest young man sets out on a journey, leaving the recluse in this comedy-drama with a wonderful twist to his story.
 
@@ -586,6 +600,18 @@ Creating video content that can potentially go viral is no longer a complicated 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-prime-video-communication-experience-the-top-10-mobile-apps/"><u>[New] In 2024, Prime Video Communication Experience The Top 10 Mobile Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-sky-eyes-on-the-action-dji-phantom-pro-vs-gopro-fusion/"><u>[New] In 2024, Sky Eyes on the Action DJi Phantom Pro VS GoPro Fusion</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-medium-article-imagery-scales/"><u>[Updated] 2024 Approved Medium Article Imagery Scales</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-premier-psone-emulators-enjoy-classic-gaming-again/"><u>[Updated] In 2024, Premier PsOne Emulators Enjoy Classic Gaming Again</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-quick-video-playback-with-vimeo-for-2024/"><u>[Updated] Quick Video Playback with Vimeo for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-motorola-g24-power-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Motorola G24 Power to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/my-journey-away-from-and-return-to-linux-discovering-the-reasons-behind/"><u>My Journey Away From and Return to Linux: Discovering the Reasons Behind</u></a></li>
+<li><a href="https://fox-http.techidaily.com/qual-e-melhor-flac-ou-wav-uma-comparacao-detalhada-para-audiolibros-e-musicas/"><u>Qual É Melhor, FLAC Ou WAV? Uma Comparação Detalhada Para Audiolibros E Músicas</u></a></li>
+<li><a href="https://fox-http.techidaily.com/riconverti-file-webm-in-mpg-senza-costi-tramite-il-servizio-di-movavi-guida-facile-allonline-conversion/"><u>Riconverti File WEBM in MPG Senza Costi Tramite Il Servizio Di Movavi - Guida Facile All'online Conversion</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamlined-windows-10-touch-updates/"><u>Streamlined Windows 10 Touch Updates</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-7-best-free-video-to-dvd-converters-of-2024-a-comprehensive-guide/"><u>Top 7 Best Free Video-to-DVD Converters of 2024: A Comprehensive Guide</u></a></li>
+</ul></div>
 

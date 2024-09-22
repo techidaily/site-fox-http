@@ -1,7 +1,7 @@
 ---
 title: "Innovative Methods to Subtly Soften Audible Output via Lumafusion for 2024"
-date: 2024-07-13T23:23:33.185Z
-updated: 2024-07-14T23:23:33.185Z
+date: 2024-09-15T17:24:13.128Z
+updated: 2024-09-22T18:39:05.523Z
 tags: 
   - screen-recording
   - ai video
@@ -28,9 +28,6 @@ There are several capabilities in Luma Fusion that make precise editing possible
 
 Step1 LumaFusion's default structure is comparable to that of many desktops editing programs: a multitrack timeline along the bottom, a media browser in the upper left, and a preview monitor that, depending on what you last chose, either displays a source clip or your timeline edit.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![lumafusion timeline](https://images.wondershare.com/filmora/article-images/2022/07/lumafusion-timeline.jpg)
 
 Step2 LumaFusion allows for the automated synchronization of up to 12 camera sources and several audio tracks. When a clip is loaded into LumaFusion, touch on it to open it in the viewer and then adjust the start and finish points.
@@ -43,9 +40,6 @@ Step3 From the choices, choose the Cross Dissolve (Fade) transition. The transit
 
 Beyond simple editing, LumaFusion excels in enhancing projects with a wide variety of built-in effects, transitions, titles, and color correction. It also has a limited (but excellent) collection of royalty-free music. Finally, LumaFusion Project Packages are a terrific solution to regularly backup a project for security or to complete altering it. After choosing Export, choose the Project Package from the list.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. LumaFusion Alternative Way to Fade Audio in Video
 
 A multi-track video editor made specifically for mobile devices is called LumaFusion. Journalists, filmmakers, and expert video producers often utilize it to create engrossing video narratives. But if you have a toolkit with everything you need already built in so you can use it as needed, fading is unexpectedly made simple. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) does this task faster than ever because to its user-friendly interface, which makes audio editing in Filmora a breeze.
@@ -90,6 +84,19 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -114,6 +121,19 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
@@ -122,20 +142,21 @@ In that window, you can select the MP3 format in the format customization box to
 
 ## Part 3\. Related FAQs about LumaFusion
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. How to you split audio and video in LumaFusion?
 
 Within the timeline, tap anywhere and move the mouse left or right to divide a clip in half. The audio from your clip may then be separated in the timeline. To do so, choose the audio channel and then click the pencil-shaped edit button at the bottom of the screen. This will display a variety of choices, including tools for pan, distortion, and volume. The audio editing features in LumaFusion are virtually as spectacular as the visual options—and just as intimidating.
@@ -162,6 +183,22 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-breaking-down-advanced-photographic-modes-for-enhanced-results/"><u>[New] 2024 Approved Breaking Down Advanced Photographic Modes for Enhanced Results</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-curate-and-connect-videos-for-watchlist/"><u>[New] Curate and Connect Videos for Watchlist</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-fps-fanatics-resource-for-fast-controls-and-extensions-for-2024/"><u>[New] FPS Fanatics' Resource for Fast Controls and Extensions for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harmonizing-audio-with-visuals-adding-melodies-to-powerpoint/"><u>[New] Harmonizing Audio with Visuals Adding Melodies to PowerPoint</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-cutting-edge-video-communities-eclipsing-youtube/"><u>[New] In 2024, Cutting-Edge Video Communities Eclipsing Youtube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-snicker-studio-cybernetic-cackles-for-2024/"><u>[New] Snicker Studio Cybernetic Cackles for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unpacking-the-advanced-capabilities-of-movavi-video-editor-2024plus/"><u>[New] Unpacking the Advanced Capabilities of Movavi Video Editor 2024+</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-multi-image-instagram-stories-a-step-by-step-tutorial/"><u>[Updated] In 2024, Mastering Multi-Image Instagram Stories A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-vr-downsides-the-hidden-costs-unveiled/"><u>[Updated] VR Downsides The Hidden Costs Unveiled</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-clarity-to-excellence-benqs-bl2711u-professional-4k-monitor-assessment/"><u>2024 Approved From Clarity to Excellence BenQ’s BL2711U Professional 4K Monitor Assessment</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlock-creative-potential-the-ultimate-list-of-affects-extensions/"><u>In 2024, Unlock Creative Potential The Ultimate List of Affects Extensions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/prime-selections-of-maximum-digital-safekeeping/"><u>Prime Selections of Maximum Digital Safekeeping</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/shedding-the-gloom-brighten-your-iphone-vids-for-2024/"><u>Shedding the Gloom Brighten Your Iphone Vids for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tap-into-new-streams-of-income-instagrams-latest-monetization-tools-for-artists/"><u>Tap Into New Streams of Income: Instagram’s Latest Monetization Tools for Artists</u></a></li>
+</ul></div>
 

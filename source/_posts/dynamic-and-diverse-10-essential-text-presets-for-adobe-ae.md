@@ -1,7 +1,7 @@
 ---
 title: "\"Dynamic and Diverse  10 Essential Text Presets for Adobe AE\""
-date: 2024-07-13T23:23:22.155Z
-updated: 2024-07-14T23:23:22.155Z
+date: 2024-09-20T16:04:26.738Z
+updated: 2024-09-22T16:32:15.381Z
 tags: 
   - screen-recording
   - ai video
@@ -117,8 +117,12 @@ Step3Click on the text layer to expand it and you will see different parameters 
 ![adjust text layer after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-layer-after-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3\. Alternative Way to Create Text Effects for Video
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
@@ -138,6 +142,13 @@ Step2Drop the video clip onto timeline if you want to use it as a background to 
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
 
 ![select any desired template](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
 
@@ -167,18 +178,12 @@ The glitch text effects are extremely common in today's videos as they instantly
 
 You should have simple but effective motion text effects in your video so that certain texts and titles can get the message across clearly to the viewers. In this pack, you get amazing motion text effects with and without keyframes. Besides, you get several useful parameters like in-out mirror, reverse in and out, and overshoot that you can tweak to get the desired text animations.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![motion type text animation preset](https://images.wondershare.com/filmora/article-images/2022/09/motion-type-text-animation-preset.jpg)
 
 ### 3\. Typominal Typewriter Effect Preset
 
 There are two FFX files in the pack that lets you get a retro text effect along with the popular typewriter animation. Import the files and drop the effect on your text and you can adjust several parameters to create amazing text effects. The retro effect is very similar to watching something on old monitors with very low resolution.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![typominal typewriter effect preset](https://images.wondershare.com/filmora/article-images/2022/09/typominal-typewriter-effect-preset.jpg)
 
 ### 4\. Tapered Stroke Preset
@@ -211,6 +216,13 @@ If you are looking for some upbeat text presets, kinetic text animation pack is 
 
 ![kinetic text animation preset](https://images.wondershare.com/filmora/article-images/2022/09/kinetic-text-animation-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9\. 30 Universal Text Animation
 
 If you want to keep the text animations simple but you want it to be different than the usual text animations, this is the pack for you. You get 30 standard text animation presets with a geometrical element in each one of them. You can customize the timing, duration, size, and various such parameters to fit them in your video project perfectly.
@@ -222,6 +234,13 @@ If you want to keep the text animations simple but you want it to be different t
 Lower thirds are an essential part of the modern videos where you are introducing concepts and giving out information. Starting from title introductions to displaying headlines and quotes, you will get the perfect text presents in this dynamic pack to satisfy your requirements perfectly. You can customize several parameters to get the text effects as per your video project.
 
 ![text animation lower third preset](https://images.wondershare.com/filmora/article-images/2022/09/text-animation-lower-third-preset.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Add Text Presets in After Effects?
 
@@ -239,9 +258,6 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 ![adjust text layer after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-layer-after-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. Alternative Way to Create Text Effects for Video
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
@@ -257,6 +273,13 @@ Step1Install Wondershare Filmora and launch the application. Click on New Projec
 Step2Drop the video clip onto timeline if you want to use it as a background to your text. If you want to use any stock background, go to Stock Media> Pexels/Pixabay> Video and drop any background onto the timeline.
 
 ![drop the video clip onto timeline](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
 
@@ -296,6 +319,22 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-a-complete-breakdown-lg-bp350-monitors-specifications-and-reviews/"><u>[New] 2024 Approved A Complete Breakdown LG BP350 Monitor's Specifications and Reviews</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-vimeo-vs-youtube-a-content-creators-guide/"><u>[New] Vimeo Vs. YouTube A Content Creator's Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-swiftly-get-your-favorite-skype-tones-from-here/"><u>[Updated] Swiftly Get Your Favorite Skype Tones From Here</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-compilation-winning-16-free-media-players-for-2024/"><u>[Updated] Ultimate Compilation Winning 16 Free Media Players for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-cutting-edge-nvidia-game-ready-drivers-compatible-with-windows-systems/"><u>Download Cutting-Edge NVIDIA Game Ready Drivers - Compatible with Windows Systems</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harvards-unsettling-tentacle-equipped-automaton-the-ultimate-solution-for-delicate-item-handling/"><u>Harvard's Unsettling Tentacle-Equipped Automaton: The Ultimate Solution for Delicate Item Handling</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-access-the-fandango-streaming-service-through-your-amazon-fire-stick/"><u>How to Access the Fandango Streaming Service Through Your Amazon Fire Stick</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-xiaomi-redmi-k70e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-monetize-your-live-webcam-shows/"><u>In 2024, How to Monetize Your Live Webcam Shows</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-definitive-guide-to-du-recorders-capabilities/"><u>In 2024, The Definitive Guide to Du Recorder's Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-top-windows-11-visualizer-for-rapid-images/"><u>In 2024, Top Windows 11 Visualizer for Rapid Images</u></a></li>
+<li><a href="https://video-capture.techidaily.com/resolving-issues-with-overwolfs-recording-feature-expert-advice/"><u>Resolving Issues with Overwolf's Recording Feature - Expert Advice!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/stop-automated-post-proposals-on-instagram-for-2024/"><u>Stop Automated Post Proposals on Instagram for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlining-multimedia-experiences-through-youtube-music-links-for-2024/"><u>Streamlining Multimedia Experiences Through YouTube Music Links for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-s23-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy S23 Phone Hassle-Free</u></a></li>
+</ul></div>
 

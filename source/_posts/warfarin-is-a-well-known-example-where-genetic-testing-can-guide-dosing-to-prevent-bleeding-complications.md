@@ -1,7 +1,7 @@
 ---
 title: Warfarin Is a Well-Known Example Where Genetic Testing Can Guide Dosing to Prevent Bleeding Complications.
-date: 2024-09-12T20:34:08.833Z
-updated: 2024-09-17T19:34:45.443Z
+date: 2024-09-18T21:58:44.155Z
+updated: 2024-09-22T18:53:23.865Z
 tags:
   - win11
   - win10
@@ -84,22 +84,8 @@ When you’re playing the Witcher 3: Wild Hunt, you suddenly encounter the crash
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/option-1.jpg)
 3. Click**VIDEO** .  
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/option1.jpg)
 4. Click**GRAPHICS** .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5. Turn off the**VSync** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/vSync.jpg)
@@ -113,15 +99,16 @@ When you’re playing the Witcher 3: Wild Hunt, you suddenly encounter the crash
 2. Click**OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/option-1.jpg)
 3. Click**VIDEO** .  
-![](https://images.drivereasy.com/wp-content/uploads/2019/08/option1.jpg)
-4. Click**GRAPHICS** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2019/08/option1.jpg)
+4. Click**GRAPHICS** .
 
 5. In the**Display Mode** , change the setting to the F**ull Screen** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/window.jpg)
@@ -129,13 +116,6 @@ When you’re playing the Witcher 3: Wild Hunt, you suddenly encounter the crash
 7. Relaunch the game and check the crash is resolved or not.
 
 If this fix doesn’t help, you can move to the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 5: Remove the frame rate cap
 
@@ -145,17 +125,33 @@ If this fix doesn’t help, you can move to the next fix.
 2. Click**OPTIONS** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/option-1.jpg)
 3. Click**VIDEO** .  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/option1.jpg)
 4. Click**GRAPHICS** .
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. Change**Maximum Frames Per Second** into**Unlimited** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/frames.jpg)
 6. Relaunch the game and check the crash is resolved or not.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 6: Disable your third-party software
@@ -196,6 +192,14 @@ OR
 2. Run Driver Easy and click **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update** button next to the driver to automatically download and install the correct version of this driver (you can do this with Free version). Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All).  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
 4. Run the Witcher 3 and check the crash will appear or not.
 
@@ -218,20 +222,18 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-guide-to-incredible-gopro-timelapse-cinematography-mastery/"><u>[New] 2024 Approved Guide to Incredible GoPro Timelapse Cinematography Mastery</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-live-from-anywhere-reach-anyone-streaming-techniques-for-iphonesipads/"><u>[New] In 2024, Live From Anywhere, Reach Anyone Streaming Techniques for iPhones/iPads</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-navigating-sales-for-inexpensive-gopros-for-2024/"><u>[New] Navigating Sales for Inexpensive GoPros for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-srt-files-unveiled-creating-and-optimizing-guide/"><u>[New] SRT Files Unveiled Creating and Optimizing Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-science-of-choosing-music-for-movie-previews/"><u>[New] The Science of Choosing Music for Movie Previews</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-converting-classics-digitizing-and-archiving-past-photos/"><u>[Updated] 2024 Approved Converting Classics Digitizing and Archiving Past Photos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-premier-11-sound-capture-gadgets/"><u>[Updated] 2024 Approved Premier 11 Sound Capture Gadgets</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-buyers-path-to-a-top-360-camera-purchase-guide/"><u>2024 Approved Buyer's Path to a Top 360 Camera Purchase Guide</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-fresh-selection-of-engagement-prompts-for-audio-audiences/"><u>2024 Approved Fresh Selection of Engagement Prompts for Audio Audiences</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-latest-sony-vaio-drivers-installed-on-your-pc-with-windows-os/"><u>Get the Latest Sony Vaio Drivers Installed on Your PC with Windows OS</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-infinix-zero-30-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Infinix Zero 30 5G Location | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/penning-plots-for-big-screens/"><u>Penning Plots for Big Screens</u></a></li>
-<li><a href="https://some-skills.techidaily.com/superior-audience-experiences-for-2024/"><u>Superior Audience Experiences for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-clean-image-borders-on-canva/"><u>The Ultimate Guide to Clean Image Borders on Canva</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-ultimate-list-8-online-locations-for-free-3d-text-psdfiles/"><u>The Ultimate List 8 Online Locations for Free 3D Text PSDFiles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-best-8-websites-where-you-can-download-free-3d-text-psdfiles/"><u>[New] 2024 Approved Best 8 Websites Where You Can Download Free 3D Text PSDFiles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-choosing-your-best-vr-camera-insights/"><u>[New] 2024 Approved Choosing Your Best VR Camera Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-conquer-the-elements-ranking-7-waterproof-cams/"><u>[New] Conquer the Elements Ranking #7 Waterproof Cams</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-simplified-rss-feed-creation-methods-for-podcasters/"><u>[New] Simplified RSS Feed Creation Methods for Podcasters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-leading-tactics-sourcing-high-quality-photo-and-video-backdrops/"><u>[Updated] Leading Tactics Sourcing High-Quality Photo & Video Backdrops</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-photographic-presentation-prowess-frame-tech/"><u>[Updated] Photographic Presentation Prowess Frame Tech</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-crafting-a-youtube-future-scaling-up-or-staying-independent/"><u>2024 Approved Crafting a YouTube Future Scaling Up or Staying Independent?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expertise-in-forming-inspiring-collage-photos-for-2024/"><u>Expertise in Forming Inspiring Collage Photos for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-vivo-v29e-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Vivo V29e Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-poco-c50-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Poco C50 FRP</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-turn-up-the-volume-with-instagram-reels-copycat-tiktok-style/"><u>In 2024, Turn Up the Volume with Instagram Reels, Copycat TikTok Style</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/novel-selection-for-francophones-starting-their-journey/"><u>Novel Selection for Francophones Starting Their Journey</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oneplus-nord-n30-se-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on OnePlus Nord N30 SE Device</u></a></li>
 </ul></div>
 

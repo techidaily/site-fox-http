@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Avoiding Ambiguity  Clear Dating of Digital Pics\""
-date: 2024-07-13T23:25:09.475Z
-updated: 2024-07-14T23:25:09.475Z
+date: 2024-09-15T16:26:00.479Z
+updated: 2024-09-22T16:35:46.191Z
 tags: 
   - screen-recording
   - ai video
@@ -67,9 +67,6 @@ But what if you miss an important date? How would you plan for this? Well, now y
 
 You can do this in two ways: With an **inbuilt photo editor** or an **external photo editor**. Let's take a look at both.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Use the inbuilt photo app on Android and iPhone to add date stamps
 
 Most phone makers do not usually have the option to superimpose a timestamp on their taken photos. However, some phones offer it.
@@ -390,9 +387,6 @@ Another photo editing app you can find useful is Adobe Photoshop Lightroom. The 
 
 The Adobe Photoshop Lightroom is a cloud-based product where you can upload and edit batches of images together. Below are some of the features of Adobe Photoshop Lightroom
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![adobe photoshop lightroom](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-3.jpg)
 
 **Key Features**
@@ -405,9 +399,6 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 
 You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US) and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **VSCO**
 
 VSCO is another editing app you can use for your photo editing. VSCO has an easy-to-use UI and many useful functions. The enormous filter library, which can be used to improve your photographs and make them shareable, is its best feature.
@@ -447,6 +438,13 @@ You can make your photos sharper by simply navigating to the bottom of the Modif
 
 ![sharpen your images](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3Adjust lighting and exposure
 
 When retouching your image in the Photos app, select the Adjust tab, then drag the thumb along the Lights slider to make the necessary adjustments.
@@ -471,11 +469,25 @@ Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
 
 Step6Finally, select File>Save to add your date to the picture.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Use an inbuilt app to edit photos on Windows
 
@@ -486,6 +498,13 @@ Step2At the top of your screen, click on Edit & Create to get.
 ![click on edit create to get](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-12.jpg)
 
 Step3After clicking Edit, choose any option (Crop & rotate, Filters, or Adjustments)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Add date stamps using Windows PC
 
@@ -505,9 +524,6 @@ Step4To create a text box, click and drag.
 
 Step5Enter the date you want.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
 
 Step6Select Menu in the upper-left corner.
@@ -517,6 +533,13 @@ Step6Select Menu in the upper-left corner.
 Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Edit Photos Online to add date stamps
 
@@ -589,6 +612,23 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-exploring-the-potential-of-movie-maker-for-anime/"><u>[New] 2024 Approved Exploring the Potential of Movie Maker for Anime</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-guide-to-iphone-burst-mode-shooting/"><u>[New] 2024 Approved The Ultimate Guide to iPhone Burst Mode Shooting</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-prove-your-skills-with-flawless-ps4-screen-capture-for-gamers/"><u>[New] In 2024, Prove Your Skills with Flawless PS4 Screen Capture for Gamers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-polarr-editor-unveiled-ultimate-visual-transformation/"><u>[New] Polarr Editor Unveiled Ultimate Visual Transformation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-seamless-social-media-video-extraction-2023-app/"><u>[Updated] 2024 Approved Seamless Social Media Video Extraction - 2023 App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-ensuring-faster-audio-with-secure-spotify-tips/"><u>[Updated] In 2024, Ensuring Faster Audio with Secure Spotify Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-viral-velocity-15-dynamic-steps-to-skyrocketing-follower-count-and-fame-on-instagram/"><u>[Updated] In 2024, Viral Velocity 15 Dynamic Steps to Skyrocketing Follower Count and Fame on Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-is-product-review-vlog-paid/"><u>[Updated] Is Product Review Vlog Paid</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-increase-your-channels-reach-with-these-2-tricks/"><u>2024 Approved Increase Your Channel's Reach with These 2 Tricks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-uncovering-niche-experts-on-instagram-a-guide-to-impactful-collaborators/"><u>2024 Approved Uncovering Niche Experts on Instagram A Guide to Impactful Collaborators</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-directx-drawing-issues-a-comprehensive-guide/"><u>How to Fix DirectX Drawing Issues: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-2023s-scarcity-pioneering-vr-content-shortcomings/"><u>In 2024, 2023’S Scarcity Pioneering VR Content Shortcomings</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-how-to-fix-continuous-reboot-loop-on-windows-11-and-windows-10/"><u>Resolved: How to Fix Continuous Reboot Loop on Windows 11 & Windows 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/smooth-shifts-audio-transition-wisdom-from-sonar-by-platinum/"><u>Smooth Shifts Audio Transition Wisdom From Sonar by Platinum</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-radpower-radcity-5plus-assessing-strengths-and-addressing-its-bulky-nature/"><u>The Ultimate Guide to RadPower RadCity 5+: Assessing Strengths and Addressing Its Bulky Nature</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/watching-the-apple-spring-showcase-2022-key-details-and-new-gadget-guesswork/"><u>Watching the Apple Spring Showcase 2022 – Key Details & New Gadget Guesswork!</u></a></li>
+</ul></div>
 

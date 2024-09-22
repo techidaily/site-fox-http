@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Assessing Shooters' Choices  Hero 5 Black or KM-170\""
-date: 2024-07-13T23:28:10.400Z
-updated: 2024-07-14T23:28:10.400Z
+date: 2024-09-15T17:35:43.353Z
+updated: 2024-09-22T20:16:16.090Z
 tags: 
   - screen-recording
   - ai video
@@ -28,9 +28,6 @@ thumbnail: https://thmb.techidaily.com/805eca446b093ae5ce11fb98e26437d115f412aa3
 
 The GoPro has ruled the action camera market for over a decade. Whether a professional or someone looking for a personal adventure video shooting device, GoPro has eased the job for everybody. Off late, Nikon the premier camera-manufacturing brand has introduced a series of Keymission action camera models. Recently, after the release of Keymission 170 (widely in glance for the 170 degree view), with features comparable to the **GoPro Hero 5 Black**, there is much hype among the buyers when making a choice. We have tried to give you every bit of detail and a comparative analysis on these two camera models to ease your decision-making.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## GoPro Hero 5 Black VS Nikon Keymission 170
 
 [gopro hero5 black vs nikon keymission 170](https://images.wondershare.com/filmora/article-images/gopro-hero5-black-vs-nikon-keymission-170.jpg) ](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
@@ -93,9 +90,6 @@ The **Nikon Keymission 170 action camera** features dual shutters- separate for 
 
 1. **Photo Quality**  
 There is a notable difference in the performance of GoPro and Nikon when it comes to taking still images. With 12MP resolution (4000X3000 pixel settings) Hero 5 stands much ahead of Keymission 170 giving you the joy of capturing still photos at the resolution of 8.3MP (3840x2160 pixels). Another important convenience with GoPro is that you can take geo tagged photos besides the choice of shooting WDR and RAW photos. Nikon does not feature GPS configuration. You also cannot take RAW photos with Keymission 170.  
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hero5 balck keymission170 test](https://images.wondershare.com/hero5-balck-keymission170-test1.jpg)
 2. **Video Quality**  
 The video quality output of these cameras is the real point of attraction for all buyers. To all your relaxation, both of them can capture 4K30 (highest resolution) videos. Luckily, the quality of the videos is almost the same.Using the Protune settings on GoPro, you can get better results with sharpening, change ISO limits, take RAW videos with preferred audio settings, adjust the white balance etc. The first time users can use the default settings to capture good high-resolution videos. Keymission allows some limited adjustments with the Pro settings. You can obtain improved video quality by changing the white balance, exposure compensation and other details.  
@@ -113,9 +107,6 @@ White Balance
 Nikon Keymission gives you an amazing feel with the yellowish orange effect when using the default white balance. This is much enhanced compared to that on the GoPro Hero 5 black. GoPro supports automatic white balance adjustment according to the ambiance and lights. While this feature is very advanced in the latest, model but not as that of the Nikon effect.  
 Low Light Video Capturing  
 There are shortcomings with both these cameras when you are shooting under low light availability. Yet, GoPro is a bit advanced to give you good video quality under low light. With Nikon it is preferable to use extra lights if you desire to get bright sharp objects.  
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hero5 balck keymission170 low light test](https://images.wondershare.com/hero5-balck-keymission170-low-light-test.jpg)
 3. **Audio Quality**  
 The Hero 5 Black is very tactically designed with dual microphones – at the rear and front ends. The camera can auto switch microphone during video capturing based on the requirements. To give you better sound quality, the camera swaps to the back microphone during heavy disturbing noise coming from the front direction like biking under heavy wind speed. The **Nikon Keymission 170 action camera** has built in stereo microphone to produce medium quality satisfactory sound capturing.
@@ -146,9 +137,6 @@ What’s more, it has all the features you will need to make you feel like a pro
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/) [Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -174,6 +162,29 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-elite-powerhouses-of-desktop-technology/"><u>[New] 2024 Approved Elite Powerhouses of Desktop Technology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-vivavideo-app-analysis-in-depth-insights/"><u>[New] VivaVideo App Analysis In-Depth Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-windows-painting-programs-showdown-zero-and-more-dollars/"><u>[New] Windows Painting Programs Showdown Zero and More Dollars</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-mastering-video-backgrounds-teammeeting-blurring-guide/"><u>[Updated] 2024 Approved Mastering Video Backgrounds TeamMeeting Blurring Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-capture-the-moment-iphone-time-lapse-tutorial/"><u>[Updated] In 2024, Capture the Moment IPhone Time-Lapse Tutorial</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-integrating-azure-transcription-in-your-apps/"><u>[Updated] In 2024, Integrating Azure Transcription in Your Apps</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-the-skies-complete-review-of-dji-phantom-4/"><u>[Updated] Mastering the Skies Complete Review of DJI Phantom 4</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-art-of-description-crafting-compelling-podcast-hooks/"><u>[Updated] The Art of Description Crafting Compelling Podcast Hooks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boost-your-broadcast-game-mastering-obs-plus-streamlabs-mac-for-2024/"><u>Boost Your Broadcast Game Mastering OBS + Streamlabs, Mac for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-facebook-dating-for-your-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-picks-15-innovative-mounts-to-elevate-your-gopro/"><u>In 2024, Expert Picks 15 Innovative Mounts to Elevate Your GoPro</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-navigating-the-wonders-of-obs-on-android-devices/"><u>In 2024, Navigating the Wonders of OBS on Android Devices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-photographers-guide-to-effective-watermarking/"><u>In 2024, Photographers' Guide to Effective Watermarking</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-by-step-process-to-embed-timestamps-on-youtube-links-for-2024/"><u>The Step-by-Step Process to Embed Timestamps on YouTube Links for 2024</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-magic-6-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Magic 6.</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

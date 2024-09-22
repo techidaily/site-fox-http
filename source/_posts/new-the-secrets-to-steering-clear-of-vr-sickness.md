@@ -1,7 +1,7 @@
 ---
 title: "[New] The Secrets to Steering Clear of VR Sickness"
-date: 2024-07-13T23:26:23.704Z
-updated: 2024-07-14T23:26:23.704Z
+date: 2024-09-17T16:20:04.772Z
+updated: 2024-09-22T16:01:52.688Z
 tags: 
   - screen-recording
   - ai video
@@ -20,18 +20,12 @@ thumbnail: https://thmb.techidaily.com/2e5cadcabaa5bc146e9286cd6ccf5e30c43742afd
 
 # How to reduce Virtual reality (VR) sickness
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8 ways to reduce VR sickness
 
  People are individuals with individual mindsets, and have different response behaviors to different type of sickness they encounter. Past experiments have shown that the age group from 2-12 suffers from the sickness and it reportedly decreases till the age of 21\. The cycle then starts again in the late 50’s. We are now in a dire need of ways to get rid of the sickness in order to fully experience the VR systems and make them user friendly. According to Popular Science, VR sickness and general VR discomfort are currently among the biggest hurdles to overcome before VR is comfortably adopted by the mass market. Scientists have set their goals upon making the VR system a true hit towards the end of this year. The highlights say that the scientists have found ways to eliminate virtual reality sickness, making 2017 to be ‘the year of Virtual Reality’. Until then we can adopt some careful set of rules to avoid that nauseous feeling during the game.
@@ -58,16 +52,10 @@ thumbnail: https://thmb.techidaily.com/2e5cadcabaa5bc146e9286cd6ccf5e30c43742afd
 
  You can definitely not deny all the fun you can have with this new technology once you grab on all the cool gadgets and gears. Putting on a virtual reality headset can take you to a completely different world but would it really be fun when you have to vomit after ten minutes? Virtual reality sickness is a big hurdle to the widespread use of the virtual reality technology. The fact that ‘with virtual reality comes the sickness’ has been a major worry factor to the developers and scientists. Virtual Reality sickness brings along symptoms such as headaches, nausea, vomiting, discomfort, sweating, drowsiness, disorientation and apathy. Virtual reality sickness, however, is not a new problem. It has been known since the test pilots, test drivers and astronauts have been practicing their skills in simulators and mock vehicles.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why virtual reality make people sickness
 
  Now the question arises, what is really making us sick? Is it the gadgets or gears? Or some manufacturing flaw? The link connecting virtual reality and the sickness, lies within the human body itself. When you are in a virtual environment, in some cases, your body’s sense of balance does not completely line up with the movements of your head. Also, when the environment around you moves, but your body stays stationary you experience dizziness or nausea. Typically, the bigger the mismatch the worse the sickness. According to the statement delivered by a military pilot, when you go inside a simulator, the movements don’t exactly match the same as they do in the real world, and all of a sudden, what you feel is just not right. Another reason causing the problem is based on virtual reality games and other such systems. In such a VR system you experience environment larger than the room you are in. All these factors can ultimately drive you sick!
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 Benjamin Arango
@@ -93,6 +81,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-comparing-magix-graphics-software-variants/"><u>[Updated] 2024 Approved Comparing MAGIX Graphics Software Variants</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-blazing-lanes-at-sochi-2022-games/"><u>[Updated] Blazing Lanes at Sochi 2022 Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-integrating-custom-sounds-into-your-whatsapp-experience-for-2024/"><u>[Updated] Integrating Custom Sounds Into Your WhatsApp Experience for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-definitive-guide-for-shoppers-in-the-era-of-virtual-reality-for-2024/"><u>[Updated] The Definitive Guide for Shoppers in the Era of Virtual Reality for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-journey-from-tweets-to-snaps-in-vaccine-drive/"><u>Biden's Journey: From Tweets to Snaps in Vaccine Drive</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-astonishing-assessment-and-alternative-choices/"><u>In 2024, Astonishing Assessment & Alternative Choices</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-regional-preferences-transforming-iphone-locale-effortlessly/"><u>Mastering Regional Preferences: Transforming iPhone Locale Effortlessly</u></a></li>
+<li><a href="https://program-issues.techidaily.com/no-more-pc-disruptions-expert-tips-to-eliminate-scavengers-game-crashes/"><u>No More Pc Disruptions: Expert Tips to Eliminate Scavengers Game Crashes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/pixels-of-peaceful-tales-video-critique/"><u>Pixels of Peaceful Tales Video Critique</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
