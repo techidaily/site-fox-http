@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Guide to Excellent iPad/iPhone Interview Podcast Recording\""
-date: 2024-09-16T17:13:18.506Z
-updated: 2024-09-22T19:13:33.335Z
+date: 2024-09-26T22:55:10.559Z
+updated: 2024-09-28T22:48:01.835Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,13 @@ In the ongoing lines, you'll learn about hidden tips and tricks to record a podc
 
 Have you decided to record a podcast? Then to create a fantastic podcast, you don't need a professional studio or bundle of recording equipment. Your iPhone or iPad is special recording equipment if you're new to podcasting. It is also a super-compact setup during traveling. Ensure that you are equipped with all mentioned in the checklist below:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### External Microphone
 
 Every phone has an inbuilt microphone that can be used to record audio for your podcast if you are in a hurry. Unfortunately, it can't record sound in high definition, even in a medium like podcasting. When audio is the main focus, listeners will rapidly stop listening if your recording is subpar.
@@ -44,6 +51,13 @@ Are you looking for more versatile options? Then check below the list of Externa
 **1\. [Amazon Basics Microphone](https://www.amazon.com/AmazonBasics-Desktop-Mini-Condenser-Microphone/dp/B076ZSR6BB/ref=sr%5F1%5F1%5Fsspa?keywords=external+microphone&qid=1667765123&sr=8-1-spons&psc=1)**
 
 ![amazon basics microphone](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Amazon Basics Mini USB Condenser Microphone for Podcast is a Desktop mini microphone with a unidirectional pick-up pattern. It can achieve excellent sound quality and Works with Skype, Messages, FaceTime, Twitch, and YouTube.
 
@@ -63,6 +77,13 @@ _**What you will get**_
 **2\. [Elgato Wave:3 USB condenser Microphone](https://www.amazon.com/Elgato-Wave-Microphone-Podcasting-Capacitive/dp/B088HHWC47/ref=sr%5F1%5F1%5Fsspa?crid=R666NY94QABB&keywords=best%2Bexternal%2Bmicrophone%2Bfor%2Biphone%2Bpodcast&qid=1667799911&sprefix=best%2Bexternal%2Bmicrophone%2Bfor%2Biphone%2Bpodcas%2Caps%2C355&sr=8-1-spons&th=1)**
 
 ![elgato wave external microphone](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Elgato Wave:3 is a premium microphone and digital mixing company that provides plug-and-play convenience with broadcast-grade circuitry. Speech is precisely recorded using this microphone's condenser capsule with a crisp cardioid polar pattern. It can be easily attached to iPhones and iPad.
 
@@ -237,6 +258,19 @@ Full multi-track editing is available in Ferrite, from short edits to creating a
 
 You are all set and choose the best recording software. Now you will record a podcast on iPhone or an iPad. The ongoing lines will teach you from A-Z, and you'll get an extraordinary result.
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Record a Podcast in GarageBand
 
 GarageBand is unquestionably the best program for you to use to create your podcast. But, unfortunately, there isn't a portable, user-friendly workstation that you can always have with you.
@@ -261,18 +295,18 @@ Step3 Then, a window asks what audio track you'll be recording in the following 
 
 **Note:** you are ready to start recording if you are utilizing one microphone. But let's imagine you need to record with more than one microphone simultaneously (let's say you're the podcast presenter and you have a co-host or a guest). In that situation, you'll need to create numerous tracks and choose the appropriate input for each. Each track should be for a different external microphone that you're using.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ● Podcast Recording in GarageBand
 
 The project window will immediately dismiss when everything is prepared, and the **workspace's home page** will appear. Be careful to disable the metronome and count-in features at the top before beginning to record podcasts.
 
 ![podcast recording in garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * To ensure you maintain your **settings** and won't modify them accidentally later, I suggest saving your settings before pressing the record button.
 
@@ -297,13 +331,6 @@ Turning off these features will not affect any podcast steps.
 ### 2\. Turn off Notifications
 
 The distraction of any notification will disturb your recording tracks, increasing your recording time and causing bugs. That's why putting your iPhone or iPad on **"Turning Off Notifications"** is the only way to get an efficient podcast.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Mount your iPhone to keep it secure
 
@@ -345,14 +372,14 @@ Step3 Then, a window asks what audio track you'll be recording in the following 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-**Note:** you are ready to start recording if you are utilizing one microphone. But let's imagine you need to record with more than one microphone simultaneously (let's say you're the podcast presenter and you have a co-host or a guest). In that situation, you'll need to create numerous tracks and choose the appropriate input for each. Each track should be for a different external microphone that you're using.
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Note:** you are ready to start recording if you are utilizing one microphone. But let's imagine you need to record with more than one microphone simultaneously (let's say you're the podcast presenter and you have a co-host or a guest). In that situation, you'll need to create numerous tracks and choose the appropriate input for each. Each track should be for a different external microphone that you're using.
 
 ### ● Podcast Recording in GarageBand
 
@@ -374,18 +401,24 @@ The project window will immediately dismiss when everything is prepared, and the
 
 There is nothing much better than recording efficiently without any bugs. You'll obviously be at the top position if you are consistent on your podcast. Now, it's time to reveal top-secret tips for Podcasting with an iPhone. Don't miss any points!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Turn on Airplane Mode or do not disturb mode
 
 To record a podcast, you have to focus entirely on what you are doing. In this aspect, you have to cut off entirely from the externals. That's why putting your iPhone or iPad in **"Do not disturb''** mode is essential. The **"Airplane mode**'' is also helpful in this regard.
 
 Turning off these features will not affect any podcast steps.
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Turn off Notifications
 
@@ -396,10 +429,16 @@ The distraction of any notification will disturb your recording tracks, increasi
 Holding your phone while recording may cause bumps, vibrations, or knocks to be picked up by the microphone and heard in your podcast. To keep your phone steady, we advise utilizing a tripod and grip.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Test your audio before
@@ -446,5 +485,18 @@ All the equipment mentioned above is available at Amazon, and you should grab th
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-frozen-frontier-showcasing-2022s-olympic-peaks-and-precision-riders/"><u>[New] 2024 Approved Frozen Frontier Showcasing 2022'S Olympic Peaks and Precision Riders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-role-of-storytelling-in-presenting-market-research-findings/"><u>[New] In 2024, The Role of Storytelling in Presenting Market Research Findings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-screen-saving-android-titles-a-curated-list-of-indoor-games-for-2024/"><u>[Updated] Screen-Saving Android Titles A Curated List of Indoor Games for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-novices-to-pros-the-journey-of-learning-magix-maker/"><u>2024 Approved From Novices to Pros The Journey of Learning Magix Maker</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-zoo-matic-guide-to-improved-snapchat-media/"><u>2024 Approved The Zoo-Matic Guide to Improved Snapchat Media</u></a></li>
+<li><a href="https://driver-download.techidaily.com/asus-vg248qe-driver-downloads-for-windows-fast-and-free-update-solutions/"><u>Asus VG248QE Driver Downloads for Windows: Fast and Free Update Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/essential-guide-how-to-seamlessly-convert-webp-to-jpeg-for-2024/"><u>Essential Guide How to Seamlessly Convert WebP to JPEG for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-google-pixel-8-pro-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Google Pixel 8 Pro to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-and-room-integration-on-the-horizon-for-facebook-stories/"><u>Reels and Room Integration on the Horizon for Facebook Stories?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unbox-the-latest-tomtom-bandit-camera/"><u>Unbox the Latest TomTom Bandit Camera</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-9-free-full-length-christmas-movies-on-youtube-for-2024/"><u>Watch 9 Free Full Length Christmas Movies On YouTube for 2024</u></a></li>
+</ul></div>
 

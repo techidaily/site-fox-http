@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Expert Insights Into Making the Most Out of Mac Preview"
-date: 2024-09-18T21:32:51.022Z
-updated: 2024-09-22T22:13:58.923Z
+date: 2024-09-27T21:48:41.598Z
+updated: 2024-09-28T19:57:24.943Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,13 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -86,10 +93,10 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
@@ -120,13 +127,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -142,6 +142,13 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Removing background requires the image to be in PNG format. If the photo you are working on is JPG, Preview prompts with a confirmation box asking your permission to convert the photo from JPG to PNG. You must allow this conversion in order to proceed with the background removal process.
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Combine Images into One
 
@@ -170,6 +177,13 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -205,13 +219,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -235,5 +242,23 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-choosing-your-go-to-youtube-video-downloaders-on-android-platform/"><u>[New] 2024 Approved Choosing Your Go-To YouTube Video Downloaders on Android Platform</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-leveraging-advanced-techniques-in-360-video-on-fb-live-for-2024/"><u>[New] Leveraging Advanced Techniques in 360 Video on FB Live for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-panoramic-power-play-gear-vs-lgcam-showdown-for-2024/"><u>[New] Panoramic Power Play Gear vs LGCam Showdown for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-refine-your-remote-sessions-zoom-in-effectively-for-2024/"><u>[New] Refine Your Remote Sessions Zoom in Effectively for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-comedy-the-art-of-parody-videos/"><u>[Updated] 2024 Approved Crafting Comedy The Art of Parody Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-perfecting-time-lapse-videos-on-a-gopro-hero5-black/"><u>[Updated] 2024 Approved Perfecting Time-Lapse Videos on a GoPro Hero5 Black</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-perfect-pals-and-plotlines-the-10-best-family-flicks/"><u>[Updated] In 2024, Perfect Pals and Plotlines The 10 Best Family Flicks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-navigating-screen-capture-across-pcs-and-mobile-devices-for-2024/"><u>[Updated] Navigating Screen Capture Across PCs and Mobile Devices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ease-down-mix-levels-with-fl-for-2024/"><u>Ease Down Mix Levels with FL for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-motorola-moto-g73-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Motorola Moto G73 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-13t-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi 13T to iPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-balancing-main-footage-with-b-roll-to-avoid-overkill/"><u>In 2024, Balancing Main Footage with B-Roll to Avoid Overkill</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-quick-face-blurring-on-picscroller/"><u>In 2024, Mastering Quick Face-Blurring on PicScroller</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-srgb-vs-standard-rgb/"><u>In 2024, Srgb vs Standard Rgb</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-12-prominent-honor-80-pro-straight-screen-edition-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Honor 80 Pro Straight Screen Edition Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/wondershare-photo-story-platinum-for-2024/"><u>Wondershare Photo Story Platinum for 2024</u></a></li>
+</ul></div>
 

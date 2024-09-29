@@ -1,7 +1,7 @@
 ---
 title: "[New] Exploring Syma X8C Battery Life for 2024"
-date: 2024-09-19T21:47:41.164Z
-updated: 2024-09-22T17:19:44.604Z
+date: 2024-09-23T01:40:15.017Z
+updated: 2024-09-28T23:48:43.211Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/c739c4d92993cdf5c81414cb8125592c32746d89c
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -78,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/c739c4d92993cdf5c81414cb8125592c32746d89c
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -94,11 +108,25 @@ thumbnail: https://thmb.techidaily.com/c739c4d92993cdf5c81414cb8125592c32746d89c
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
@@ -131,12 +159,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-live-thumbnails-a-comprehensive-look/"><u>[New] In 2024, YouTube Live Thumbnails A Comprehensive Look</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ultimate-gear-guide-for-streaming-sensations/"><u>[New] Ultimate Gear Guide for Streaming Sensations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-educational-history-series-the-most-engaging-ones-for-2024/"><u>[Updated] Educational History Series - The Most Engaging Ones for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-how-to-master-switch-pro-controller-gaming-in-steam-for-2024/"><u>[Updated] How to Master Switch Pro Controller Gaming in Steam for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-viral-videos-how-to-excel-in-youtubers-music-reactions/"><u>[Updated] In 2024, Crafting Viral Videos How to Excel in Youtubers' Music Reactions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-integrating-youtube-into-your-imovie-projects/"><u>[Updated] Integrating YouTube Into Your iMovie Projects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-launching-laughter-hilarious-initiation-hints/"><u>[Updated] Launching Laughter Hilarious Initiation Hints</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-picture-perfection-choosing-the-best-camera-positions-on-iphone/"><u>[Updated] Picture Perfection Choosing the Best Camera Positions on iPhone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-hdtvs-future-in-focus-new-samsung-ubd-k8500-insights/"><u>2024 Approved HDTV's Future in Focus - New Samsung UBD-K8500 Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-high-quality-action-recorders-12-enhanced-with-gps-navigation/"><u>2024 Approved High-Quality Action Recorders 12, Enhanced with GPS Navigation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-youtube-shorts-earnings-guide-must-knows-and-future-potential/"><u>2024 Approved Youtube Shorts Earnings Guide Must-Knows & Future Potential</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/become-a-trendsetter-in-snapchat-innovate-with-dynamic-boomers-for-2024/"><u>Become a Trendsetter in SnapChat Innovate with Dynamic Boomers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-detailed-blueprint-for-expert-use-of-adobe-cloud-storage-and-review-of-best-exits/"><u>In 2024, Detailed Blueprint for Expert Use of Adobe Cloud Storage & Review of Best Exits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-shutter-societys-top-six-elite-4k-dslr-picks/"><u>In 2024, Shutter Society's Top Six Elite 4K DSLR Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/renewed-list-of-questions-to-inspire-podcast-attendees/"><u>Renewed List of Questions to Inspire Podcast Attendees</u></a></li>
+</ul></div>
 

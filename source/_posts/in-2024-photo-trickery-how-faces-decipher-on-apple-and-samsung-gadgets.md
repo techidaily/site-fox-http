@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Photo Trickery  How Faces Decipher on Apple & Samsung Gadgets\""
-date: 2024-09-17T17:12:27.610Z
-updated: 2024-09-22T19:46:40.290Z
+date: 2024-09-22T17:06:37.271Z
+updated: 2024-09-28T16:55:25.368Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: The Common Inconvenience
 
  When it comes to practicality, we would state that both the phone don’t stand well for it. This is because if you use Apple’s latest invention i.e. iPhone X, you are required to first hold your device in your hand followed by looking at the screen. Then you need to swipe it up for unlocking the device.
@@ -70,6 +77,20 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -79,13 +100,6 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
  The Face ID by Apple in its iPhone X also makes itself proficient enough to detect the modifications in the appearances such as growing of beard or if a lady has applied makeup. Or if you have shaved your beard fully, the device takes a confirmation with the help of a passcode. What’s more, you don’t have to worry if you are wearing scarf or shades, cap, hat and even contact lenses, Face ID will work properly with the accessories too.
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
@@ -98,10 +112,16 @@ thumbnail: https://thmb.techidaily.com/01a181b2c169140bb50e16f105fae6a9a347e6262
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,5 +147,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-decode-and-resolve-youtube-short-errors/"><u>[New] In 2024, Decode and Resolve YouTube Short Errors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-perfect-images-with-frames-best-sites-and-tools-of-2023-reviewed/"><u>[New] In 2024, Perfect Images with Frames Best Sites and Tools of 2023 Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-insta-wow-moments-7-must-follow-strategies-for-striking-reels-for-2024/"><u>[New] Insta-Wow Moments 7 Must-Follow Strategies for Striking Reels for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2022s-pinnacle-moments-in-snowboarding-x/"><u>[Updated] 2022'S Pinnacle Moments in Snowboarding X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-engaging-content-the-ultimate-6-video-strategies/"><u>[Updated] 2024 Approved Engaging Content The Ultimate 6 Video Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-decrease-ambience-tunes-windowsapple-compatible/"><u>2024 Approved Decrease Ambience Tunes Windows/Apple Compatible</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-from-apple-iphone-13-pro-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock from Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://video-capture.techidaily.com/affordable-pc-video-recording-tools/"><u>Affordable PC Video Recording Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-mastery-advanced-strategies-for-highly-effective-professional-notes/"><u>ChatGPT Mastery: Advanced Strategies for Highly Effective Professional Notes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-key-5-photo-editing-tools-iphone-x78-background-swap/"><u>In 2024, Key 5 Photo Editing Tools IPhone X/7/8 Background Swap</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Car Locator Apps for Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-class-video-production-smooth-editing-skills/"><u>In-Class Video Production Smooth Editing Skills</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-bring-your-vision-to-life-best-1080p-video-editing-programs/"><u>New 2024 Approved Bring Your Vision to Life Best 1080P Video Editing Programs</u></a></li>
+<li><a href="https://win11.techidaily.com/resurrect-your-keys-troubleshoot-win10-keyboard-problems/"><u>Resurrect Your Keys: Troubleshoot WIN10 Keyboard Problems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-essential-toolkit-choosing-the-best-lens-technology-in-4k/"><u>The Essential Toolkit Choosing the Best Lens Technology in 4K</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-lenovos-bt-error-in-win11-ease/"><u>Troubleshooting Lenovo’s BT Error in Win11 Ease</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-exploring-the-frontier-combining-images-with-soundscapes-2utopia-tech-review-2023/"><u>Updated In 2024, Exploring the Frontier Combining Images with Soundscapes 2Utopia Tech Review, 2023</u></a></li>
+</ul></div>
 
