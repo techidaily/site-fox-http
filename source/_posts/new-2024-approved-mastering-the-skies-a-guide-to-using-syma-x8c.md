@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering the Skies  A Guide to Using Syma X8C\""
-date: 2024-09-15T22:10:54.580Z
-updated: 2024-09-22T17:23:52.093Z
+date: 2024-10-03T02:58:17.501Z
+updated: 2024-10-04T06:05:36.728Z
 tags: 
   - screen-recording
   - ai video
@@ -78,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -94,11 +101,25 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
@@ -107,6 +128,13 @@ thumbnail: https://thmb.techidaily.com/6b74a794374950c8c7d33f01e283b8595a0e02efb
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -131,12 +159,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-mass-extraction-of-tiktok-content/"><u>[New] Guide to Mass Extraction of TikTok Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-aerial-choreography-the-fresh-take-on-bebops-parrot/"><u>[New] In 2024, Aerial Choreography – The Fresh Take on Bebop's Parrot</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-step-up-your-stream-simultaneous-views-on-one-screen/"><u>[New] In 2024, Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-step-by-step-implementing-chromes-pip-multiscreen-functionality/"><u>[New] Step-by-Step Implementing Chrome’s PIP Multiscreen Functionality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-innovating-everyday-life-top-10-vr-accessory-guide/"><u>[Updated] 2024 Approved Innovating Everyday Life Top 10 VR Accessory Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-filter-essentials-uncover-free-options-through-advanced-search/"><u>[Updated] 2024 Approved Instagram Filter Essentials – Uncover Free Options Through Advanced Search</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-8-innovative-tablets-changing-the-face-of-photo-editing-landscape-for-2024/"><u>[Updated] 8 Innovative Tablets Changing the Face of Photo Editing Landscape for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-discovering-prime-sources-and-techniques-for-cutting-tamil-ringtones/"><u>[Updated] Discovering Prime Sources & Techniques for Cutting Tamil Ringtones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-expertise-in-iphones-macro-photography-secrets-revealed/"><u>[Updated] Expertise in iPhone's Macro Photography Secrets Revealed</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-infinix-note-30-vip-racing-edition-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Infinix Note 30 VIP Racing Edition? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-realme-narzo-n53-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Realme Narzo N53?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-top-rated-free-avi-video-editor-options/"><u>New Top-Rated Free AVI Video Editor Options</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-lag-and-hang-ups-in-your-new-windows-11-setup/"><u>Overcoming Lag and Hang-Ups in Your New Windows 11 Setup</u></a></li>
+</ul></div>
 

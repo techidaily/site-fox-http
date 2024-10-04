@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Guide to Add Personalized Sound/Filters on Windows Photos\""
-date: 2024-09-27T23:58:05.270Z
-updated: 2024-09-29T00:42:28.784Z
+date: 2024-09-27T09:54:55.978Z
+updated: 2024-10-03T16:40:59.435Z
 tags: 
   - screen-recording
   - ai video
@@ -58,13 +58,6 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -78,10 +71,16 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
@@ -89,13 +88,20 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -104,10 +110,10 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,24 +141,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-6-social-media-outlets-boosting-business-revenue/"><u>[New] 2024 Approved Top 6 Social Media Outlets Boosting Business Revenue</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-including-a-cover-letter-in-profile-for-2024/"><u>[New] Including a Cover Letter in Profile for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-nextgen-hd-optimizer-multiplatform-compatible/"><u>[New] NextGen HD Optimizer Multiplatform Compatible</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-recording-real-time-google-meetings/"><u>[New] Recording Real-Time Google Meetings</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-craft-professional-text-the-best-affects-extensions-revealed/"><u>[Updated] Craft Professional Text The Best Affects Extensions Revealed</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-intricate-dance-of-photos-into-a-unified-display/"><u>[Updated] In 2024, The Intricate Dance of Photos Into a Unified Display</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-turning-views-into-revenue-mastering-youtubes-financial-landscape/"><u>[Updated] Turning Views Into Revenue Mastering YouTube's Financial Landscape</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unveiling-high-definition-with-lgs-31mu97-b-digital-cinema-screen-for-2024/"><u>[Updated] Unveiling High Definition with LG's 31MU97-B Digital Cinema Screen for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/1716796034506-2024-approved-how-to-block-youtube-channels-on-computer-and-mobile-phones/"><u>2024 Approved How to Block Youtube Channels on Computer and Mobile Phones</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-is-inshot-a-game-changer-in-video-editing-tools/"><u>2024 Approved Is InShot a Game Changer in Video Editing Tools?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-of-the-best-essential-themes-for-animes-for-2024/"><u>Best of the Best Essential Themes for Animes for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/exploring-the-infrastructure-supporting-xboxs-remote-service/"><u>Exploring the Infrastructure Supporting Xbox's Remote Service</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-vivo-y100iwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Vivo Y100iwith/without a PC</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-tecno-spark-20-pro-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Tecno Spark 20 Pro?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-14-pro-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 14 Pro With 7 Methods</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-vivo-y100a-lock-screen-password-by-drfone-android/"><u>How to Reset your Vivo Y100A Lock Screen Password</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-boosting-visual-and-auditory-composition-with-custom-filters-and-melodies-windows-10-photos/"><u>In 2024, Boosting Visual & Auditory Composition with Custom Filters & Melodies (Windows 10 Photos)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/pro-level-text-wonders-discover-the-top-10-for-videos-for-2024/"><u>Pro-Level Text Wonders - Discover the Top 10 for Videos for 2024</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/recent-hiring-trends-show-tech-titans-pausing-expansion-whats-the-impact-analysis-by-zdnet/"><u>Recent Hiring Trends Show Tech Titans Pausing Expansion - What's the Impact? Analysis by ZDNET</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-step-by-step-framework-for-dimming-sounds-in-lumafusion-for-2024/"><u>[New] A Step-by-Step Framework for Dimming Sounds in Lumafusion for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-how-to-change-video-speed-on-instagram-stories-for-2024/"><u>[New] How to Change Video Speed on Instagram Stories for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-elevate-video-performance-top-notch-youtube-seo-strategies-for-2024/"><u>[Updated] Elevate Video Performance Top-Notch YouTube SEO Strategies for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-choosing-the-right-recorder-top-4-full-screen-picks-for-pcmac/"><u>[Updated] In 2024, Choosing the Right Recorder Top 4 Full-Screen Picks for PC/Mac</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unlock-youtubes-potential-with-expert-picture-posting-techniques/"><u>[Updated] In 2024, Unlock YouTube's Potential with Expert Picture Posting Techniques</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimize-your-typography-workflow-in-adobe-affects/"><u>2024 Approved Optimize Your Typography Workflow in Adobe Affects</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-hd-audio-experience-in-win11/"><u>Effortless HD Audio Experience in Win11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Nokia C210? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-cost-effective-stratosphere-storage-for-large-archives/"><u>In 2024, Cost-Effective Stratosphere Storage for Large Archives</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-transforming-your-vision-into-stunning-hdr-portraits/"><u>In 2024, Transforming Your Vision Into Stunning HDR Portraits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/optimal-variety-premium-webcam-stands-and-mounts-for-2024/"><u>Optimal Variety Premium Webcam Stands & Mounts for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/significant-concepts-in-interactive-tale-design/"><u>Significant Concepts in Interactive Tale Design</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Poco X5 Pro | Dr.fone</u></a></li>
 </ul></div>
 

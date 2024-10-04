@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Horizon to Heavens  Photo-Taking on Mobile\""
-date: 2024-09-19T20:11:08.090Z
-updated: 2024-09-22T22:26:33.001Z
+date: 2024-09-28T20:48:04.016Z
+updated: 2024-10-04T00:03:57.031Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/57a4dd5881ee89a7ccb05cda2bbc7d01f9c197463
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone users
 
  The iPhone users can follow the steps given below to execute vertorama.
@@ -58,6 +65,19 @@ thumbnail: https://thmb.techidaily.com/57a4dd5881ee89a7ccb05cda2bbc7d01f9c197463
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -67,6 +87,13 @@ thumbnail: https://thmb.techidaily.com/57a4dd5881ee89a7ccb05cda2bbc7d01f9c197463
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
@@ -74,16 +101,10 @@ thumbnail: https://thmb.techidaily.com/57a4dd5881ee89a7ccb05cda2bbc7d01f9c197463
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
@@ -94,13 +115,6 @@ thumbnail: https://thmb.techidaily.com/57a4dd5881ee89a7ccb05cda2bbc7d01f9c197463
 * Leaving some space is another beautiful tip especially if you are a graphic designer and want to add some text into the picture. The panorama shot will look perfectly enhanced this way.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -125,5 +139,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-archive-of-authentic-activities/"><u>[New] 2024 Approved Archive of Authentic Activities</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-navigating-the-basics-of-multi-os-skype-chatting/"><u>[Updated] Navigating the Basics of Multi-OS Skype Chatting</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-drone-visionarys-guide-to-mavic-pro/"><u>2024 Approved Drone Visionary's Guide to Mavic Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-revealing-the-mysteries-of-whatsapp-tricks-and-features/"><u>2024 Approved Revealing the Mysteries of WhatsApp Tricks & Features</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/audiovisual-amplification-harness-no-cost-tools-for-dynamic-voice-effects/"><u>Audiovisual Amplification Harness No-Cost Tools for Dynamic Voice Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/discovering-the-edge-of-action-cam-excellence-with-intova-x-for-2024/"><u>Discovering the Edge of Action Cam Excellence with Intova X for 2024</u></a></li>
+<li><a href="https://discover-help.techidaily.com/fast-and-simple-guide-turning-standard-mp4-files-into-stunning-4k-high-definition-video/"><u>Fast & Simple Guide: Turning Standard MP4 Files Into Stunning 4K High Definition Video</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-multiple-pdf-files-by-stellar-guide/"><u>How to Repair Multiple PDF Files</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-in-depth-analysis-the-vida-video-editor-experience/"><u>In 2024, In-Depth Analysis The Vida Video Editor Experience</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-to-using-gpt-3-in-openai-lab/"><u>Step-by-Step Guide to Using GPT-3 in OpenAI Lab</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/turning-clutter-into-clarity-managing-massive-tiktok-drafters-for-2024/"><u>Turning Clutter Into Clarity Managing Massive TikTok Drafters for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ultimate-guide-to-convert-srt-to-txt-in-minutes/"><u>Ultimate Guide to Convert SRT to TXT in Minutes</u></a></li>
+</ul></div>
 

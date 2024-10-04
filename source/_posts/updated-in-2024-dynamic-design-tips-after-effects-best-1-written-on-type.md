@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Dynamic Design Tips  After Effects' Best 1 Written on Type\""
-date: 2024-09-22T03:22:37.580Z
-updated: 2024-09-29T04:16:50.066Z
+date: 2024-09-27T18:29:10.127Z
+updated: 2024-10-04T11:41:31.053Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,13 @@ You should have simple but effective motion text effects in your video so that c
 
 ![motion type text animation preset](https://images.wondershare.com/filmora/article-images/2022/09/motion-type-text-animation-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Typominal Typewriter Effect Preset
 
 There are two FFX files in the pack that lets you get a retro text effect along with the popular typewriter animation. Import the files and drop the effect on your text and you can adjust several parameters to create amazing text effects. The retro effect is very similar to watching something on old monitors with very low resolution.
@@ -64,10 +71,10 @@ There are two FFX files in the pack that lets you get a retro text effect along 
 ![typominal typewriter effect preset](https://images.wondershare.com/filmora/article-images/2022/09/typominal-typewriter-effect-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Tapered Stroke Preset
@@ -105,6 +112,13 @@ If you are looking for some upbeat text presets, kinetic text animation pack is 
 If you want to keep the text animations simple but you want it to be different than the usual text animations, this is the pack for you. You get 30 standard text animation presets with a geometrical element in each one of them. You can customize the timing, duration, size, and various such parameters to fit them in your video project perfectly.
 
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Text Animation Lower Third
 
@@ -144,6 +158,13 @@ Step2Drop the video clip onto timeline if you want to use it as a background to 
 
 ![drop the video clip onto timeline](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
 
 ![select any desired template](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -151,6 +172,13 @@ Step3Go to Titles and you will see different categories of text effects on the l
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
 
 ![edit the text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -191,10 +219,16 @@ If the regular stroke feature is not enough, you have tapered stroke preset that
 ![tapered stroke preset](https://images.wondershare.com/filmora/article-images/2022/09/tapered-stroke-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Stranger Things Text Preset
@@ -209,13 +243,6 @@ You get 16 amazing text styles that you can use on your texts and titles to make
 
 ![text styles preset](https://images.wondershare.com/filmora/article-images/2022/09/text-styles-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Text Animation Bundle
 
 You get 80 text presets in this pack that you can customize and make the texts and titles in your video project elegant. All the animations have studio-like quality and you can animate your text uniquely and randomly. Starting from standard text animations to some really cool and creative text animations, you get everything in one pack.
@@ -223,10 +250,10 @@ You get 80 text presets in this pack that you can customize and make the texts a
 ![text animation bundle preset](https://images.wondershare.com/filmora/article-images/2022/09/text-animation-bundle-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Kinetic Text Animation
@@ -241,25 +268,11 @@ If you want to keep the text animations simple but you want it to be different t
 
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10\. Text Animation Lower Third
 
 Lower thirds are an essential part of the modern videos where you are introducing concepts and giving out information. Starting from title introductions to displaying headlines and quotes, you will get the perfect text presents in this dynamic pack to satisfy your requirements perfectly. You can customize several parameters to get the text effects as per your video project.
 
 ![text animation lower third preset](https://images.wondershare.com/filmora/article-images/2022/09/text-animation-lower-third-preset.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Add Text Presets in After Effects?
 
@@ -293,27 +306,20 @@ Step2Drop the video clip onto timeline if you want to use it as a background to 
 
 ![drop the video clip onto timeline](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
 
 ![select any desired template](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
 
 ![edit the text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -347,14 +353,22 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-bring-life-to-film-projects-3-inexpensive-techniques-for-iphones-music-integration/"><u>[New] Bring Life to Film Projects 3 Inexpensive Techniques for iPhones Music Integration</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-investigating-the-innovation-in-burst-mode-filming-techniques-for-2024/"><u>[New] Investigating the Innovation in Burst Mode Filming Techniques for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-conquer-common-youtube-short-setbacks/"><u>[Updated] 2024 Approved Conquer Common YouTube Short Setbacks</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-unsung-heros-guide-to-tiktok-live-participation/"><u>[Updated] The Unsung Hero's Guide to TikTok Live Participation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/advanced-gopro-filmmaking-hacks-for-2024/"><u>Advanced GoPro Filmmaking Hacks for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/best-graphics-cards-for-4k-video-editing-and-rendering-for-2024/"><u>Best Graphics Cards for 4K Video Editing and Rendering for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/essential-guide-to-21-hdmi-monitors-comparative-analysis/"><u>Essential Guide to 2.1 HDMI Monitors - Comparative Analysis</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-infinix-note-30-pro-to-mac-drfone-by-drfone-android/"><u>How to Mirror Infinix Note 30 Pro to Mac? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-instructors-handbook-on-video-assisted-pedagogy-for-2024/"><u>The Instructor's Handbook on Video-Assisted Pedagogy for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-fast-track-fun-turning-animated-art-into-sticky-messages-quickly/"><u>[New] 2024 Approved Fast Track Fun Turning Animated Art Into Sticky Messages Quickly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-pushing-the-boundaries-of-tiktok-aesthetics/"><u>[New] 2024 Approved Pushing the Boundaries of TikTok Aesthetics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-achieving-fluidity-in-audio-blending-using-audacity-tools/"><u>[New] Achieving Fluidity in Audio Blending Using Audacity Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cutting-through-the-noise-top-15-non-gopro-cameras/"><u>[Updated] 2024 Approved Cutting Through the Noise Top 15 Non-GoPro Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-tech-driven-patient-recovery-paths/"><u>[Updated] 2024 Approved Tech-Driven Patient Recovery Paths</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-tactics-to-accelerate-vimeo-video-viewership/"><u>[Updated] Tactics to Accelerate Vimeo Video Viewership</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-windows-hdri-tools-for-editors/"><u>[Updated] Windows HDRI Tools for Editors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-transform-your-win11-sessions-with-advanced-zoom-skills/"><u>2024 Approved Transform Your Win11 Sessions with Advanced Zoom Skills</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/faq-for-macxdvd-your-essential-guide-to-digiarty-softwares-dvd-creation-tool-faq-for-macxdvd-your-essential-guide-to-creating-dvds-with-digiarty-software/"><u>FAQ for MacXDVD: Your Essential Guide to Digiarty Software's DVD Creation Tool (FAQ for MacXDVD - Your Essential Guide to Creating DVDs with Digiarty Software)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-reverse-color-saturation-quickly/"><u>In 2024, How to Reverse Color Saturation Quickly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-lightning-fast-video-delivery-on-facebook-select-extensions-and-apps/"><u>In 2024, Lightning-Fast Video Delivery on Facebook Select Extensions & Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-photoshops-quick-guide-to-color-perfection/"><u>In 2024, Photoshop's Quick Guide to Color Perfection</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-samsung-galaxy-a24-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Samsung Galaxy A24 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/maximize-your-deals-a-complete-walkthrough-of-amazon-prime-day-2024-get-prepared/"><u>Maximize Your Deals: A Complete Walkthrough of Amazon Prime Day 2024 – Get Prepared!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/photo-perfection-at-your-fingertips-top-10-stickers-on-iphones-and-androids/"><u>Photo Perfection at Your Fingertips Top 10 Stickers on iPhones & Androids</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/transform-your-ogg-media-to-high-quality-mpeg-streams-for-free-at-movavis-web-service/"><u>Transform Your OGG Media to High-Quality MPEG Streams for Free at Movavi's Web Service</u></a></li>
+<li><a href="https://win11.techidaily.com/1726027640655-wav/"><u>WAV形式のメタデータ管理 - 最適な編集ソフトと使用手順</u></a></li>
 </ul></div>
 

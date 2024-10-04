@@ -1,7 +1,7 @@
 ---
 title: "\"Reinstate Windows Photo Viewer on Windows 10  Dual Fixes Explained for 2024\""
-date: 2024-09-21T17:52:05.781Z
-updated: 2024-09-29T03:56:54.542Z
+date: 2024-10-03T06:10:05.510Z
+updated: 2024-10-04T07:30:34.659Z
 tags: 
   - screen-recording
   - ai video
@@ -71,16 +71,10 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
@@ -88,10 +82,10 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -108,15 +102,22 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -124,13 +125,6 @@ Here is the detailed guide –
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -159,20 +153,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-glacial-gala-winter-olympics-excellence/"><u>[New] 2024 Approved Glacial Gala Winter Olympics Excellence</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-invest-in-quality-best-4k-mirrorless-under-1000/"><u>[New] 2024 Approved Invest in Quality Best 4K Mirrorless Under $1,000</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-wildlife-documentary-showdown-gopro-hero5-vs-sjcam-star/"><u>[New] In 2024, Wildlife Documentary Showdown GoPro Hero5 vs SJCAM Star</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-scaling-up-your-pathway-to-high-quality-facebook-live/"><u>[New] Scaling Up Your Pathway to High-Quality Facebook Live</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-capturing-motion-samsungs-time-lapse-guide/"><u>[Updated] 2024 Approved Capturing Motion Samsung's Time-Lapse Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-boredoms-ender-the-ultimate-list-of-jovial-youtube-content-for-2024/"><u>[Updated] Boredom's Ender The Ultimate List of Jovial YouTube Content for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-transferring-tactics-swiftly-send-files-to-devices/"><u>[Updated] In 2024, Transferring Tactics Swiftly Send Files to Devices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-transform-your-broadcasts-streamlabs-with-obs-on-mac/"><u>[Updated] Transform Your Broadcasts Streamlabs with OBS on Mac</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-open-cities-new-stories-exploring-beyond-gta/"><u>2024 Approved Open Cities, New Stories Exploring Beyond GTA</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-tech-tools-for-streaming-a-detailed-overview-on-tv-recording/"><u>2024 Approved Tech Tools for Streaming A Detailed Overview on TV Recording</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/analyzing-the-yin-and-yang-of-ai-and-creativity/"><u>Analyzing the Yin & Yang of AI and Creativity</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/az-capture-tool-full-app-testing-and-options-guide/"><u>AZ Capture Tool Full App Testing & Options Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/enhance-video-editing-on-mobile-with-top-8-apple-software-for-2024/"><u>Enhance Video Editing on Mobile with Top #8 Apple Software for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/master-list-of-vimeo-video-capturers/"><u>Master List of Vimeo Video Capturers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/strategies-to-keep-windows-11-photos-app-running-smoothly/"><u>Strategies to Keep Windows 11 Photos App Running Smoothly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-first-steps-in-camera-shopping-for-newcomers-to-film-for-2024/"><u>[New] First Steps in Camera Shopping – For Newcomers to Film for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-focus-freshness-the-ultimate-clear-image-software-guide/"><u>[New] Focus Freshness The Ultimate Clear Image Software Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-hdrs-edge-pushing-video-production-to-new-heights/"><u>[New] HDR's Edge Pushing Video Production to New Heights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-aesthetics-unleashed-leading-enhancers/"><u>[New] In 2024, Instagram Aesthetics Unleashed Leading Enhancers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-redefining-visual-storytelling-with-vidas-advanced-tools/"><u>[New] In 2024, Redefining Visual Storytelling with Vida's Advanced Tools</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-master-the-art-of-listening-select-best-android-music-video-apps-for-2024/"><u>[New] Master the Art of Listening Select Best Android Music Video Apps for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-the-essentials-a-comprehensive-guide-to-telegram-web-usage/"><u>[New] Mastering the Essentials A Comprehensive Guide to Telegram Web Usage</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-showcasing-design-brilliance-best-10-text-setups-in-ae/"><u>[New] Showcasing Design Brilliance Best 10 Text Setups in AE</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unveiling-ffxp-an-in-depth-guide-for-2024/"><u>[New] Unveiling FFXP An In-Depth Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elite-assortment-advanced-webcam-mounts/"><u>[Updated] 2024 Approved Elite Assortment Advanced Webcam Mounts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-10-tips-for-shooting-profesional-youtube-videos/"><u>[Updated] In 2024, 10 Tips For Shooting Profesional YouTube Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/gamers-guide-to-seamless-screen-recording-for-2024/"><u>Gamers' Guide to Seamless Screen Recording for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-resolve-iphones-refusal-of-creditdebit-cards-a-step-by-step-guide/"><u>How to Resolve iPhone's Refusal of Credit/Debit Cards – A Step-by-Step Guide</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-streamlining-sound-integration-a-fast-fix-manual-for-premiere-pro/"><u>New 2024 Approved Streamlining Sound Integration A Fast Fix Manual for Premiere Pro</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/winstability-secure-preventing-bsod-from-wdf-violations/"><u>WinStability Secure: Preventing BSOD From WDF Violations</u></a></li>
 </ul></div>
 

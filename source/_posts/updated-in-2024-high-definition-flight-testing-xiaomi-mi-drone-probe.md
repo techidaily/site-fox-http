@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, High-Definition Flight Testing - Xiaomi Mi Drone Probe\""
-date: 2024-09-28T00:45:00.717Z
-updated: 2024-09-29T03:47:59.604Z
+date: 2024-09-27T16:52:24.393Z
+updated: 2024-10-04T09:59:40.215Z
 tags: 
   - screen-recording
   - ai video
@@ -49,16 +49,16 @@ In the last few years, Xiaomi has developed remarkable performance in the market
 
 * Its aesthetics are not much appealing.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Features
 
 Even with a reasonable price tag, this advanced drone unit has several features to offer its users. The most impressive one is its 4K recording ability with higher stability whereas still shots are recorded with 1080p resolution level. The wireless transmitter is designed with 2.4GHz frequency range whereas the altitude range goes as high as up to 800m. Control distance offered by Xiaomi MI is 3000m and the overall flight time offered by this tiny drone unit is 27 min. It has 5199mAh rechargeable battery with 17.4 Volt rating that takes total 3 and half hours for complete charging.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Design
 
@@ -68,33 +68,33 @@ Xiaomi Mi has impressive aesthetics and most of its features are comparable to D
 
 As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you. As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Flight Performance
 
 Like most of the advanced drone units, Xiaomi Mi also features autonomous flying mode. All that you need to do is simply hit the TapFly button and it will start moving. Users can control all movements with a tap of a finger and you can check all movements with the help of the map.
 
 The most amazing feature of Xiaomi Mi is its ability to communicate via mobile phone so that users can manage the recording focus of its camera. One more appreciable feature is its surrounded flight ability; you can make it circle around any specific object by sending commands from a smartphone. You will love to capture videos with its 360-degree motion ability that leads to incredible clicks. How can we forget to talk about the most advanced feature of this special drone unit that is Preset Rout following ability! Users can make pre adjustments for all flights and it will capture smooth shots every time. The automatic landing and takeoff feature helps in easy controls whereas if this drone goes far from 3meter range then it will switch back to its preset path. It is possible to bring this drone back with only one button and in order to improve its performance, you can access the calibration settings. Note that, if somehow your drone gets lost then it will take almost 30 to 45 minutes for coming back.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Control Range
 
 As we have discussed earlier that Xiaomi Mi is designed to work on 2.4GHz transmitter frequency range. It has left-hand throttle ability along with the handy built-in type phone clamp. In order to operate this drone from remote distance you simply need to configure its flight settings to Mode 2\. Note that MI is able to fly at a maximum height of 800m and it can go as far as up to 3000 meters from the operator.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Camera
 
 Xiaomi Mi Drone unit comes with two different variants where the professional one carries 4K camera unit with it and another variant is able to handle 1080P resolution level. Note that the 4K camera comes with 12.4MP sensor from Sony and it works with the Ambarella image processor. You can set its frame rate up to 30fps. Another option is 1080p resolution setting that comes with 16.4 megapixel sensor from Sony along with Ambarella Image Processor. In this case frame rate can go as high as up to 60 fps. The 2.4GHz transmitter further ensures interference free recording in air.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -103,10 +103,10 @@ The 1080p variant of Mi Drone is available with a price tag of $380 whereas for 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -134,18 +134,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-detailed-analysis-lg-bp350-picture-quality-and-settings-for-2024/"><u>[Updated] Detailed Analysis LG BP350 Picture Quality & Settings for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-10-best-mp4-players-for-music-enthusiasts/"><u>[Updated] In 2024, 10 Best MP4 Players for Music Enthusiasts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-comprehensive-tips-for-constructing-podcast-rss-feeds/"><u>[Updated] In 2024, Comprehensive Tips for Constructing Podcast RSS Feeds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-dynamic-duo-wearable-and-mac-harmony/"><u>2024 Approved Dynamic Duo Wearable & Mac Harmony</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-penning-powerful-film-prospectus/"><u>2024 Approved Penning Powerful Film Prospectus</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-sharpen-up-discover-the-best-online-photo-fixers/"><u>2024 Approved Sharpen Up! Discover the Best Online Photo Fixers</u></a></li>
-<li><a href="https://win-answers.techidaily.com/emergency-troubleshooting-a-step-by-step-fix-for-devastating-ark-glitches/"><u>Emergency Troubleshooting: A Step-by-Step Fix for Devastating ARK Glitches</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/essential-guide-to-capturing-vr-gaming-sessions/"><u>Essential Guide to Capturing VR Gaming Sessions</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/full-featured-insight-mac-meets-screenflow-v4-for-2024/"><u>Full-Featured Insight Mac Meets ScreenFlow V4 for 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/mending-hp-printing-issue-0xoxc4eb827f/"><u>Mending HP Printing Issue 0xOXC4EB827F</u></a></li>
-<li><a href="https://fox-http.techidaily.com/prime-steadicam-devices-for-drones-in-filmmaking-for-2024/"><u>Prime Steadicam Devices for Drones in Filmmaking for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-12-aplicaciones-de-reproduccion-multimedia-para-computadoras/"><u>Top 12 Aplicaciones De Reproducción Multimedia Para Computadoras</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/top-15-open-world-games-to-beat-the-climb/"><u>Top 15 Open World Games to Beat the Climb</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-a-step-by-step-guide-to-curved-image-design/"><u>[New] 2024 Approved A Step-by-Step Guide to Curved Image Design</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-fine-tuning-color-balance-in-obs/"><u>[New] 2024 Approved Fine-Tuning Color Balance in OBS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-innovative-ways-to-infuse-voiceovers-into-your-media/"><u>[New] 2024 Approved Innovative Ways to Infuse Voiceovers Into Your Media</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-revolutionize-your-gaming-recordings-a-guide-to-fbx-tech/"><u>[New] 2024 Approved Revolutionize Your Gaming Recordings A Guide to FBX Tech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-secure-and-store-linkedin-videos-with-these-6-high-quality-apps/"><u>[New] In 2024, Secure and Store LinkedIn Videos with These 6 High-Quality Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-unleash-creativity-10-top-rated-free-mac-art-software/"><u>[New] In 2024, Unleash Creativity 10 Top-Rated, FREE Mac Art Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ideal-high-res-displays-the-best-5-for-ps5-for-2024/"><u>[Updated] Ideal High-Res Displays The Best 5 For PS5 for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-update-get-your-realtek-asio-driver-for-windows-11-today/"><u>Effortless Update: Get Your Realtek Asio Driver for Windows 11 Today</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-motorola-moto-g84-5g-by-drfone-android/"><u>How to Show Wi-Fi Password on Motorola Moto G84 5G</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/instant-mirth-mastery-your-shortcut-to-ifunny-memes/"><u>Instant Mirth Mastery Your Shortcut to iFunny Memes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premiere-visionary-film-glimpses/"><u>Premiere Visionary Film Glimpses</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-access-denied-issues-in-windows-11-a-top-5-approach/"><u>Solving Access Denied Issues in Windows 11: A Top 5 Approach</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-tutorial-adding-whimsy-with-snapchat-cartoons/"><u>The Ultimate Tutorial Adding Whimsy with Snapchat Cartoons</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/ultimate-guide-to-choosing-the-ideal-mpeg/"><u>Ultimate Guide to Choosing the Ideal MPEG-</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Year in Review  Top 5 Camera Tips Filmmakers\""
-date: 2024-09-22T23:03:48.306Z
-updated: 2024-09-28T17:27:56.954Z
+date: 2024-10-01T19:28:24.477Z
+updated: 2024-10-03T16:09:08.071Z
 tags: 
   - screen-recording
   - ai video
@@ -42,15 +42,22 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 Step 2 Now open and close the door to get smooth camera movement.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### DIY LED Panel
 
@@ -69,13 +76,6 @@ Step 4 Plug in the LED strip and use this LED Panel for a broader light source.
 Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### DIY Light Flag
 
@@ -136,15 +136,28 @@ There is a GIF attached below to understand the steps visually.
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 3\. DIY Light Diffuser
 
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Diffuse Lights With a Desk Mat
 
@@ -164,16 +177,16 @@ For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -194,10 +207,10 @@ Here is a video showing how to record reveal movement.
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 180° Presentation Movement
@@ -217,13 +230,6 @@ Step 3 Move slowly to the other side of the subject while recording.
 A sample video attached below shows how to record 180 presentation movements.
 
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
 
@@ -246,10 +252,16 @@ The video attached below will help you to understand these steps.
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -288,21 +300,17 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-premium-dj-visuals-library-seamless-download-experience/"><u>[Updated] Premium DJ Visuals Library - Seamless Download Experience</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unite-chords-and-visuals-on-powerpoint/"><u>[Updated] Unite Chords and Visuals on PowerPoint</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-avatar-genius-the-easy-guide-to-metaverse-creation/"><u>2024 Approved Avatar Genius The Easy Guide to Metaverse Creation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-dji-flyer-x20s-flying-high-vision-headset-breakdown/"><u>2024 Approved DJi Flyer X20's Flying High Vision Headset Breakdown</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-extensive-analysis-djis-latest-uav-inspire-1/"><u>2024 Approved Extensive Analysis DJI's Latest UAV, Inspire 1</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-honored-proposals-leading-ringtone-creators-iphone/"><u>2024 Approved Honored Proposals Leading Ringtone Creators iPhone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-nostalgia-revue-old-school-review-of-the-goofys/"><u>2024 Approved Nostalgia Revue Old-School Review of The Goofys</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-pushing-boundaries-nikons-d500-in-4k-landscape/"><u>2024 Approved Pushing Boundaries Nikon's D500 in 4K Landscape</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-success-a-compre-pointed-guide-to-reddit-content-creation/"><u>2024 Approved Unlocking Success A Compre Pointed Guide to Reddit Content Creation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/diy-build-custom-google-cardboard-virtual-reality-for-2024/"><u>DIY Build Custom Google Cardboard Virtual Reality for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-y27-4g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo Y27 4G</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-best-12-free-animation-software-for-windows-and-mac/"><u>In 2024, Best 12 Free Animation Software for Windows and Mac</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-nokia-g42-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Nokia G42 5G to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/spot-real-vs-sham-accounts-in-instagram-life/"><u>Spot Real Vs. Sham Accounts in Instagram Life</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-role-of-background-melody-in-a-cinematic-commercial/"><u>The Role of Background Melody in a Cinematic Commercial</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-expert-insights-adjusting-tempo-for-optimal-snapchat-viewing/"><u>[New] 2024 Approved Expert Insights Adjusting Tempo for Optimal Snapchat Viewing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-protocols-for-preserving-instagram-footage-on-windowsmacos-platforms/"><u>[New] 2024 Approved Protocols for Preserving Instagram Footage on Windows/macOS Platforms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-10-exemplary-websites-for-vector-quality-graphics/"><u>[New] In 2024, 10 Exemplary Websites for Vector-Quality Graphics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-drones-decoded-functionality-and-operational-overview/"><u>[New] In 2024, Drones Decoded Functionality & Operational Overview</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leading-virtual-reality-enhancements-for-gamers/"><u>[New] Leading Virtual Reality Enhancements for Gamers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-decoding-podcast-access-a-detailed-iphone-guidebook/"><u>[Updated] In 2024, Decoding Podcast Access A Detailed iPhone Guidebook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-mastering-mobile-recording-your-ultimate-snapchat-guide-for-2024/"><u>[Updated] Mastering Mobile Recording Your Ultimate Snapchat Guide for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-edge-20-public-domain-pubg-slideshows/"><u>Cutting-Edge 20 Public Domain PUBG Slideshows</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnose-and-fix-broken-usb-ports-on-a-computer-running-windows-11/"><u>Diagnose and Fix Broken USB Ports on a Computer Running Windows 11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-full-range-locomotion-appraisal/"><u>In 2024, Full Range Locomotion Appraisal</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Syma X5C  The Ideal Drone to Elevate Your Aerial Introduction\""
-date: 2024-09-28T02:15:43.486Z
-updated: 2024-09-28T20:04:23.770Z
+date: 2024-10-01T21:40:01.736Z
+updated: 2024-10-04T02:33:13.109Z
 tags: 
   - screen-recording
   - ai video
@@ -66,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Complete Review for Syma X5C
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
@@ -116,14 +116,14 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
- Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
 ## Conclusion
 
@@ -132,10 +132,10 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -163,17 +163,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-efficiency-in-conversion-a-compact-list-of-the-top-10-video-transformers/"><u>[New] 2024 Approved Efficiency in Conversion A Compact List of the Top 10 Video Transformers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-essential-sd-cards-for-gopro-hero-78-cameras-our-picks-for-2024/"><u>[New] Essential SD Cards for GoPro Hero 7/8 Cameras Our Picks for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-simple-steps-to-record-your-youtube-streams-for-2024/"><u>[New] Simple Steps to Record Your YouTube Streams for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-become-a-reel-pro-in-30-days-or-less/"><u>[Updated] 2024 Approved Become a Reel Pro in 30 Days or Less</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-dual-display-documentation-technique-for-2024/"><u>[Updated] Dual Display Documentation Technique for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-9-pinnacle-in-live-game-broadcasting/"><u>[Updated] In 2024, 9 Pinnacle in Live Game Broadcasting</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-pivoting-careers-from-novice-to-industry-veteran-for-2024/"><u>[Updated] Pivoting Careers From Novice to Industry Veteran for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-z2-advantage-an-intelligent-mobile-assessment-for-2024/"><u>[Updated] Z2 Advantage An Intelligent Mobile Assessment for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-x-flip-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupt MP4,MOV,AVI video files of X Flip</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/improve-accents-essential-100-english-twisters-practice/"><u>Improve Accents: Essential 100 English Twisters Practice</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/seamless-strategy-integrating-linktree-into-your-tiktok-bio-for-2024/"><u>Seamless Strategy Integrating Linktree Into Your TikTok Bio for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-the-permission-denied-for-fortnite-error-message/"><u>Troubleshooting the 'Permission Denied for Fortnite' Error Message</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-optimal-use-of-zoom-features-on-chromebooks/"><u>[New] 2024 Approved Optimal Use of Zoom Features on ChromeBooks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-tips-and-tricks-how-to-choose-a-winner-amongst-360-degree-cameras/"><u>[New] In 2024, Tips & Tricks How to Choose a Winner Amongst 360-Degree Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-visualize-humor-use-kapwing-for-making-memes/"><u>[Updated] 2024 Approved Visualize Humor - Use Kapwing for Making Memes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-deep-dive-into-ustream-and-substitutes/"><u>[Updated] In 2024, Deep Dive Into Ustream & Substitutes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-ultimate-angle-arsenal-samsung-vs-lg-comparison/"><u>[Updated] In 2024, The Ultimate Angle Arsenal Samsung Vs LG Comparison</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-top-5-screen-selections-for-ps5-enthusiasts/"><u>[Updated] In 2024, Top 5 Screen Selections for PS5 Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-leading-you-to-8-superior-zero-cost-3d-videos-solutions/"><u>[Updated] Leading You to 8 Superior, Zero-Cost 3D Videos Solutions</u></a></li>
+<li><a href="https://win-tips.techidaily.com/1-trouble-downloading-from-flipbuilder-heres-why-and-how-to-fix-it/"><u>1) Trouble Downloading From FlipBuilder? Here's Why and How to Fix It</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/a-seamless-journey-from-blurred-borders-to-sharp-focus/"><u>A Seamless Journey From Blurred Borders to Sharp Focus</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/an-introductory-guide-to-navigating-your-way-through-zoom-webinars-for-2024/"><u>An Introductory Guide to Navigating Your Way Through Zoom Webinars for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/asus-launches-new-ryzen-ai-powered-laptops-july-17-meet-the-game-changers-rzne-ai-9-hx-370-and-rzne-ai-9-365-for-tuf-gaming-rog-zephyrus-and-zenbook/"><u>Asus Launches New Ryzen AI-Powered Laptops: July 17 - Meet the Game Changers RZne AI 9 HX 370 & RZne AI 9 365 for TUF Gaming, ROG Zephyrus and Zenbook</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/descubre-como-cortar-videos-mp4-gratis-con-estos-metodos-sencillos-en-linea-y-para-su-pc/"><u>Descubre Cómo Cortar Videos MP4 Gratis Con Estos Métodos Sencillos en Línea Y Para Su PC</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/free-3d-text-psd-goldmine-top-selections/"><u>Free 3D Text PSD Goldmine - Top Selections</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-base-to-pro-level-gopro-hero5-black-vs-hero4-silver-showdown/"><u>From Base to Pro-Level GoPro Hero5 Black vs Hero4 Silver Showdown</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ideal-6-networks-for-thriving-business-ventures/"><u>In 2024, Ideal 6 Networks for Thriving Business Ventures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-gamer-era-starts-djis-mavic-air-versus-spark-battle-for-2024/"><u>New Gamer Era Starts DJI’s Mavic Air Versus Spark Battle for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premium-uav-selection-in-stock-for-2024/"><u>Premium UAV Selection in Stock for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/realms-intersecting-delving-into-vr-augmented-and-mixed-immersion-for-2024/"><u>Realms Intersecting Delving Into VR, Augmented & Mixed Immersion for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-in-depth-hardware-reviews-and-insights-1723267249481/"><u>Tom's Tech Hub: In-Depth Hardware Reviews & Insights</u></a></li>
 </ul></div>
 

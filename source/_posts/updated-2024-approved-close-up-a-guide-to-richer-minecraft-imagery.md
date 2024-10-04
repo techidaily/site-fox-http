@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Close-Up  A Guide to Richer Minecraft Imagery\""
-date: 2024-09-19T18:16:42.378Z
-updated: 2024-09-22T21:46:03.520Z
+date: 2024-09-30T22:55:13.538Z
+updated: 2024-10-04T10:57:47.498Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,13 @@ Step3 To change the alteration key, click on the arrow that is pointing down and
 
 ![scroll gesture modifier zoom](https://images.wondershare.com/filmora/article-images/2022/07/scroll-gesture-modifier-zoom.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 After choosing the modifier key, open the Minecraft window and drag it to the higher or lower side of the screen to zoom in or out. Now that you know how to zoom in on Minecraft on Mac OS, all you need to do is hit and hold the modifier key of your choice while scrolling up with the mouse.
 
 ## Way 3\. Using OptiFine Mod (Java)
@@ -105,6 +112,13 @@ Step1 Create a Spyglass by following the newest version guide of Minecraft.
 
 ![create a spyglass](https://images.wondershare.com/filmora/article-images/2022/07/create-a-spyglass.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 After that, put the Spyglass you just created in your menu bar and take a hold of it. When you use it, your eyesight will enlarge the area you are focusing on. The same effect as altering your FoV in the settings is achieved with this, but it is faster, simpler, and has more zooming. You cannot lower the FoV setting below 30 by altering it in the menu.
 
 ![spyglass options panel](https://images.wondershare.com/filmora/article-images/2022/07/spyglass-options-panel.jpg)
@@ -116,6 +130,26 @@ Step3 However, you will always zoom in to 10% of your current Field of View whil
 Step4 On the crafting table, arrange 2 copper ingots and 1 amethyst shard in the exact same configuration as in the illustration below to create a spyglass.
 
 ![crafting table spyglass](https://images.wondershare.com/filmora/article-images/2022/07/crafting-table-spyglass.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Way 5\. Use Zoomed-Out Maps
 
@@ -130,10 +164,10 @@ Step2 Nine sheets of paper will be made from the sugar cane. Open the crafting t
 ![add paper to inventory](https://images.wondershare.com/filmora/article-images/2022/07/add-paper-to-inventory.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 At this point, we may start drawing a map. Put the compass in the center square of the handicraft grid, then fill up all the other squares with paper. Now that the crafts grid is open, fill each square with paper and set a compass in the center. To add the yellow piece of paper to the inventory, click and drag it over to the right.
@@ -164,16 +198,16 @@ Step4 Verify that OptiFine Mod is loaded into the program by checking this box. 
 
 ![optifine controls zoom](https://images.wondershare.com/filmora/article-images/2022/07/optifine-controls-zoom.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 In the Minecraft launch, choose the Play option and click to load a game. While playing the game, hit the keyboard's "c" key to close in on the target in the center. This key may be used to zoom in at any time. Now that you have used the OptiFine Mod in Minecraft to zoom in, you may do so.
 
 ![click load minecraft game](https://images.wondershare.com/filmora/article-images/2022/07/click-load-minecraft-game.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Way 4\. Using a Spyglass
 
@@ -182,6 +216,13 @@ In Minecraft, the spyglass is used to zoom in so that a player may see well at a
 Step1 Create a Spyglass by following the newest version guide of Minecraft.
 
 ![create a spyglass](https://images.wondershare.com/filmora/article-images/2022/07/create-a-spyglass.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 After that, put the Spyglass you just created in your menu bar and take a hold of it. When you use it, your eyesight will enlarge the area you are focusing on. The same effect as altering your FoV in the settings is achieved with this, but it is faster, simpler, and has more zooming. You cannot lower the FoV setting below 30 by altering it in the menu.
 
@@ -195,13 +236,6 @@ Step4 On the crafting table, arrange 2 copper ingots and 1 amethyst shard in the
 
 ![crafting table spyglass](https://images.wondershare.com/filmora/article-images/2022/07/crafting-table-spyglass.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Way 5\. Use Zoomed-Out Maps
 
 You might think about making a zoomed-out map of your planet in addition to providing a mod to zoom in for simpler navigation. The map may be useful for several reasons, including returning to a certain area, such as your home base. When playing Minecraft, you can make a map and utilize it to gain a zoomed-out perspective of your world.
@@ -209,13 +243,6 @@ You might think about making a zoomed-out map of your planet in addition to prov
 Step1 Gather the materials needed to make a map in the first step. These include a compass, a crafts table, and sugar cane (used to make paper).
 
 ![use zoom out maps](https://images.wondershare.com/filmora/article-images/2022/07/use-zoom-out-maps.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Nine sheets of paper will be made from the sugar cane. Open the crafting table, and then put three pieces of sugar cane on each of the bottom squares to make them. To add paper to your inventory, click and drag it to the right-hand box's paper icon.
 
@@ -228,10 +255,10 @@ Step4 In order to utilize the map, choose it from the Equip bar at the bottom of
 ![utilize the map](https://images.wondershare.com/filmora/article-images/2022/07/utilize-the-map.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -264,5 +291,19 @@ With the above 5 ways, the finest video game, Minecraft, has now the accessibili
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-transform-your-photos-into-dynamic-time-lapses-the-gopro-way/"><u>[New] Transform Your Photos Into Dynamic Time-Lapses The GoPro Way</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-blueprint-for-on-screen-dialogues/"><u>[Updated] 2024 Approved The Blueprint for On-Screen Dialogues</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-filmmakers-approach-to-youtube-splitscreen-videos-for-2024/"><u>[Updated] A Filmmaker's Approach to YouTube Splitscreen Videos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-crafting-content-that-wins-on-ig-unboxing-edition/"><u>[Updated] Crafting Content That Wins on IG Unboxing Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-inside-track-to-premiere-pro-full-screen-viewing/"><u>[Updated] Inside Track to Premiere Pro Full Screen Viewing</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-stickers-for-discord-everything-you-need-to-know-for-2024/"><u>[Updated] Stickers for Discord Everything You Need to Know for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/2024s-ddr5-master-cards-ranked/"><u>2024'S DDR5 Master Cards Ranked</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-honor-play-40c-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Honor Play 40C Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ignite-your-online-presence-nine-essential-tips-for-mastering-instagram-stardom/"><u>In 2024, Ignite Your Online Presence Nine Essential Tips for Mastering Instagram Stardom</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/playstation-5-discovering-its-unmatched-game-lineup/"><u>PlayStation 5: Discovering Its Unmatched Game Lineup</u></a></li>
+<li><a href="https://fox-http.techidaily.com/prime-prospects-the-hottest-google-cardboard-vr-gaming-titles/"><u>Prime Prospects The Hottest Google Cardboard VR Gaming Titles</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/steps-to-secure-unmarked-stock-photos-for-business/"><u>Steps to Secure Unmarked Stock Photos for Business</u></a></li>
+</ul></div>
 

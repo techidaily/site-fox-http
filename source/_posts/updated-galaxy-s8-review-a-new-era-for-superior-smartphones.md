@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Galaxy S8 Review - A New Era for Superior Smartphones\""
-date: 2024-09-20T17:25:35.723Z
-updated: 2024-09-22T20:43:04.602Z
+date: 2024-09-30T17:39:28.231Z
+updated: 2024-10-04T04:28:18.972Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ The Samsung galaxy S8 offers an incredible level of performance from one of the 
 * One of the most expensive phones on the market
 * The Bixby feature is largely pointless.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Section 1: Samsung Galaxy S8 Hardware Design
 
 #### 1.Samsung Galaxy S8 Design
@@ -68,6 +75,13 @@ A standard headphone jack can still be found at the top of this device as well.
 #### 2.Samsung Galaxy S8 Display
 
 ![samsung-s8-design](https://images.wondershare.com/filmora/article-images/samsung-s8-design.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Samsung Galaxy S8 has a display that is known for being particularly stunning. It can deliver beautiful black and white contrast tones as well as very rich colors. Do yourself a favor and start streaming content in HD as soon as you get this device.
 
@@ -91,6 +105,13 @@ To make connectivity even better the S8 is equipped with Bluetooth five which im
 
 The phone comes with a very durable design that is created to be waterproof. With the full certification on waterproofing this is maybe not a device that you would use for diving but it can stand up to light rain, splashing and other situations. The majority of the device is made out of an aluminum instruction with the front of the device being constructed out of Gorilla Glass 5\. The weight and the durability of this device is not something to question as it can deliver the best in performance throughout a standard day.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Section 2: Samsung Galaxy S8 Features and Performance
 
 #### 1. Samsung Galaxy S8 Camera Performance
@@ -102,6 +123,13 @@ Some of the photos that were taken in tests tend to look a little bit over expos
 If you want to edit your 4K video footage on Galaxy S8, or you want to make video with the photos you shot with Galaxy S8, we recommend you to try Filmora, which will make a video for you within one minutes. It is easy to use yet powerful enough. Besides the basic video editing features, such as trimming, splitting, rotating, cutting, cropping and reversing, it also provides themes, overlays, filters, transitions and elements for you to use. You can also add text and titles, and voiceover to your video, or make a PIP video.
 
 [![Download filmora](https://images.wondershare.com/filmora/guide/google_play.jpg) ](https://play.google.com/store/apps/details?id=com.wondershare.filmorago)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 However, if you are looking for a more advanced video editing tool to make a video on your PC, you should not miss [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Watch the video before to check how to make a video with Filmora.
 
@@ -133,13 +161,6 @@ The S8 has some of the most advanced biometric security available on any smart p
 
 The Samsung S8 is one of the best new devices for using with the Samsung deX accessory as well as the gear 360\. For the future of Samsung VR, the screen without a bevel as well as the HD format that this device can deliver offers a considerable advantage in the market. This is a device that has been well optimized for the future of VR.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Section 3: Samsung Galaxy S8 Onboard Software
 
 The device comes with a touchwiz UI which is very similar to other Samsung application experiences. The menus are all extremely easy-to-use and the home button and menu buttons on the back really assist with navigation throughout the phone.
@@ -147,13 +168,6 @@ The device comes with a touchwiz UI which is very similar to other Samsung appli
 ![samsung-s8-bixby](https://images.wondershare.com/filmora/article-images/samsung-s8-bixby.jpg)
 
 Bixby is one of the latest highlighted features which is somewhat similar to the brand voice for Samsung. Bixby is an assistant at similar to the Google Assistant, Siri and more. Currently Bixby really just delivers a number of different alerts and reminders. The one feature that is fairly interested is the Bixby vision which can examine items in a store and help you comparison shop as well as the ongoing reminders and calendar updates. The current version of Bixby is pretty light but Samsung hopes to eventually include actions like the ability for Bixby to handle uploading all of your photos to social media or even sending out texts and alerts. Currently however Bixby is a fairly light app that you won’t likely use often.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -184,5 +198,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-expert-advice-for-flawless-recordings-on-mi-11-phones/"><u>[New] 2024 Approved Expert Advice for Flawless Recordings on Mi 11 Phones</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-webcam-ingenuity-for-productivity-boost/"><u>2024 Approved Webcam Ingenuity for Productivity Boost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/analyzing-the-financial-wisdom-of-youtube-premium-subscriptions/"><u>Analyzing the Financial Wisdom of YouTube Premium Subscriptions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/best-hevc-video-transcoder-software-compatible-with-windows-10-and-macos/"><u>Best HEVC Video Transcoder Software Compatible with Windows 10 and MacOS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/embracing-the-world-of-no-cost-text-animation/"><u>Embracing the World of No-Cost Text Animation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-magix-music-creators-capabilities-for-2024/"><u>Exploring Magix Music Creator's Capabilities for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/flash-frame-filmmaking-script-for-2024/"><u>Flash Frame Filmmaking Script for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/gourmet-visuals-in-motion-food-shot-tips-and-tricks-for-2024/"><u>Gourmet Visuals in Motion Food Shot Tips & Tricks for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-soundwave-statements-on-whatsapp-snapshots/"><u>In 2024, Soundwave Statements on WhatsApp Snapshots</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-mac-screen-capture-a-comprehensive-tutorial-for-scrolling-screenshots-featuring-16-effective-methods-from-movavi/"><u>Mastering Mac Screen Capture: A Comprehensive Tutorial for Scrolling Screenshots, Featuring 16 Effective Methods From Movavi</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-how-to-fix-swtor-wont-start-up/"><u>Troubleshooting: How to Fix 'SWTOR Won't Start Up'</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Add Personal Touch to Videos with Text Labels Using Photos App (Windows 11)"
-date: 2024-09-21T22:31:02.504Z
-updated: 2024-09-22T20:02:59.926Z
+date: 2024-09-28T16:30:20.062Z
+updated: 2024-10-03T23:55:36.040Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -73,17 +80,38 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -108,12 +136,16 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-loop-lovers-guide-instagrams-best-for-repeat-viewers/"><u>[New] In 2024, Loop Lovers Guide Instagram's Best for Repeat Viewers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-craft-engaging-yt-titles-in-a-flash/"><u>[Updated] In 2024, Craft Engaging YT Titles in a Flash</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-expert-strategy-seamlessly-integrating-subtitles-in-videos/"><u>[Updated] In 2024, Expert Strategy Seamlessly Integrating Subtitles in Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-live-stream-showdown-pick-your-favorite-vmix-or-wirecast/"><u>[Updated] Live Stream Showdown Pick Your Favorite, VMix or Wirecast</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-prime-filmmaker-forecasts-group/"><u>2024 Approved Prime Filmmaker Forecasts Group</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-guide-to-best-5k-displays-8-edition/"><u>2024 Approved The Ultimate Guide to Best 5K Displays - #8 Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/augment-creativity-a-compreenas-of-best-android-drawing-tools/"><u>Augment Creativity A Compreenas of Best Android Drawing Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/crafting-stunning-slideshows-on-iphone-series-13-for-2024/"><u>Crafting Stunning Slideshows on iPhone Series 13 for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-oppo-reno-11-5g-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Oppo Reno 11 5G Phone</u></a></li>
+</ul></div>
 

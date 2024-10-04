@@ -1,7 +1,7 @@
 ---
 title: "\"Ice Whizzes on Display - Olympics '22 for 2024\""
-date: 2024-09-27T21:43:45.382Z
-updated: 2024-09-29T03:29:21.963Z
+date: 2024-09-29T16:59:31.443Z
+updated: 2024-10-04T10:48:42.421Z
 tags: 
   - screen-recording
   - ai video
@@ -30,10 +30,10 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -43,13 +43,6 @@ Here are the main highlights of 1500 meter short track speed skating held at the
 Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Canada’s Steven Dubois wins the silver medal.
 
@@ -63,6 +56,13 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
@@ -74,6 +74,13 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
@@ -92,13 +99,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -119,10 +119,10 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -136,16 +136,10 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -171,14 +165,15 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-transforming-creativity-into-a-sustainable-livelihood/"><u>[New] 2024 Approved Transforming Creativity Into a Sustainable Livelihood</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-premiered-index-of-most-authentic-3ds-emulation-software/"><u>[New] In 2024, Premiered Index of Most Authentic 3DS Emulation Software</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-quick-thumbs-up-creating-your-own-google-image-mosaic/"><u>[New] In 2024, Quick Thumbs Up Creating Your Own Google Image Mosaic</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-a-complete-look-at-hand-recognition-systems/"><u>2024 Approved A Complete Look at Hand Recognition Systems</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-infinix-note-30-vip-racing-edition-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-the-iphone-14-sim-lock-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock The iPhone 14 SIM Lock 4 Easy Methods</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-precise-methods-for-creating-impactful-client-spots-on-film/"><u>In 2024, Precise Methods for Creating Impactful Client Spots on Film</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/masterful-media-management-dynamic-video-scaling-on-mac/"><u>Masterful Media Management Dynamic Video Scaling on Mac</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/speedy-switching-between-foreign-languages-on-windows-devices/"><u>Speedy Switching Between Foreign Languages on Windows Devices</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/chuckles-and-chortles-reviewing-the-goofy-movie-on-vhs-for-2024/"><u>'Chuckles and Chortles' - Reviewing The Goofy Movie on VHS for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beginners-blueprint-for-online-content-simple-straightforward-video-projects/"><u>[New] 2024 Approved Beginner's Blueprint for Online Content Simple, Straightforward Video Projects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-iphone-camera-accessories-for-better-filming-and-photo-experience/"><u>[New] 2024 Approved IPhone Camera Accessories for Better Filming and Photo Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-essential-iphone-podcast-retrieval-handbook/"><u>[New] 2024 Approved The Essential iPhone Podcast Retrieval Handbook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-cut-the-clutter-simple-window-10-techniques-for-editing-movies/"><u>[New] In 2024, Cut the Clutter Simple Window 10 Techniques for Editing Movies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-ensure-your-video-fits-the-instagram-aesthetic-perfectly/"><u>[Updated] In 2024, Ensure Your Video Fits the Instagram Aesthetic Perfectly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-best-gopro-accessories-for-2024/"><u>[Updated] The Best GoPro Accessories for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-clearscreen-pro-win11-live-video-recorder/"><u>2024 Approved ClearScreen Pro - Win11 Live Video Recorder</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-telegram-web-a-beginners-walkthrough/"><u>Mastering Telegram Web A Beginner's Walkthrough</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/skyrocketing-up-the-rankings-hit-10k-views-to-unlock-partnership-for-2024/"><u>Skyrocketing Up the Rankings - Hit 10K Views to Unlock Partnership for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Canva's Hidden Gems for Crafting Visual Magic\""
-date: 2024-09-16T21:53:20.378Z
-updated: 2024-09-22T20:26:24.376Z
+date: 2024-09-27T08:52:42.044Z
+updated: 2024-10-03T22:28:48.168Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,19 @@ Other interesting effects include BadTV, through which you can add cinematic and
 
 ![search and apply filters](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Add Text to Images
 
 Do you like to post Instagram or Facebook stories with catchy captions embedded in them? Canva photo editor online gives you huge and diverse options to add text on the images with fancy styles and colors. You can add an aligned text by adjusting it to various angles such as right, left, or center. Afterward, you can select the font, color, and style of your added text through finger swipes.
@@ -54,13 +67,6 @@ Do you like to post Instagram or Facebook stories with catchy captions embedded 
 You can also manage the size of your text to make it look appropriate and suitable for your image. Hence, you can use the text images to post them as stories on social media accounts or use them for commercial purposes. This is surely good!
 
 ![add texts to photos](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Add Frames to the Image
 
@@ -71,17 +77,10 @@ On the other hand, frames like film 1 and film 2 are extremely trendy, and many 
 ![use different canva photo frames](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Create YouTube Thumbnails
@@ -100,18 +99,18 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 
 ![ add different canva elements](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Make Photo Collage
 
 Photo collage combines all of our favorite and preferred photos in a single frame, and viewers can see all the combined photos in a single place. Canva photo editor online allows the users to make photo collages by merging their photos with a single click. You can add different frames to the images and can apply filters, effects, stickers, and typography. So, combine all of your cherishing memories in a single frame and share it with your friends and family members.
 
 ![make photo collage in canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. Design Mockups
 
@@ -120,10 +119,10 @@ If you are editing images for a product shoot, clothing brand, or any other proj
 ![design mockups through canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. Use Auto Focus and Blur
@@ -134,6 +133,13 @@ By combining both of these features, you can easily craft a professional illustr
 
 ![auto blur effect applied](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. Mix the Colors
 
 What makes the photos look more captivating? It’s a simple rule to play with colors present in the graphics and stickers that you want to apply to the images. Canva photo editor gives a free hand to the users to be more creative and original while editing their photos. For instance, you can design a theme for your image by adding graphics and stickers of the same color.
@@ -141,6 +147,20 @@ What makes the photos look more captivating? It’s a simple rule to play with c
 Moreover, you can use filters and color palettes that match well with your theme. Moreover, you can stylize the image for a magazine cover by mixing color ranges and layers through this exceptional tool. It sounds perfect!
 
 ![play with picture colors canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -168,5 +188,17 @@ Anyone can learn photo editing skills if they are provided with accurate guideli
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-global-industrys-biggest-uav-lifters-the-ultimate-list/"><u>[New] 2024 Approved Global Industry's Biggest UAV Lifters The Ultimate List</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-step-by-step-reposting-on-instagram/"><u>[New] In 2024, Step-by-Step Reposting on Instagram</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-podcast-profitability-analysis/"><u>[Updated] Podcast Profitability Analysis</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-oneplus-nord-3-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-perfecting-cgi-in-depth-tutorial-for-kinemaster-users/"><u>In 2024, Perfecting CGI In-Depth Tutorial for Kinemaster Users</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/leading-pictorial-storage-hubs-for-2024/"><u>Leading Pictorial Storage Hubs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premiere-pros-finest-10-text-plans/"><u>Premiere Pro's Finest 10 Text Plans</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/rise-of-the-alternative-top-3-video-sharing-websites/"><u>Rise of the Alternative Top 3 Video Sharing Websites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-split-between-panoramic-and-virtual-realities/"><u>The Split Between Panoramic & Virtual Realities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-trio-of-professional-digital-cinema-tools/"><u>Top Trio of Professional Digital Cinema Tools</u></a></li>
+</ul></div>
 

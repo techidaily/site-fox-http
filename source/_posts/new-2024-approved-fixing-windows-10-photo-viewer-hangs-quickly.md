@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fixing Windows 10 Photo Viewer Hangs Quickly\""
-date: 2024-09-18T22:41:00.932Z
-updated: 2024-09-22T22:12:15.054Z
+date: 2024-10-02T01:48:50.216Z
+updated: 2024-10-03T21:31:00.065Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -57,6 +64,13 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -74,13 +88,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -90,13 +97,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -108,6 +108,13 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 2. Key in the command followed by ‘Enter’: Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register “$($\_.InstallLocation)\\AppXManifest.xml”}
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
 
@@ -127,6 +134,13 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -151,5 +165,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-best-bargain-scene-for-no-cost-video-capturing-on-chromebooks/"><u>[Updated] 2024 Approved Best Bargain Scene for No-Cost Video Capturing on Chromebooks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-from-watching-to-archiving-a-comprehensive-screencast-of-streamed-video/"><u>[Updated] 2024 Approved From Watching to Archiving A Comprehensive Screencast of Streamed Video</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-prime-vr-options-enhancing-drone-operations/"><u>[Updated] In 2024, Prime VR Options Enhancing Drone Operations</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-new-directors-toolkit-15-basic-cinematography-movements/"><u>[Updated] The New Director’s Toolkit 15 Basic Cinematography Movements</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elevating-marketing-with-powerful-customer-video-voices/"><u>2024 Approved Elevating Marketing with Powerful Customer Video Voices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-fostering-fun-with-metaverse-satirical-artifacts/"><u>2024 Approved Fostering Fun with Metaverse Satirical Artifacts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-mastering-zoom-the-ultimate-guide-to-audio-recording-for-podcasts/"><u>2024 Approved Mastering Zoom The Ultimate Guide to Audio Recording for Podcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-professional-360-streaming-tech-reviews/"><u>2024 Approved Professional 360° Streaming Tech Reviews</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-rhythmic-raptor-rumba/"><u>2024 Approved Rhythmic Raptor Rumba</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-meme-gurus-list-of-the-best-designs-10/"><u>2024 Approved The Meme Guru's List of the Best Designs #10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-10-strategies-for-impactful-spotify-ads/"><u>2024 Approved Top 10 Strategies for Impactful Spotify Ads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-the-most-shared-stock-photos-and-backstories/"><u>2024 Approved Unveiling the Most Shared Stock Photos & Backstories</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-tecno-camon-20-premier-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Tecno Camon 20 Premier 5G without App | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/blackout-blitz-premiere-pro-60s/"><u>Blackout Blitz Premiere Pro 60S</u></a></li>
+<li><a href="https://fox-http.techidaily.com/cracking-comics-the-essential-guide-to-meme-magic-for-2024/"><u>Cracking Comics The Essential Guide to Meme Magic for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/creating-captivating-podcast-highlights/"><u>Creating Captivating Podcast Highlights</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-infinix-hot-40i-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Infinix Hot 40i to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/prompt-engineering-profession-or-myth-understanding-key-indicators-for-your-path/"><u>Prompt Engineering Profession or Myth?: Understanding Key Indicators for Your Path</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-beginners-blueprint-to-master-message-spaces/"><u>The Beginner's Blueprint to Master Message Spaces</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Transforming Simple Videos  Text Addition in Windows 10'S Photos Software for 2024\""
-date: 2024-09-18T17:51:37.338Z
-updated: 2024-09-22T17:39:17.709Z
+date: 2024-10-01T17:50:39.959Z
+updated: 2024-10-04T00:08:02.243Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -67,17 +74,38 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -108,18 +136,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-secrets-of-fbx-game-recorder-unveiled/"><u>[New] In 2024, Secrets of FBX Game Recorder Unveiled</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-steps-to-identify-your-dream-livestream-platform/"><u>[New] Steps to Identify Your Dream Livestream Platform</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-unlocking-ez-grabber-a-quick-guide-to-downloading-setting-up/"><u>[Updated] 2024 Approved Unlocking EZ Grabber - A Quick Guide to Downloading, Setting Up</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-viral-flair-identifying-powerful-tags-for-youtube-short-success/"><u>[Updated] 2024 Approved Viral Flair Identifying Powerful Tags for YouTube Short Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-visual-producer-studio/"><u>[Updated] 2024 Approved Visual Producer Studio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-crop-image-online/"><u>2024 Approved How To Crop Image Online?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-guide-to-applying-luts-in-obs-streaming/"><u>2024 Approved The Ultimate Guide to Applying LUTs in OBS Streaming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlimited-choice-in-free-personalized-outro-sounds/"><u>2024 Approved Unlimited Choice in Free, Personalized Outro Sounds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/advanced-photo-editing-how-to-clean-up-unwanted-space/"><u>Advanced Photo Editing How to Clean Up Unwanted Space</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-10-free-jpg-to-gif-conversion-tools-for-2024/"><u>Best 10 Free JPG to GIF Conversion Tools for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-budget-friendly-srt-translators-unveiled-online/"><u>Best Budget-Friendly SRT Translators Unveiled Online</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/comparing-obs-and-shadowplay-in-gaming-streaming-which-offers-superior-performance/"><u>Comparing OBS and ShadowPlay in Gaming Streaming: Which Offers Superior Performance?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-srt-deep-dive-knowledge-at-your-fingertips/"><u>In 2024, SRT Deep Dive Knowledge at Your Fingertips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-daily-digital-needs-on-the-go-with-the-hp-stream-11/"><u>Master Your Daily Digital Needs on the Go with the HP Stream 11</u></a></li>
+<li><a href="https://driver-install.techidaily.com/update-hp-graphics-drivers-in-windows-7-easily/"><u>Update HP Graphics Drivers in Windows 7! Easily</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unveiling Panasonic's Wearable Action Camera Magic"
-date: 2024-09-27T01:03:52.639Z
-updated: 2024-09-28T17:27:35.093Z
+date: 2024-09-30T16:54:40.121Z
+updated: 2024-10-04T11:20:39.003Z
 tags: 
   - screen-recording
   - ai video
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/b4ed3f08ab6e820bb58ff66c5f5e67696c65d753e
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specification
@@ -76,10 +76,16 @@ thumbnail: https://thmb.techidaily.com/b4ed3f08ab6e820bb58ff66c5f5e67696c65d753e
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Accessories in the box
@@ -119,6 +125,13 @@ thumbnail: https://thmb.techidaily.com/b4ed3f08ab6e820bb58ff66c5f5e67696c65d753e
 
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Features
 
 #### **1. Video and photo quality**
@@ -148,10 +161,10 @@ thumbnail: https://thmb.techidaily.com/b4ed3f08ab6e820bb58ff66c5f5e67696c65d753e
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -161,13 +174,6 @@ thumbnail: https://thmb.techidaily.com/b4ed3f08ab6e820bb58ff66c5f5e67696c65d753e
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -194,18 +200,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-amplify-your-snapchat-experience-with-easy-voice-customization-for-2024/"><u>[New] Amplify Your Snapchat Experience with Easy Voice Customization for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-craft-crisp-visuals-with-picart-background-sweep-for-2024/"><u>[Updated] Craft Crisp Visuals with PicArt Background Sweep for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-dive-into-dollars-15-online-stock-market-experts/"><u>[Updated] Dive Into Dollars 15 Online Stock Market Experts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-mastering-color-palettes-applying-theories-effectively-for-2024/"><u>[Updated] Mastering Color Palettes Applying Theories Effectively for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-spotlight-subject-erase-bg-in-photo-editing-for-2024/"><u>[Updated] Spotlight Subject, Erase Bg in Photo Editing for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-zen-of-sleep-curated-asmr-vocalists/"><u>2024 Approved The Zen of Sleep Curated ASMR Vocalists</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-understanding-and-leveraging-influencers-on-snapchat/"><u>2024 Approved Understanding and Leveraging Influencers on Snapchat</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/comparing-ig-reels-and-ig-stories-a-comprehensive-guide-for-2024/"><u>Comparing IG Reels & IG Stories A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/essential-guide-to-free-online-srt-translators-1-8-rankings/"><u>Essential Guide to Free Online SRT Translators – #1-#8 Rankings</u></a></li>
-<li><a href="https://techtrends.techidaily.com/gratis-konverteren-van-qt-afbeeldingen-naar-avi-formaat-online-movavi/"><u>Gratis Konverteren Van QT-Afbeeldingen Naar Avi-Formaat Online - Movavi</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo V30 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/htc-vive-comfort-zone-8-strategies-for-clear-skin-for-2024/"><u>HTC Vive Comfort Zone 8 Strategies for Clear Skin for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/qualcomm-leads-innovation-with-plans-to-introduce-advanced-700-snapdragon-x-desktops-next-year-ceo-reveals/"><u>Qualcomm Leads Innovation With Plans To Introduce Advanced $700 Snapdragon X Desktops Next Year, CEO Reveals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-blades-and-boards-olympians-on-ice/"><u>[New] 2024 Approved Blades & Boards Olympians on Ice</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fix-facebook-messenger-not-sending-videos-on-iphone-and-android/"><u>[New] 2024 Approved Fix “Facebook Messenger Not Sending Videos” On iPhone and Android</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-mirthful-milestones-an-examination-of-goofy-odyssey/"><u>[New] In 2024, 'Mirthful Milestones' An Examination of 'Goofy Odyssey'</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-strategic-approaches-to-googles-podcast-submission-protocol-for-2024/"><u>[New] Strategic Approaches to Google’s Podcast Submission Protocol for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-guide-to-affordable-cloud-space-best-of-the-20/"><u>[New] The Ultimate Guide to Affordable Cloud Space Best of the 20</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-visualpiece-macbookplusiphone-photo-blend/"><u>[Updated] 2024 Approved VisualPiece MacBook+iPhone Photo Blend</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-analyzing-magix-photo-management-system/"><u>[Updated] Analyzing MAGIX Photo Management System</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-ideal-pixel-gatherings-unique-ringtone-repository/"><u>[Updated] In 2024, Ideal Pixel Gatherings Unique Ringtone Repository</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveiling-30-new-dimensions-in-metaverse-memes-for-2024/"><u>[Updated] Unveiling 30 New Dimensions in Metaverse Memes for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/benchmarking-the-best-in-depth-review-of-linksys-wrt3200acm-router-and-its-edge-in-open-source-technology/"><u>Benchmarking the Best: In-Depth Review of Linksys WRT3200ACM Router and Its Edge in Open Source Technology</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/bitraser-purchase-the-smart-choice-for-complete-disk-sanitization/"><u>BitRaser Purchase: The Smart Choice for Complete Disk Sanitization</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-fixes-what-to-do-if-your-usb-tether-wont-connect/"><u>Essential Fixes: What to Do If Your USB Tether Won't Connect</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-samsung-galaxy-m14-4g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Samsung Galaxy M14 4G to iPad | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-building-visual-story-arcs/"><u>In 2024, Building Visual Story Arcs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-full-review-of-the-latest-powerdirector-app-24/"><u>In 2024, Full Review of the Latest PowerDirector App - '24</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/share-videos-directly-on-twitter-via-mobile-devices-only/"><u>Share Videos Directly on Twitter via Mobile Devices Only</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-premier-screen-picks-for-ps5-and-xbox-games/"><u>The Premier Screen Picks for PS5 and Xbox Games</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-samsung-galaxy-m34-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Samsung Galaxy M34 to iPhone 14/15 | Dr.fone</u></a></li>
 </ul></div>
 

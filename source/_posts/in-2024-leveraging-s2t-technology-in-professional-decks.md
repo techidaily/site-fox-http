@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Leveraging S2T Technology in Professional Decks"
-date: 2024-09-22T19:21:11.932Z
-updated: 2024-09-28T20:54:38.107Z
+date: 2024-10-01T19:45:46.194Z
+updated: 2024-10-03T23:16:09.848Z
 tags: 
   - screen-recording
   - ai video
@@ -49,19 +49,19 @@ Please note that “enabling speech-to-text” in PowerPoint differs from “usi
 ![select the dictation option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Once you activate the dictation from the command button, you can use the speech-to-text feature anywhere you can type on Mac - this applies to PowerPoint. However, you may need some tweaking on PowerPoint to finally use the feature as you prepare your slides.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Enable speech-to-text on Windows**
@@ -75,20 +75,6 @@ Aside from the regular Cortana speech recognition on Windows, you can use the sp
 * Click on the search button and type **“dictation”** or “**speech services**,” and the device redirects you to settings. Here, you activate the dictation button as the Mac option explained earlier. You may also press **“windows key + H”** to start the dictation option.
 
 ![click on the search button](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How do I dictate PowerPoint for Mac?
 
@@ -109,19 +95,33 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 ![locate the speak option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Use the speak option**
 
 Now you can click on the microphone button and speak to add text.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Speak clearly, but conversationally**
 
 The smart engine needs to hear you clearly before interpreting the speech into text. Do not mumble or speak fast. Each word should be audible and clearly stated. You can use the keyboard to edit or remove excess words.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Reduce background noise**
 
@@ -132,15 +132,22 @@ Ensure the background noise does not interrupt your speech.
 Exploit the user dictionary. Visit Settings > **Languages**, and info > **Advanced** \> Personal word reference, and you can add last names and other “unofficial” words.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to enable real-time speech-to-text translation in PowerPoint
 
 The only difference between real-time speech-to-text translation and other forms is the real-life experience. There are cases you need to activate speech-to-text in a life event. PowerPoint supports this through the “speech-to-text” feature available on the platform.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Set up captions and subtitles**
 
@@ -180,31 +187,11 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs
 
@@ -215,6 +202,13 @@ No, it doesn't. However, you may need the internet to set up some settings.
 ### **Does speech-to-text come with a subscription?**
 
 No. The feature is free for all registered users on PowerPoint.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Do you need an additional microphone?**
 
@@ -251,22 +245,18 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-10-online-hubs-for-public-domain-music-in-games/"><u>[New] 2024 Approved Top 10 Online Hubs for Public Domain Music in Games</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-transforming-virtual-worlds-enhancing-spark-ar-with-custom-luts/"><u>[New] 2024 Approved Transforming Virtual Worlds Enhancing Spark AR with Custom LUTs</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-face-flaunting-visual-guidebook/"><u>[New] Face Flaunting Visual Guidebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-beginners-ultimate-gear-list-for-film-shooting/"><u>[New] In 2024, Beginner's Ultimate Gear List for Film Shooting</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-time-warp-in-video-editing/"><u>[New] In 2024, Mastering Time Warp in Video Editing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-live-action-revealed-an-in-depth-review-of-polaroids-new-camera-for-2024/"><u>[New] Live-Action Revealed An In-Depth Review of Polaroid's New Camera for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-pinnacle-of-video-top-5-slow-motion-cams/"><u>[New] Pinnacle of Video Top 5 Slow Motion Cams</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-audience-engagement-on-demand-top-5-mac-streaming-tools/"><u>[Updated] Audience Engagement On Demand Top 5 Mac Streaming Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-prevent-washed-out-iphone-hd-videos-with-effective-premiere-pro-techniques/"><u>[Updated] In 2024, Prevent Washed-Out iPhone HD Videos with Effective Premiere Pro Techniques</u></a></li>
-<li><a href="https://win-able.techidaily.com/cost-free-guide-mastering-simple-techniques-in-editing-your-screenshots/"><u>Cost-Free Guide: Mastering Simple Techniques in Editing Your Screenshots</u></a></li>
-<li><a href="https://techtrends.techidaily.com/logiciel-mac-x-dvd-ripper-pro-achetez-le-directement-en-ligne/"><u>Logiciel Mac X DVD Ripper Pro : Achetez-Le Directement en Ligne</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/media-file-saver-pro-securely-transfer-your-old-vidsaudios-to-modern-formats-like-mp4-wmv-or-mp3/"><u>Media File Saver Pro: Securely Transfer Your Old Vids/Audios to Modern Formats Like MP4, WMV, or MP3!</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/overcoming-a-stalled-obs-video-capture-process-for-2024/"><u>Overcoming a Stalled OBS Video Capture Process for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/overcoming-installation-obstacles-how-to-make-windows-11-run-smoothly-again/"><u>Overcoming Installation Obstacles: How to Make Windows 11 Run Smoothly Again</u></a></li>
-<li><a href="https://common-error.techidaily.com/simple-solutions-resolving-the-0xc000012f-glitch-on-your-pc/"><u>Simple Solutions: Resolving the 0xC000012F Glitch on Your PC</u></a></li>
-<li><a href="https://fox-http.techidaily.com/spark-ar-visual-upgrades-the-role-of-downloadable-luts-in-development/"><u>Spark AR Visual Upgrades The Role of Downloadable LUTs in Development</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unlocking-premiere-pros-lut-potential-for-2024/"><u>Unlocking Premiere Pro's LUT Potential for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-deciphenas-luts-revolutionizing-photo-editing-techniques/"><u>[New] 2024 Approved Deciphenas LUTs Revolutionizing Photo Editing Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-an-experts-guide-to-accumulating-mass-tiktok-videos-effortlessly/"><u>[New] An Expert's Guide to Accumulating Mass TikTok Videos Effortlessly</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-step-by-step-gopro-4k-editing-basics-for-2024/"><u>[New] Step-by-Step GoPro 4K Editing Basics for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-uniting-individual-shots-into-a-compelling-image-story/"><u>[New] Uniting Individual Shots Into a Compelling Image Story</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-elevate-your-traffic-ethically-youtubes-best-practices/"><u>[Updated] 2024 Approved Elevate Your Traffic Ethically YouTube's Best Practices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-rhythmic-raptor-rumba/"><u>[Updated] 2024 Approved Rhythmic Raptor Rumba</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-create-360-degree-photosimages-with-fisheye-lens/"><u>[Updated] How to Create 360 Degree Photos/Images with Fisheye Lens</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-best-video-editing-software-for-windows-enthusiasts-revealed/"><u>[Updated] In 2024, The Best Video Editing Software For Windows Enthusiasts Revealed</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-tools-for-instant-time-lapse-videos-for-2024/"><u>Best Tools for Instant Time-Lapse Videos for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-13-pro-max-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 13 Pro Max to the Latest iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-panoramic-photography-with-a-fisheye-effect/"><u>Mastering Panoramic Photography with a Fisheye Effect</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-realme-11-5g-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Realme 11 5G.</u></a></li>
 </ul></div>
 

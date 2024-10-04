@@ -1,7 +1,7 @@
 ---
 title: "[New] Detailed Video Capture Using Videoleap Tools for 2024"
-date: 2024-09-15T20:23:55.183Z
-updated: 2024-09-22T20:53:59.246Z
+date: 2024-10-03T07:17:57.621Z
+updated: 2024-10-03T22:06:56.704Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
 * Add the keyframes to the desired portion of the video and then navigate the timecode to the place on the timeline where you want to stop it. After that add another keyframe at that point and pinch in to zoom the video.
 
@@ -82,16 +89,23 @@ If for some reason you are not able to install and use Videoleap on your system 
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -114,10 +128,10 @@ Videoleap is one of the leading video editing platforms available out there. The
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -150,5 +164,24 @@ Videoleap is one of the leading video editing platforms available out there. The
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-10-best-lightroom-alternatives-free-and-paid/"><u>[New] 10 Best Lightroom Alternatives [Free & Paid]</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-premier-5-video-screens-for-ps5-players/"><u>[New] 2024 Approved Premier 5 Video Screens for PS5 Players</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-windows-10-game-recording-5-methods/"><u>[New] 2024 Approved Windows 10 Game Recording [5 Methods]</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-your-route-to-revisiting-fbs-recently-viewed-gems/"><u>[New] 2024 Approved Your Route to Revisiting Fb’s Recently Viewed Gems</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-actionable-tips-on-how-to-post-on-reddit-step-by-step-guide/"><u>[Updated] 2024 Approved Actionable Tips On How to Post on Reddit - Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-complete-srt-file-makers-handbook/"><u>[Updated] 2024 Approved The Complete SRT File Maker's Handbook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-6-metaverse-examples-to-help-you-have-a-deep-insight-about-it-useful-for-2024/"><u>[Updated] 6 Metaverse Examples to Help You Have a Deep Insight About It [Useful] for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/5lu75osp44gu44ov44kh44kk44or44k44kk44ox44ks5zwp44kp44ga44cb44gc44kj44kg44kl5yuv55s744gr6ygp55so5yplusv6io944gq5pya44kc6lplusf6ycf44gl44gk57ch5y2y44gq5asj5op63/"><u>任意のファイルタイプを問わず、あらゆる動画に適用可能な最も迅速かつ簡単な変換テクニック</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/designing-dynamic-videos-with-adobe-captivate/"><u>Designing Dynamic Videos with Adobe Captivate</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-easily-and-quickly-draw-on-photos-app-in-windows-10/"><u>How to Easily and Quickly Draw on Photos App in Windows 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-bridging-reality-and-simulation/"><u>In 2024, Bridging Reality and Simulation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-drone-enthusiasts-guide-to-vibration-reduction-and-image-quality/"><u>In 2024, The Drone Enthusiast's Guide to Vibration Reduction and Image Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-top-edits-made-easy-a-newbies-guide-to-video-trimming-and-enhancing/"><u>In 2024, Top Edits Made Easy A Newbie's Guide to Video Trimming & Enhancing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/sparkling-vibrancy-the-android-video-brightening-guide/"><u>Sparkling Vibrancy The Android Video Brightening Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/step-by-step-tutorial-on-restoring-your-iphone-emails-to-current-status/"><u>Step-by-Step Tutorial on Restoring Your iPhone Emails to Current Status</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-selections-premium-webcam-platforms-for-2024/"><u>Ultimate Selections Premium Webcam Platforms for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/unseen-maxwell-technology-on-windows-pc/"><u>Unseen Maxwell Technology on Windows PC</u></a></li>
+</ul></div>
 

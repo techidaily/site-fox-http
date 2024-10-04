@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Audacity's Toolkit for Exceptional Sound Recording\""
-date: 2024-09-15T16:14:20.672Z
-updated: 2024-09-22T21:45:44.046Z
+date: 2024-10-01T11:07:01.789Z
+updated: 2024-10-04T03:36:54.574Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,19 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +65,13 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,18 +119,26 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-cutting-the-clutter-eschewing-fb-video-ads/"><u>[New] 2024 Approved Cutting the Clutter Eschewing FB Video Ads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-winning-insta-followers-with-irresistible-unboxing-clips/"><u>[New] 2024 Approved Winning Insta Followers with Irresistible Unboxing Clips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-selective-alarm-tones-optimal-websites-list/"><u>[New] In 2024, Selective Alarm Tones Optimal Websites List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cutting-edge-online-methods-for-supercharging-vhs-artifacts/"><u>[Updated] 2024 Approved Cutting-Edge Online Methods for Supercharging VHS Artifacts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-master-upside-down-and-sideways-iphone-photo-rotation/"><u>[Updated] 2024 Approved Master Upside-Down and Sideways iPhone Photo Rotation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-crafting-perfect-srt-output-with-premiere-pro/"><u>[Updated] Crafting Perfect SRT Output with Premiere Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-decoding-the-detailed-workings-of-samsung-photo-editor-app-for-2024/"><u>[Updated] Decoding the Detailed Workings of Samsung Photo Editor App for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-ultimate-list-of-tamil-ringtones-purchase-hubs-and-hacks/"><u>[Updated] In 2024, The Ultimate List of Tamil Ringtones Purchase Hubs & Hacks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-next-gen-heroism-gopro-hero5-black-vs-hero4-silver/"><u>[Updated] Next-Gen HEROism GoPro Hero5 Black vs Hero4 Silver</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-radial-blur-made-easy-pro-techniques-in-adobe-ps/"><u>2024 Approved Radial Blur Made Easy Pro Techniques in Adobe PS</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-apple-iphone-se-2020-by-drfone-ios/"><u>How to Bypass iCloud Lock on Apple iPhone SE (2020)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-luminous-lore-of-video-production-expert-insights/"><u>In 2024, Luminous Lore of Video Production Expert Insights</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-spotlight-on-cities-for-virtual-viewing/"><u>In 2024, Spotlight on Cities for Virtual Viewing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/integrated-mobility-evaluation-study/"><u>Integrated Mobility Evaluation Study</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/optimal-lms-for-language-proficiency-growth/"><u>Optimal LMS for Language Proficiency Growth</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/speeding-up-sluggish-windows-10-updates-proven-strategies-unveiled/"><u>Speeding up Sluggish Windows 10 Updates: Proven Strategies Unveiled</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-fixes-overcoming-audio-glitches-in-pcs-zoom-video-conferences/"><u>Step-by-Step Fixes: Overcoming Audio Glitches in PC's Zoom Video Conferences</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/ultimate-list-best-asmr-on-smartphones-for-2024/"><u>Ultimate List Best ASMR on Smartphones for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Itel S23+ | Dr.fone</u></a></li>
+</ul></div>
 

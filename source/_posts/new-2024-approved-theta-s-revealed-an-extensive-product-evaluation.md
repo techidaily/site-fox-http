@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Theta S Revealed  An Extensive Product Evaluation\""
-date: 2024-09-27T23:21:04.546Z
-updated: 2024-09-28T17:54:21.789Z
+date: 2024-10-02T21:04:03.550Z
+updated: 2024-10-04T11:03:30.268Z
 tags: 
   - screen-recording
   - ai video
@@ -76,16 +76,10 @@ The picture quality is simply outstanding and is rated to be much better than al
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2 Pros and Cons at a glance
@@ -102,10 +96,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Remote control (via App)                                                               |                                                                       |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
@@ -125,10 +119,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -140,16 +134,10 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -177,24 +165,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-essential-list-top-16-best-free-video-viewers/"><u>[New] Essential List Top 16 Best Free Video Viewers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-bio-engineered-healing-spaces-via-arvr/"><u>[New] In 2024, Bio-Engineered Healing Spaces via AR/VR</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-the-ultimate-guide-to-choosing-best-free-srt-translators-online/"><u>[New] In 2024, The Ultimate Guide to Choosing Best FREE SRT Translators Online</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-preserving-your-snapshots-mobile-and-desktop-compatible-for-2024/"><u>[New] Preserving Your Snapshots Mobile & Desktop Compatible for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-conquer-the-crunch-how-to-edit-and-reduce-massive-tiktok-files/"><u>[Updated] 2024 Approved Conquer the Crunch How to Edit and Reduce Massive TikTok Files</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-dream-of-flight-check-out-these-top-kid-friendly-drones/"><u>[Updated] In 2024, Dream of Flight? Check Out These Top Kid-Friendly Drones</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-from-gifs-to-videos-in-a-snap-top-online-platforms-for-content-upgraders/"><u>[Updated] In 2024, From GIFs to Videos in a Snap Top Online Platforms for Content Upgraders</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-prime-locations-boosting-your-youtube-content-visibility/"><u>[Updated] In 2024, Prime Locations Boosting Your YouTube Content Visibility</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-realistic-quantum-leaps-a-vfx-perspective/"><u>[Updated] In 2024, Realistic Quantum Leaps A VFX Perspective</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-understanding-instagrams-privacy-features-for-anonymous-livestreams/"><u>[Updated] In 2024, Understanding Instagram's Privacy Features for Anonymous Livestreams</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-prime-sd-card-selections-for-optimal-gopro-hero-78-performance/"><u>[Updated] Prime SD Card Selections for Optimal GoPro Hero 7/8 Performance</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-pp-playbook-for-silent-scene-transitions-for-2024/"><u>[Updated] The Ultimate PP Playbook for Silent Scene Transitions for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-viral-vortex-a-guide-to-powerful-social-media-tags/"><u>[Updated] Viral Vortex A Guide to Powerful Social Media Tags</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/guide-to-control-and-adjust-network-discovery-options-in-the-latest-version-of-windows/"><u>Guide to Control and Adjust Network Discovery Options in the Latest Version of Windows</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-easily-update-your-sound-card-drivers-with-the-latest-realtek-alc892aic7380-software-on-windows-11/"><u>How to Easily Update Your Sound Card Drivers with the Latest Realtek ALC892/AIC7380 Software on Windows 11</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-itel-p55t-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Itel P55T</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-professional-gear-tips-gopro-edition/"><u>In 2024, Professional Gear Tips GoPro Edition</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/techniques-to-develop-engaging-vlogger-conversations-for-2024/"><u>Techniques to Develop Engaging Vlogger Conversations for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/unfreeze-chrome-easily-master-these-fixes-for-a-smooth-browsing-experience/"><u>Unfreeze Chrome Easily! Master These Fixes for a Smooth Browsing Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-17-best-lights-and-lighting-equipment-for-youtube-videos/"><u>[New] 2024 Approved 17 Best Lights and Lighting Equipment for YouTube Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-how-to-unleash-funimate-with-apk-on-your-phone/"><u>[New] 2024 Approved How to Unleash Funimate with APK on Your Phone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-expert-insights-into-making-the-most-out-of-mac-preview/"><u>[New] Expert Insights Into Making the Most Out of Mac Preview</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-art-of-matching-fpv-drones-with-ideal-blades/"><u>[New] In 2024, The Art of Matching FPV Drones with Ideal Blades</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-role-of-arvr-in-medical-training/"><u>[New] The Role of AR/VR in Medical Training</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-comprerante-guide-to-sierras-cloud-file-accessibility/"><u>[Updated] 2024 Approved Comprerante Guide to Sierra's Cloud File Accessibility</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-navigating-the-path-to-prominence-9-proven-strategies-for-instagram-stars/"><u>[Updated] 2024 Approved Navigating the Path to Prominence 9 Proven Strategies for Instagram Stars</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-find-your-perfect-match-the-top-10-online-converters-list/"><u>[Updated] Find Your Perfect Match The Top 10 Online Converters List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-composing-a-price-plan-for-audio-visual-song-clips/"><u>[Updated] In 2024, Composing a Price Plan for Audio-Visual Song Clips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-navigating-windows-8-movie-maker-like-a-pro-for-2024/"><u>[Updated] Navigating Windows 8 Movie Maker Like a Pro for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-fixes-for-tackling-vpn-error-800-a-dual-approach-for-client-and-server-troubleshooting/"><u>Comprehensive Fixes for Tackling VPN Error 800: A Dual Approach for Client and Server Troubleshooting</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/easysnap-win11-no-hassle-just-screenshots-for-2024/"><u>EasySnap Win11 No Hassle, Just Screenshots for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-intel-chipset-control-panel-driver-updates-and-downloads-for-windows-111087/"><u>Free Intel Chipset Control Panel Driver Updates and Downloads for Windows 11/10/8/7</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-monochrome-to-motion-the-ultimate-guide-to-making-videos-with-pixiz-for-2024/"><u>From Monochrome to Motion The Ultimate Guide to Making Videos with Pixiz for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-6s-plus-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 6s Plus System? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/next-gen-computing-unveiled-enhanced-ddr5-memory-standards-for-lightning-fast-laptops-and-servers-set-by-jedec/"><u>Next-Gen Computing Unveiled: Enhanced DDR5 Memory Standards for Lightning-Fast Laptops and Servers Set by JEDEC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-asus-rog-phone-8-pro-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Asus ROG Phone 8 Pro Android SIM Unlock APK</u></a></li>
 </ul></div>
 
