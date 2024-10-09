@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tackling Photo App Errors in Windows 11"
-date: 2024-09-29T17:51:20.614Z
-updated: 2024-10-04T09:48:36.935Z
+date: 2024-10-08T18:51:56.942Z
+updated: 2024-10-09T18:16:19.315Z
 tags: 
   - screen-recording
   - ai video
@@ -48,10 +48,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -64,6 +64,13 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -79,14 +86,14 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -97,13 +104,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -127,6 +127,13 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -134,13 +141,6 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -167,19 +167,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-comprehensive-tutorial-inserting-text-into-photographs-on-oses/"><u>[New] 2024 Approved Comprehensive Tutorial Inserting Text Into Photographs on OSes</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-insta-friends-lost-tracking-your-unfollowers/"><u>[New] 2024 Approved Insta Friends Lost Tracking Your Unfollowers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-shh-9-secrets-of-simple-stock-editing/"><u>[New] 2024 Approved Shh! 9 Secrets of Simple Stock Editing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-top-10-drawing-apps-for-android-unleash-your-inner-artist/"><u>[New] Top 10 Drawing Apps for Android Unleash Your Inner Artist</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-mastering-iphone-flipping-and-tilting-photos-perfectly/"><u>[Updated] 2024 Approved Mastering iPhone Flipping & Tilting Photos Perfectly</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-essential-displays-for-picture-perfect-editing-choices-for-2024/"><u>[Updated] Essential Displays for Picture Perfect Editing [Choices] for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-enhance-video-rankings-on-youtube-through-seo/"><u>[Updated] In 2024, How to Enhance Video Rankings on YouTube Through SEO</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-radiant-tone-refactoring-pro/"><u>2024 Approved Radiant Tone Refactoring Pro</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ace-your-films-with-these-top-15-gopro-video-luts-for-2024/"><u>Ace Your Films with These Top 15 GoPro Video LUTs for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Oppo K11 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Lava Yuva 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/inside-story-stock-pictures-and-their-internet-fame-for-2024/"><u>Inside Story Stock Pictures and Their Internet Fame for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unveiling-the-best-vr-game-engines-of-2023/"><u>Unveiling the Best VR Game Engines of 2023</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-rescue-hidden-fb-watch-icon/"><u>[New] In 2024, Rescue Hidden FB Watch Icon</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-lol-gaming-on-air-top-3-recording-methods-for-2024/"><u>[New] LOL Gaming On Air Top 3 Recording Methods for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-integrating-video-content-from-youtube-into-websites-a-comprehensive-guide/"><u>2024 Approved Integrating Video Content From YouTube Into Websites - A Comprehensive Guide</u></a></li>
+<li><a href="https://driver-error.techidaily.com/bring-back-life-to-flawed-usb-serial-devices/"><u>Bring Back Life to Flawed USB-Serial Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/downloading-and-editing-tweets-as-mp3s/"><u>Downloading & Editing Tweets as MP3s</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dramatic-lighting-in-hdr-portrait-photography-for-2024/"><u>Dramatic Lighting in HDR Portrait Photography for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/entertaining-entrances-tales-that-resonate/"><u>Entertaining Entrances Tales That Resonate</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exceptional-phones-topping-list-for-high-definition-video-for-2024/"><u>Exceptional Phones Topping List for High Definition Video for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/freesync-review-the-latest-from-lg-27uhd68-monitor-for-2024/"><u>FreeSync Review The Latest From LG 27UHD68 Monitor for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/freeze-laughs-select-the-best-templates/"><u>Freeze Laughs Select the Best Templates</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gtx-970-performance-improvement-windows-10-version/"><u>GTX 970 Performance Improvement: Windows 10 Version</u></a></li>
+<li><a href="https://win-forum.techidaily.com/leveraging-social-giants-tactics-for-facebook-twitter-instagram-and-youtube-success/"><u>Leveraging Social Giants: Tactics for Facebook, Twitter, Instagram & YouTube Success</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-filmmakers-almanac-of-cinematic-mastery-in-24-for-2024/"><u>The Filmmaker's Almanac of Cinematic Mastery in '24 for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-techniques-to-repair-ntfs-and-fix-ntldr-issues/"><u>Troubleshooting Techniques to Repair NTFS and Fix NTLDR Issues</u></a></li>
 </ul></div>
 

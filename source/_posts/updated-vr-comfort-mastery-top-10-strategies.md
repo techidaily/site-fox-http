@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] VR Comfort Mastery  Top 10 Strategies\""
-date: 2024-09-21T20:52:08.125Z
-updated: 2024-09-22T17:51:40.118Z
+date: 2024-10-02T18:04:54.109Z
+updated: 2024-10-09T17:20:43.326Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/bbe5738e0d8808e6028f714bcae487dd6fc59c525
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -62,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/bbe5738e0d8808e6028f714bcae487dd6fc59c525
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -86,12 +100,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-windows-11-audio-recording-techniques/"><u>[New] 2024 Approved Windows 11 Audio Recording Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-crafting-calm-conclusions-fading-out-audio-effects-in-adobe-premiere-pro/"><u>[New] Crafting Calm Conclusions Fading Out Audio Effects in Adobe Premiere Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-configuring-safe-area-mode-and-pip-in-modern-macos/"><u>[Updated] In 2024, Configuring Safe Area Mode & PIP in Modern MacOS</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-social-media-strategy-the-most-effective-tiktok-hashtags/"><u>[Updated] In 2024, Social Media Strategy The Most Effective TikTok Hashtags</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-peering-through-the-printer-one-persons-3dr-story-for-2024/"><u>[Updated] Peering Through the Printer One Person’s '3DR' Story for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-amplify-iphone-imagery-with-lighting-hacks/"><u>2024 Approved Amplify iPhone Imagery with Lighting Hacks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-no-pocket-money-needed-heres-a-free-solution-to-coffee-stains-in-images/"><u>2024 Approved No Pocket Money Needed? Here’s a FREE Solution to Coffee Stains in Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-synergistic-campaigns-brands-and-youtube-hand-in-hand/"><u>2024 Approved Synergistic Campaigns Brands & YouTube Hand in Hand</u></a></li>
+<li><a href="https://some-skills.techidaily.com/how-to-set-up-a-personal-streaming-station-with-icecast-on-linux/"><u>How to Set Up a Personal Streaming Station with Icecast on Linux</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-vivo-y27-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Vivo Y27 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-spots-for-buying-smartphones-and-mobile-devices-near-you/"><u>Leading Spots for Buying Smartphones and Mobile Devices Near You</u></a></li>
+<li><a href="https://fox-http.techidaily.com/podcasters-playbook-submitting-to-apple-for-2024/"><u>Podcaster's Playbook Submitting to Apple for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/repair-techniques-how-to-address-game-malfunctions-effectively/"><u>Repair Techniques: How To Address Game Malfunctions Effectively</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/troubleshooting-guide-frequently-asked-technical-issues-with-winxdvd-winx-hd-video-converter-by-digiarty/"><u>Troubleshooting Guide: Frequently Asked Technical Issues with WinXDVD-WinX HD Video Converter by Digiarty</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Whole World Capture Vs Increased Depth Perception"
-date: 2024-09-15T18:00:30.204Z
-updated: 2024-09-22T18:22:21.243Z
+date: 2024-10-02T16:00:49.055Z
+updated: 2024-10-09T16:19:52.216Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
 
 ## About 3D or a Stereo Camera
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.What is 3D Camera
 
 ![3D camera](https://images.wondershare.com/filmora/article-images/what-is-3d-camera.jpg)
@@ -57,16 +64,16 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
 
  There are other 3D camera configurations where the camera records an image, then the lens shifts slightly before another image is recorded, all happening within a fraction of a second, to result into two different views. Other 3D cameras on the other hand will use a stitching software to put together all the images to create a three dimensional image.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. How Do 3D Cameras Work
 
 ![3D camera principal](https://images.wondershare.com/filmora/article-images/3d-camera-principle.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  <www.reddit.com>
 
@@ -81,13 +88,26 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
  It is also important to note that most of the 3D cameras take photos or images and save them in the standard MPO format to make it possible for the images to be played back in 3D photo frames or TVs, but to view such images in 3D, a special 3D glass may be needed.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## About 360-Degree Cameras
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1.What is 360-Degree Camera
 
@@ -98,13 +118,6 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
  With the normal cameras, the field of view ranges from a few degrees to at most 180 degrees. It implies that the camera capture light falling into its focal point through a hemisphere. A 360-degree camera on the other hand captures light from all directions falling onto its focal point, thus effectively covering a full sphere. One important thing to note about 360-degree cameras is that in practice, they can only cover the full 360 degrees along the equator of the sphere and this is never the case with the top or the bottom of the sphere. Should it manage to capture the top and the bottom as well, then the light rays captured in the creation of the image will not intersect at one focal point.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -129,5 +142,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-championing-the-leading-gif-apps-on-iphones/"><u>[New] Championing the Leading GIF Apps on iPhones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-immerse-in-digital-spaces-pcs-premier-10-vr-playback-systems-for-2024/"><u>[New] Immerse in Digital Spaces PC’s Premier 10 VR Playback Systems for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-your-complete-breakdown-of-youtube-short-content/"><u>[New] Your Complete Breakdown of YouTube Short Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-joke-junctions-brainstorming-7-hilarious-youtube-storylines/"><u>[Updated] 2024 Approved Joke Junctions Brainstorming 7 Hilarious YouTube Storylines</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-assessing-shooters-choices-hero-5-black-or-km-170/"><u>[Updated] Assessing Shooters' Choices Hero 5 Black or KM-170</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-fusing-melodies-to-visuals-in-virtual-space-for-2024/"><u>[Updated] Fusing Melodies to Visuals in Virtual Space for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-metaverse-enthusiasts-secret-to-simple-avatars/"><u>2024 Approved Metaverse Enthusiasts' Secret to Simple Avatars</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-operational-handling-of-srt-in-oses/"><u>2024 Approved Operational Handling of SRT in OSes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snapchat-voice-tweaks-simple-methods-for-smooth-adjustments/"><u>2024 Approved Snapchat Voice Tweaks Simple Methods for Smooth Adjustments</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-essentials-for-dominating-instagram-stories/"><u>2024 Approved The Essentials for Dominating Instagram Stories</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-issues-with-corsair-hs70-headset-mic-effective-solutions-inside/"><u>Fixing Issues with Corsair HS70 Headset Mic - Effective Solutions Inside</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ensuring-compliance-for-apple-podcast-listing/"><u>In 2024, Ensuring Compliance for Apple Podcast Listing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-nokia-xr21-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Nokia XR21 Device</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-windows-10-essential-knowledge-for-2024/"><u>Mastering Windows 10 Essential Knowledge for 2024</u></a></li>
+</ul></div>
 

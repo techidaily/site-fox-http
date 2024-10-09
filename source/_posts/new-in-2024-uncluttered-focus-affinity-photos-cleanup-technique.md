@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Uncluttered Focus  Affinity Photo's Cleanup Technique\""
-date: 2024-09-16T20:09:02.040Z
-updated: 2024-09-22T18:58:10.993Z
+date: 2024-10-05T16:44:36.626Z
+updated: 2024-10-09T17:04:28.426Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
@@ -56,6 +63,13 @@ Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, 
 Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
@@ -114,6 +128,13 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -124,6 +145,13 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -131,13 +159,6 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -156,10 +177,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -194,5 +215,26 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-advanced-techniques-for-embedding-srt-into-mp4-files/"><u>[New] Advanced Techniques for Embedding SRT Into MP4 Files</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-watching-basketball-with-precision/"><u>[New] The Ultimate Guide Watching Basketball with Precision</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-how-to-take-long-exposure-shots-with-iphone/"><u>[Updated] 2024 Approved How to Take Long Exposure Shots with iPhone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-camera-prospectus-ranking-the-top-5-superior-motion-cameras-for-2024/"><u>[Updated] Camera Prospectus Ranking the Top 5 Superior Motion Cameras for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-film-star-access-pass-talent-release-for-2024/"><u>[Updated] Film Star Access Pass - Talent Release for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-dynamic-shade-adjuster-app/"><u>[Updated] In 2024, Dynamic Shade Adjuster App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-best-ai-naming-assistants-for-podcast-innovation/"><u>[Updated] In 2024, The Best AI Naming Assistants for Podcast Innovation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-sneak-peek-into-facebooks-off-activity-tracking-is-it-safe-in-2024/"><u>[Updated] Sneak Peek Into Facebook's Off-Activity Tracking – Is It Safe, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-step-by-step-for-sports-video-compilation/"><u>[Updated] Step-by-Step for Sports Video Compilation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-quintessential-list-of-top-15-masterpieces-in-stop-motion/"><u>[Updated] The Quintessential List of Top 15 Masterpieces in Stop Motion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-picks-premium-and-economical-bdr-players-for-pcmac-for-2024/"><u>[Updated] Top Picks Premium & Economical BDR Players for PC/Mac for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/discover-the-ultimate-list-of-accessible-turkish-shows-in-2er-featuring-english-dubs-for-non-turkish-speakers-insights/"><u>Discover the Ultimate List of Accessible Turkish Shows in 2Er, Featuring English Dubs for Non-Turkish Speakers - Insights</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/fostering-connection-and-engagement-for-brands-on-tiktok-for-2024/"><u>Fostering Connection and Engagement for Brands on TikTok for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-chucklecraft-suite/"><u>In 2024, ChuckleCraft Suite</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-quick-and-easy-online-photo-cropping-hacks/"><u>In 2024, Quick and Easy Online Photo Cropping Hacks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-data-management-wise-utilization-for-smartphones-and-wi-fi/"><u>Mastering the Art of Data Management: Wise Utilization for Smartphones and Wi-Fi</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premium-15-ultra-mobile-video-devices-for-2024/"><u>Premium 15 Ultra-Mobile Video Devices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/seamless-shifts-revitalizing-vhs-graphics-with-computer-magic-for-2024/"><u>Seamless Shifts Revitalizing VHS Graphics with Computer Magic for 2024</u></a></li>
+</ul></div>
 

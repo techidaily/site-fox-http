@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlocking Photo Magic  The Role of LUTs in Editing\""
-date: 2024-09-11T21:00:08.777Z
-updated: 2024-09-17T22:49:33.720Z
+date: 2024-10-08T16:52:30.525Z
+updated: 2024-10-09T17:42:22.919Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,13 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Choose Adjustment Layer
 
 1. Opt for Color Lookup.
@@ -70,6 +77,13 @@ Choose Adjustment Layer
 3. Select Load 3D LUT. A list of LUTs that come with Photoshop will appear.
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 load 3d lut
 
@@ -85,6 +99,13 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -103,10 +124,10 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -118,13 +139,6 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Closing Thoughts:
 
@@ -154,5 +168,24 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-dash.techidaily.com/download-rtx-2060-super-drivers-for-windows-10-11/"><u>[Download] RTX 2060 SUPER Drivers for Windows 10, 11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2023s-leading-vr-game-development-tools-for-2024/"><u>[New] 2023'S Leading VR Game Development Tools for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-secrecy-in-posts-how-to-oc/"><u>[New] 2024 Approved Secrecy in Posts How to Oc</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-simplified-processes-generating-your-podcasts-rss-feed/"><u>[New] 2024 Approved Simplified Processes Generating Your Podcast's RSS Feed</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-how-to-maximize-your-content-impact-with-imovie-on-vimeo-for-2024/"><u>[New] How to Maximize Your Content Impact with iMovie on Vimeo for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-essential-guidelines-for-choosing-the-right-podcast-name/"><u>[New] In 2024, Essential Guidelines for Choosing the Right Podcast Name</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-exploring-televised-facebook-live-4-strategies-for-2024/"><u>[Updated] Exploring Televised Facebook Live 4 Strategies for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-techniques-in-producing-accelerated-video-narratives/"><u>[Updated] In 2024, Techniques in Producing Accelerated Video Narratives</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-100-working-method-for-adding-link-to-tiktok-bio/"><u>2024 Approved 100% Working Method for Adding Link to TikTok Bio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-vibrant-voices-audible-updates-to-whatsapp/"><u>2024 Approved Vibrant Voices Audible Updates to WhatsApp</u></a></li>
+<li><a href="https://fox-http.techidaily.com/bedtime-tales-in-motion-reviews-of-storytelling-videos-for-2024/"><u>Bedtime Tales in Motion Reviews of Storytelling Videos for 2024</u></a></li>
+<li><a href="https://solve-help.techidaily.com/comment-optimiser-la-resolution-video-4k-et-hd-sur-systemes-windows-et-mac/"><u>Comment Optimiser La Résolution Video 4K Et HD Sur Systèmes Windows Et Mac</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-lava-yuva-2-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Lava Yuva 2 Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-expand-your-youtube-video-footprint/"><u>How to Expand Your YouTube Video Footprint</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-tecno-spark-20-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Tecno Spark 20 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://fox-http.techidaily.com/masterclass-creating-alluring-vlogging-storylines-for-2024/"><u>Masterclass Creating Alluring Vlogging Storylines for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Embracing Time  The Art of Extended iPhone Exposures\""
-date: 2024-09-30T20:33:37.718Z
-updated: 2024-10-03T16:25:41.627Z
+date: 2024-10-04T16:45:54.689Z
+updated: 2024-10-09T18:47:58.158Z
 tags: 
   - screen-recording
   - ai video
@@ -42,11 +42,25 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
 
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image resource: imore
 
@@ -54,23 +68,9 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image resource: iPhoneMod
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Not a user of iOS 11?
 
@@ -112,10 +112,10 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image resource: Digital Photo Secrets
@@ -125,16 +125,10 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image resource: Nikonites
@@ -174,22 +168,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-expert-tips-focusing-on-the-small-web-details-for-2024/"><u>[New] Expert Tips Focusing on the Small Web Details for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-exploring-the-distinctions-of-srgb-and-rgb/"><u>[New] In 2024, Exploring the Distinctions of Srgb and Rgb</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-understanding-your-best-fit-in-virtual-reality-worlds-choosing-between-portable-and-plugged-in-for-2024/"><u>[New] Understanding Your Best Fit in Virtual Reality Worlds Choosing Between Portable and Plugged In for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-covert-story-consumption-5-must-try-apps/"><u>[Updated] 2024 Approved Covert Story Consumption 5 Must-Try Apps</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-meme-magic-for-laughter/"><u>[Updated] 2024 Approved Mastering Meme Magic for Laughter</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-elevating-gameplay-increasing-ram-in-minecraft-for-2024/"><u>[Updated] Elevating Gameplay Increasing RAM in Minecraft for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-in-depth-look-at-lg-27uhd68-4k-sync-technology/"><u>[Updated] In 2024, In-Depth Look at LG 27UHD68, 4K Sync Technology</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-pixelated-pastures-celebrating-rural-games/"><u>[Updated] Pixelated Pastures Celebrating Rural Games</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-uncovering-the-best-unnoticed-speech-to-text-on-mac-for-2024/"><u>[Updated] Uncovering the Best Unnoticed Speech to Text on Mac for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-discover-4-websites-for-seamless-skype-tones/"><u>2024 Approved Discover 4 Websites for Seamless Skype Tones</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-top-essentials-for-enhanced-uav-functionality/"><u>2024 Approved Top Essentials for Enhanced UAV Functionality</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exceptional-book-video-examples/"><u>In 2024, Exceptional Book Video Examples</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-nokia-c32-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Nokia C32 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-top-prospects-animation-enhanced-3d-tools/"><u>In 2024, Top Prospects Animation Enhanced 3D Tools</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-corrections-overcoming-frequent-freezes-in-wwe-games/"><u>Quick Corrections: Overcoming Frequent Freezes in WWE Games</u></a></li>
-<li><a href="https://apple-account.techidaily.com/removing-device-from-apple-id-for-your-apple-iphone-se-by-drfone-ios/"><u>Removing Device From Apple ID For your Apple iPhone SE</u></a></li>
-<li><a href="https://fox-http.techidaily.com/snapshots-and-snickers-the-art-of-memery/"><u>Snapshots and Snickers The Art of Memery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube/"><u>[New] 2024 Approved Assessing the Value of 4-Second Rapid Subscriptions on Youtube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-2023-update-sony-bdp-s3700-in-depth-analysis/"><u>2024 Approved 2023 Update Sony BDP-S3700 in Depth Analysis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-android-hacks-counterclockwise-video-stream/"><u>2024 Approved Android Hacks Counterclockwise Video Stream</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-chat-enhancement-course-turning-your-graphics-into-social-media-stickers/"><u>2024 Approved Chat Enhancement Course Turning Your Graphics Into Social Media Stickers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-essential-guide-to-youtubes-premier-unboxers/"><u>2024 Approved Essential Guide to YouTube's Premier Unboxers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-full-guide-on-speeding-up-facebook-videos-best-extensions-apps-and/"><u>2024 Approved Full Guide on Speeding Up Facebook Videos- Best Extensions, Apps, And</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-set-a-viral-song-as-your-phones-personal-melody/"><u>2024 Approved How To Set a Viral Song as Your Phone's Personal Melody</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-prime-mkv-deck-for-pcandroid-users/"><u>2024 Approved Prime MKV Deck for PC/Android Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-securing-your-scene-minimize-camera-jostle/"><u>2024 Approved Securing Your Scene Minimize Camera Jostle</u></a></li>
+<li><a href="https://fox-http.techidaily.com/action-cam-aesthetics-top-15-high-impact-gopro-lut-choices-for-2024/"><u>Action Cam Aesthetics Top 15 High-Impact GOPRO LUT Choices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/beginners-blueprint-for-speedy-video-on-snapchat-for-2024/"><u>Beginner’s Blueprint for Speedy Video on Snapchat for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723004276678-brighten-up-your-gameplay-fixing-the-dark-mode-bug-in-call-of-duty-wwii-on-windows/"><u>Brighten Up Your Gameplay: Fixing the Dark Mode Bug in Call of Duty: WWII on Windows</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/discovering-efficient-multitasking-with-ffxp/"><u>Discovering Efficient Multitasking with FFXP</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/eradicating-interlacing-issues-in-film-reels/"><u>Eradicating Interlacing Issues in Film Reels</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/improve-office-productivity-with-speech-to-text-conversion-in-microsoft-word-for-2024/"><u>Improve Office Productivity with Speech to Text Conversion in Microsoft Word for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-k11-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo K11 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone XS Max? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-to-newest-hp-network-driver-software-on-windows-11-7-and-8-systems/"><u>Update to Newest HP Network Driver Software on Windows 11, 7, and 8 Systems</u></a></li>
 </ul></div>
 

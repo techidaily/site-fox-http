@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Through the Eyes of One  A Critical Look at '3DR' For 2024\""
-date: 2024-10-03T10:19:57.820Z
-updated: 2024-10-03T23:39:49.015Z
+date: 2024-10-02T16:32:17.394Z
+updated: 2024-10-09T18:11:46.802Z
 tags: 
   - screen-recording
   - ai video
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/c2896db39f882c98719dcfe14e4ab3efb1b4a55af
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -80,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/c2896db39f882c98719dcfe14e4ab3efb1b4a55af
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
@@ -103,10 +103,10 @@ thumbnail: https://thmb.techidaily.com/c2896db39f882c98719dcfe14e4ab3efb1b4a55af
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
@@ -124,10 +124,16 @@ thumbnail: https://thmb.techidaily.com/c2896db39f882c98719dcfe14e4ab3efb1b4a55af
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -155,24 +161,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-accessible-steps-to-proficiently-watch-facebook-live-feeds-for-2024/"><u>[New] Accessible Steps to Proficiently Watch Facebook Live Feeds for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-discovering-superior-software-transformative-voices-for-vtubers/"><u>[New] Discovering Superior Software Transformative Voices for VTubers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-virtual-horizons-redefining-the-movie-experience/"><u>[New] In 2024, Virtual Horizons Redefining the Movie Experience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-tinder-profiles-top-tricks-for-instant-love-interest/"><u>[New] Mastering the Art of Tinder Profiles Top Tricks for Instant Love Interest</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ncover-the-best-12-flipscreen-vlogging-cameras-on-a-budget/"><u>[New] Uncover the Best 12 Flipscreen Vlogging Cameras on a Budget</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-best-free-meme-templates/"><u>[Updated] Best Free Meme Templates</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-ideas-to-enhance-the-visibility-of-fb-ad-videos-for-2024/"><u>[Updated] Ideas to Enhance the Visibility of FB Ad Videos for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-bring-your-text-to-life-techniques-for-3d-design-in-ps/"><u>[Updated] In 2024, Bring Your Text to Life Techniques for 3D Design in PS</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-engineering-a-memorable-trailer-narrative/"><u>[Updated] In 2024, Engineering a Memorable Trailer Narrative</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-a-new-era-for-android-time-lapsing-trends-and-techniques/"><u>2024 Approved A New Era for Android Time-Lapsing Trends & Techniques</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-recommendation-best-websites-to-download-classical-ringtones/"><u>2024 Approved Recommendation Best Websites to Download Classical Ringtones</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-unmatched-downloader-transform-your-tiktok-to-mp4-effortlessly/"><u>2024 Approved Unmatched Downloader Transform Your TikTok to MP4 Effortlessly</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-review-of-the-slim-silver-sealoc-coastal-55-4k-screen-perfect-for-your-outdoor-setup/"><u>A Comprehensive Review of the Slim, Silver Sealoc Coastal 55'' 4K Screen Perfect for Your Outdoor Setup</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-installation-for-your-dell-device-finding-and-applying-wd19-drivers/"><u>Easy Installation for Your Dell Device: Finding and Applying WD19 Drivers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/emulate-action-with-kinetic-blur-effects/"><u>Emulate Action with Kinetic Blur Effects</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-a24-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy A24</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-enhancing-reels-with-harmonious-tunes/"><u>The Ultimate Guide to Enhancing Reels with Harmonious Tunes</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-dvd-region-free-software-compatible-with-windows-10-and-11/"><u>Top DVD Region Free Software Compatible with Windows 10 & 11</u></a></li>
-<li><a href="https://fox-http.techidaily.com/voice-modification-made-simple-a-playbook-for-pubg-enthusiasts/"><u>Voice Modification Made Simple A Playbook for PUBG Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-cheapest-cosmic-storage-service-large-files-on-the-low/"><u>[New] 2024 Approved Cheapest Cosmic Storage Service Large Files on the Low</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-complete-breakdown-hero4-black-functionality/"><u>[New] In 2024, Complete Breakdown Hero4 Black Functionality</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-discovering-if-quick-youtube-subscriptions-really-work/"><u>[New] In 2024, Discovering if Quick YouTube Subscriptions Really Work</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-unveiling-prime-hdr-cameras-a-comprehensive-guide/"><u>[New] In 2024, Unveiling Prime HDR Cameras A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-lightning-fast-visualization-for-win11-users-for-2024/"><u>[New] Lightning-Fast Visualization for Win11 Users for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-list-for-first-time-film-makers-35mm-to-pands/"><u>[New] The Ultimate List for First-Time Film Makers (35Mm to P&S)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elevate-your-package-prelude/"><u>[Updated] 2024 Approved Elevate Your Package Prelude</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-expedited-pitch-modification-tools-repository/"><u>[Updated] Expedited Pitch Modification Tools Repository</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-rank-the-top-free-tools-convert-srt-files-efficiently/"><u>[Updated] In 2024, Rank the Top Free Tools Convert Srt Files Efficiently</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-tutorial-for-posting-pics-on-ig/"><u>[Updated] The Ultimate Tutorial for Posting Pics on IG</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/crafting-windows-layouts-with-a-macos-vibe-using-these-5-techniques/"><u>Crafting Windows Layouts with a MacOS Vibe Using These 5 Techniques</u></a></li>
+<li><a href="https://windows11.techidaily.com/decrease-resource-load-managing-news-app-consumption/"><u>Decrease Resource Load: Managing News App Consumption</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-6s-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 6s to other iPhone 12 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/seamless-setup-linking-ps-move-controllers-to-a-windows-or-mac-pc/"><u>Seamless Setup: Linking PS Move Controllers to a Windows or Mac PC</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/setting-up-facebook-live-your-roku-route/"><u>Setting Up Facebook LIVE Your Roku Route</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/speeding-up-your-battlenet-game-downloads-on-pc/"><u>Speeding Up Your Battle.net Game Downloads on PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/unlocking-the-secrets-of-pubg-sound-personalization-for-2024/"><u>Unlocking the Secrets of PUBG Sound Personalization for 2024</u></a></li>
 </ul></div>
 

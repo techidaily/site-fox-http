@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Syma X8C Performance Breakdown for 2024"
-date: 2024-09-14T20:33:11.310Z
-updated: 2024-09-17T22:40:36.883Z
+date: 2024-10-07T17:24:01.430Z
+updated: 2024-10-09T17:57:42.382Z
 tags: 
   - screen-recording
   - ai video
@@ -78,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/4c1fc861d688eb17793358701272fcb990bfc9516
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -94,6 +101,13 @@ thumbnail: https://thmb.techidaily.com/4c1fc861d688eb17793358701272fcb990bfc9516
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
@@ -102,11 +116,31 @@ thumbnail: https://thmb.techidaily.com/4c1fc861d688eb17793358701272fcb990bfc9516
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -131,18 +165,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-from-channels-to-champions-leveraging-lingo-in-telegram-marketing/"><u>[New] 2024 Approved From Channels to Champions Leveraging Lingo in Telegram Marketing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-lgs-ultrafine-4k-display-unpacked-a-detailed-analysis-for-2024/"><u>[New] LG's UltraFine 4K Display Unpacked A Detailed Analysis for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-through-the-top-8-blended-mobile-video-collage-choices-on-android-for-2024/"><u>[New] Navigating Through the Top 8 Blended Mobile Video Collage Choices on Android for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-breaking-down-the-secrets-of-impactful-asmr-video-creation/"><u>[Updated] 2024 Approved Breaking Down the Secrets of Impactful ASMR Video Creation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-ideal-tools-for-creating-animation-with-models/"><u>[Updated] 2024 Approved Ideal Tools for Creating Animation with Models</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-10-high-quality-photography-lenses/"><u>[Updated] 2024 Approved Top 10 High-Quality Photography Lenses</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-embedding-youtube-videos-seamlessly-into-stories-for-2024/"><u>[Updated] Embedding YouTube Videos Seamlessly Into Stories for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-declutter-your-visuals-learn-background-removal-with-photopea/"><u>[Updated] In 2024, Declutter Your Visuals Learn Background Removal with Photopea</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-immersive-12-video-streaming-solution-online/"><u>[Updated] In 2024, Immersive 12-Video Streaming Solution Online</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-shedding-light-techniques-for-improving-youtube-video-quality/"><u>[Updated] Shedding Light Techniques for Improving YouTube Video Quality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-snapshotsculptor-ultimate-photo-mosaic-builder/"><u>[Updated] SnapshotSculptor Ultimate Photo Mosaic Builder</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unleashing-full-potential-phone-and-gear-vr-harmony/"><u>[Updated] Unleashing Full Potential Phone and Gear VR Harmony</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-efforts-crafting-perfect-titles/"><u>2024 Approved Top 5 Efforts Crafting Perfect Titles</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-from-iphone-15-plus-or-ipad-by-drfone-ios/"><u>How to Bypass Activation Lock from iPhone 15 Plus or iPad?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-record-good-audio-without-a-microphone-in-2024/"><u>How to Record Good Audio Without a Microphone, In 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-solve-the-system-error-issue-on-various-windows-versions-windows-1078/"><u>How to Solve the 'System Error ❌' Issue on Various Windows Versions (Windows 10/7/8)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/invisible-online-presence-a-step-by-step-tutorial-for-private-mode-on-chrome-edge-firefox-safari-and-opera/"><u>Invisible Online Presence: A Step-by-Step Tutorial for Private Mode on Chrome, Edge, Firefox, Safari, and Opera</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-new-journey-begins-with-launch-of-go-model/"><u>Portal’s New Journey Begins with Launch of Go Model</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-wi-fi-protocols-a-guide-to-the-latest-80211-technologies-be-ax-ac-bgn-and-a/"><u>Understanding Wi-Fi Protocols: A Guide to the Latest 802.11 Technologies (Be, Ax, Ac, B/G/N, and A)</u></a></li>
+</ul></div>
 

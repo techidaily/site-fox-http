@@ -1,7 +1,7 @@
 ---
 title: "[New] The Journey From Photo Album to Video Storyboard for 2024"
-date: 2024-09-20T18:26:21.454Z
-updated: 2024-09-22T20:26:42.183Z
+date: 2024-10-04T16:47:13.904Z
+updated: 2024-10-09T18:46:21.763Z
 tags: 
   - screen-recording
   - ai video
@@ -91,11 +91,31 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3\. Edit the video
 
@@ -126,6 +146,13 @@ That’s it! After making all the changes, you can preview your video on the rig
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## More Editing Tips for Creating Memorable Videos
 
@@ -159,6 +186,13 @@ There you go! I’m sure that after reading this guide, you would be able to dig
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -182,12 +216,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transforming-photos-into-videos-an-experts-complete-tutorial-series/"><u>[New] In 2024, Transforming Photos Into Videos An Expert's Complete Tutorial Series</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unlocking-the-secrets-to-smooth-imports-in-windows-10-os/"><u>[New] Unlocking the Secrets to Smooth Imports in Windows 10 OS</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-from-basic-to-brilliant-top-100plus-biographies-that-captivate-audiences/"><u>[Updated] From Basic to Brilliant Top 100+ Biographies that Captivate Audiences</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-discovering-income-monetization-through-youtube-sponsored-videos/"><u>2024 Approved Discovering Income Monetization Through YouTube Sponsored Videos?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fpv-mastery-with-top-5-hmds-for-drones/"><u>2024 Approved FPV Mastery with Top 5 HMDs for Drones</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-spectral-skillset-professionals-pathway-to-change/"><u>2024 Approved Spectral Skillset Professionals' Pathway to Change</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-gpts-role-in-academic-endeavors/"><u>Exploring GPT's Role in Academic Endeavors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-compose-your-story-best-mobile-annotation-tools/"><u>In 2024, Compose Your Story Best Mobile Annotation Tools</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-how-to-upload-tiktok-videos-on-chromeandroidiphone/"><u>In 2024, How to Upload Tiktok Videos on Chrome/Android/iPhone?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-perfecting-the-green-screen-essential-techniques/"><u>In 2024, Perfecting the Green Screen Essential Techniques</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-the-experts-selection-of-windows-compatible-noise-cancellation-applications/"><u>In 2024, The Experts Selection of Windows-Compatible Noise Cancellation Applications</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/razer-kraken-microphone-issues-resolved-tips-for-getting-your-sound-back-on-track/"><u>Razer Kraken Microphone Issues Resolved: Tips for Getting Your Sound Back On Track</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolve-msi-webcam-woes-comprehensive-tips-and-tricks-for-optimal-performance-in-2eo/"><u>Resolve MSI Webcam Woes: Comprehensive Tips and Tricks for Optimal Performance in 2Eo</u></a></li>
+</ul></div>
 

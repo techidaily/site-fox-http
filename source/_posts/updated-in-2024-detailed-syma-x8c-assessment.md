@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Detailed Syma X8C Assessment"
-date: 2024-09-27T17:40:04.558Z
-updated: 2024-10-04T11:41:06.444Z
+date: 2024-10-04T16:38:05.816Z
+updated: 2024-10-09T19:04:30.310Z
 tags: 
   - screen-recording
   - ai video
@@ -61,10 +61,16 @@ thumbnail: https://thmb.techidaily.com/c47546ef14b433a853f147293a1e027910647d2b3
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -101,13 +107,6 @@ thumbnail: https://thmb.techidaily.com/c47546ef14b433a853f147293a1e027910647d2b3
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
@@ -115,13 +114,26 @@ thumbnail: https://thmb.techidaily.com/c47546ef14b433a853f147293a1e027910647d2b3
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -130,10 +142,16 @@ thumbnail: https://thmb.techidaily.com/c47546ef14b433a853f147293a1e027910647d2b3
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -161,22 +179,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-professional-picks-the-best-video-cams-year/"><u>[New] 2024 Approved Professional Picks The Best Video Cams Year</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/oost-visibility-selecting-the-right-youtube-thumbnail-dimensions-for-2024/"><u>[New] Boost Visibility Selecting the Right YouTube Thumbnail Dimensions for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-data-delivery-blueprints-quick-tips-for-file-moves-for-2024/"><u>[New] Data Delivery Blueprints Quick Tips for File Moves for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-essential-list-best-microphones-for-4k-ultra-hd-for-2024/"><u>[New] Essential List Best Microphones for 4K Ultra HD for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-telegram-web-navigation/"><u>[New] Mastering the Art of Telegram Web Navigation</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-unveiling-stardew-valleys-most-innovative-game-updates/"><u>[Updated] 2024 Approved Unveiling Stardew Valley's Most Innovative Game Updates</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-boosting-video-engagement-using-zooms-snap-feature-for-2024/"><u>[Updated] Boosting Video Engagement Using Zoom's Snap Feature for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-elevate-your-audio-mastery-with-expert-audacity-usage/"><u>[Updated] In 2024, Elevate Your Audio Mastery with Expert Audacity Usage</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-blueprint-of-successful-video-endorsements/"><u>[Updated] In 2024, The Blueprint of Successful Video Endorsements</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-intimate-perspectives-with-team-zooms/"><u>[Updated] Intimate Perspectives with Team Zooms</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-leap-into-the-spotlight-with-tiktok-lives/"><u>[Updated] Leap Into the Spotlight with TikTok Lives</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-ultimate-screeners-guide-to-8-choices-for-2024/"><u>[Updated] Ultimate Screener's Guide to 8 Choices for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-animators-dream-tools-premium-choices-for-3d-mastery/"><u>2024 Approved The Animator’s Dream Tools Premium Choices for 3D Mastery</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/1716475411284-in-2024-triller-vs-tiktok-similarities-and-differences-a-complete-guide/"><u>In 2024, Triller Vs. TikTok - Similarities & Differences - a Complete Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/lenovo-x1-carbon-driver-downloads-compatible-with-both-windows-10-and-7-systems-quick-setup-instructions/"><u>Lenovo X1 Carbon Driver Downloads: Compatible with Both Windows 10 and 7 Systems - Quick Setup Instructions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/mixer-connectivity-seamless-live-broadcast-on-macos-for-2024/"><u>Mixer Connectivity Seamless Live Broadcast on macOS for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-blueprint-for-crafting-standout-podcast-titles-and-name-samples/"><u>[New] The Ultimate Blueprint for Crafting Standout Podcast Titles & Name Samples</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-the-magic-of-ar-mastering-lut-applications/"><u>[New] Unveiling the Magic of AR Mastering LUT Applications</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-mac-users-manual-recording-high-quality-audio-with-audacity/"><u>[Updated] Mac Users' Manual Recording High-Quality Audio with Audacity</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-creative-content-for-fb-video-advertising/"><u>2024 Approved Mastering Creative Content for Fb Video Advertising</u></a></li>
+<li><a href="https://fox-http.techidaily.com/enriching-room-atmosphere-with-natures-radiant-energy-for-2024/"><u>Enriching Room Atmosphere with Nature's Radiant Energy for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/expert-tips-for-superior-4k-visual-quality-with-gear-for-2024/"><u>Expert Tips for Superior 4K Visual Quality with Gear for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-asuss-mg28uq-a-deep-dive-into-4k-uxga-for-2024/"><u>Exploring ASUS's MG28UQ - A Deep Dive Into 4K UXGA for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/film-and-media-professionals-top-windows-edits-picks/"><u>Film & Media Professionals' Top Windows Edits Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/grateful-choices-comprehensive-otu-guide/"><u>Grateful Choices Comprehensive OTU Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-iphone-xr-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From iPhone XR in the Best Ways</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-asus-rog-phone-7-ultimate-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Asus ROG Phone 7 Ultimate FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-xs-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone XS Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-xiaomi-redmi-12-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Xiaomi Redmi 12 5G? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

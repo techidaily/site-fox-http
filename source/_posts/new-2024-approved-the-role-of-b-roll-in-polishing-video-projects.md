@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Role of B-Roll in Polishing Video Projects\""
-date: 2024-09-30T06:33:29.229Z
-updated: 2024-10-04T04:26:09.001Z
+date: 2024-10-05T17:33:54.819Z
+updated: 2024-10-09T16:44:57.791Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,19 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -58,32 +71,25 @@ Aerial B roll is the solution when you like to show your viewers where your film
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -91,13 +97,6 @@ This particular kind of B roll film is captured without any direction being give
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -108,6 +107,13 @@ If flaws were discovered during primary photography, the directors could have re
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,16 +149,20 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-bridging-audio-artistry-in-visual-formats/"><u>[New] 2024 Approved Bridging Audio Artistry in Visual Formats</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-understanding-and-leveraging-telegram-browser-features/"><u>[New] In 2024, Understanding and Leveraging Telegram Browser Features</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-step-in-the-journey-to-mastering-discord-text-styles-for-2024/"><u>[New] Step-In The Journey to Mastering Discord Text Styles for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-codec-clash-determining-the-leader-in-video-quality/"><u>[Updated] 2024 Approved Codec Clash Determining the Leader in Video Quality</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-guide-to-add-motion-blur-to-photos-in-adobe-illustrator/"><u>[Updated] Guide to Add Motion Blur to Photos in Adobe Illustrator</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-streamlined-shooting-essential-gimbals-and-handhelds-reviewed/"><u>2024 Approved Streamlined Shooting Essential Gimbals and Handhelds Reviewed</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/champion-steadicams-for-uav-filmmaking-excellence-for-2024/"><u>Champion Steadicams for UAV Filmmaking Excellence for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/for-every-level-of-filmmaker-our-top-10-camera-picks/"><u>For Every Level of Filmmaker, Our Top 10 Camera Picks</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-motorola-moto-g14-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Motorola Moto G14 to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-apple-id-and-apple-password-on-apple-iphone-6s-by-drfone-ios/"><u>In 2024, How to Reset Apple ID and Apple Password On Apple iPhone 6s</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unveiling-the-key-distinctions-between-macs-and-pcs-a-comprehensive-insight/"><u>Unveiling the Key Distinctions Between Macs & PCs: A Comprehensive Insight</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-photography-fundamentals-tips-and-apps-for-android/"><u>[New] 2024 Approved Photography Fundamentals Tips & Apps for Android</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-sculpting-the-digital-experience-through-zooming/"><u>[New] 2024 Approved Sculpting the Digital Experience Through Zooming</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-essential-tools-for-perfect-images/"><u>[New] In 2024, Essential Tools for Perfect Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-how-to-write-a-hit-podcast-script-10plus-examples-revealed/"><u>[New] In 2024, How to Write a Hit Podcast Script (10+ Examples Revealed)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unleash-creativity-pivotal-pixlr-editing-strategies/"><u>[Updated] 2024 Approved Unleash Creativity Pivotal Pixlr Editing Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-inject-narratives-into-your-videography-windows-photos-title-addition/"><u>[Updated] How to Inject Narratives Into Your Videography Windows Photos Title Addition</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-minimca-houses-best-abode-guides-for-new-players-for-2024/"><u>[Updated] MiniMCA Houses Best Abode Guides for New Players for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-snapshots-of-success-jake-pauls-youtube-milestones/"><u>2024 Approved Snapshots of Success Jake Paul’s YouTube Milestones</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/find-and-install-updated-drivers-for-your-toshiba-dynabook-on-windows-computers/"><u>Find and Install Updated Drivers for Your Toshiba Dynabook on Windows Computers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ace-your-phone-the-ios-podcast-downloading-guidebook/"><u>In 2024, Ace Your Phone The iOS Podcast Downloading Guidebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-s23-fe-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy S23 FE to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-updated-sony-s3700-bd-review-2023/"><u>In 2024, Updated Sony S3700 BD REVIEW 2023</u></a></li>
+<li><a href="https://fox-that.techidaily.com/quick-solution-getting-expert-tech-advice-on-your-iphone-using-the-apple-assistance-app/"><u>Quick Solution: Getting Expert Tech Advice on Your iPhone Using the Apple Assistance App</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-video-input-not-found-step-by-step-tutorial-for-a-working-display/"><u>Solving Video Input Not Found – Step-by-Step Tutorial for a Working Display</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-art-of-online-podcast-filming-for-2024/"><u>The Art of Online Podcast Filming for 2024</u></a></li>
 </ul></div>
 

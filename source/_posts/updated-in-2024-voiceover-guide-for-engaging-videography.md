@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Voiceover Guide for Engaging Videography"
-date: 2024-09-26T23:57:47.205Z
-updated: 2024-10-04T09:29:56.455Z
+date: 2024-10-03T19:05:08.319Z
+updated: 2024-10-09T18:25:37.095Z
 tags: 
   - screen-recording
   - ai video
@@ -50,10 +50,10 @@ But here's the good news: the way you add either option is the same in Filmora.
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add narration
@@ -69,10 +69,10 @@ You put the playhead where you want to start recording and hit the microphone ic
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
@@ -91,6 +91,13 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -99,27 +106,26 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
 
@@ -159,20 +165,17 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-free-screen-recorder-for-android/"><u>[New] In 2024, Free Screen Recorder for Android</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-incorporate-movies-into-your-youtube-collection/"><u>[New] In 2024, Incorporate Movies Into Your YouTube Collection</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/aximizing-youtube-gaming-income-for-2024/"><u>[New] Maximizing YouTube Gaming Income for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-navigating-lut-integration-in-adobe-ae/"><u>[New] Navigating LUT Integration in Adobe AE</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-prime-picture-selections-captivating-live-viewing/"><u>[Updated] 2024 Approved Prime Picture Selections Captivating Live Viewing</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-mastering-aspect-ratios-for-professional-videos/"><u>[Updated] In 2024, Mastering Aspect Ratios for Professional Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-premium-choices-the-very-best-tripods-for-high-definition-shooting/"><u>[Updated] In 2024, Premium Choices The Very Best Tripods for High Definition Shooting</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-essential-tips-for-premiere-pros-full-screen-mode/"><u>2024 Approved Essential Tips for Premiere Pro's Full Screen Mode</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-re-tune-your-ps5ps4-voice-settings-easily/"><u>2024 Approved Re-Tune Your PS5/PS4 Voice Settings Easily</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-assessment-of-samsung-galaxy-note-9-ahead-in-the-race-for-best-large-phones/"><u>Expert Assessment of Samsung Galaxy Note 9: Ahead in the Race for Best Large Phones</u></a></li>
-<li><a href="https://fox-http.techidaily.com/explore-the-most-reliable-photo-background-alternation-apps-for-2024/"><u>Explore the Most Reliable Photo-Background Alternation Apps for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-oppo-k11-5g-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Oppo K11 5G Phone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-premiere-samsung-gear-vr-playlist/"><u>In 2024, Premiere Samsung Gear VR Playlist</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-poco-c50-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Poco C50 Device</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-operation-prompts-easily-navigate-administrator-privileges-on-your-computers-operating-system/"><u>Solving Operation Prompts: Easily Navigate Administrator Privileges on Your Computer's Operating System</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-lightning-loop-top-10-agile-games-on-mobilepc-for-2024/"><u>[Updated] Lightning Loop Top 10 Agile Games on Mobile/PC for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-superior-mkv-player-pcandroid-experience/"><u>[Updated] Superior MKV Player PC/Android Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-a-streamlined-approach-to-using-azures-transcription-technology/"><u>2024 Approved A Streamlined Approach to Using Azure's Transcription Technology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-engage-users-through-creative-animation-insta-story-tips/"><u>2024 Approved Engage Users Through Creative Animation Insta-Story Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-innovate-your-visual-narrative-the-10-best-text-upgrades/"><u>2024 Approved Innovate Your Visual Narrative - The 10 Best Text Upgrades</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-social-media-sphere-speaking-up-to-fans/"><u>2024 Approved The Social Media Sphere Speaking Up to Fans</u></a></li>
+<li><a href="https://fox-links.techidaily.com/deciphering-streamer-dominance-twitch-vs-youtube-showdown/"><u>Deciphering Streamer Dominance Twitch vs YouTube Showdown</u></a></li>
+<li><a href="https://fox-http.techidaily.com/discover-sj7s-breakthrough-in-high-definition-4k-action-cameras/"><u>Discover SJ7’s Breakthrough in High-Definition 4K Action Cameras</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Realme 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-pantheon-of-popularity-reddits-top-10-posts/"><u>The Pantheon of Popularity Reddit's Top 10 Posts</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/top-video-transcoding-solutions-superior-alternatives-to-zamzar/"><u>Top Video Transcoding Solutions: Superior Alternatives to Zamzar</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-features-of-the-spacious-acer-chromebook-15-in-this-comprehensive-overview/"><u>Unveiling the Features of the Spacious Acer Chromebook 15 in This Comprehensive Overview</u></a></li>
 </ul></div>
 

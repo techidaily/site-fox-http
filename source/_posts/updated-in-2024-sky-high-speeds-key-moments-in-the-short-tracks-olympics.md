@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Sky-High Speeds  Key Moments in the Short Tracks, Olympics\""
-date: 2024-09-30T06:17:06.680Z
-updated: 2024-10-04T04:21:08.282Z
+date: 2024-10-08T19:06:40.368Z
+updated: 2024-10-09T18:08:09.305Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -60,45 +60,31 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -132,6 +118,13 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -141,6 +134,13 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,21 +165,22 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-elite-e-commerce-outposts-your-ultimate-gift-enclosure-hub/"><u>[New] 2024 Approved Elite E-Commerce Outposts Your Ultimate Gift Enclosure Hub</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-into-virtual-realms-assessing-current-progress-future-hurdles/"><u>[New] 2024 Approved Into Virtual Realms Assessing Current Progress, Future Hurdles</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-8-stabilizers-optimal-tools-for-4k-camera-shooting/"><u>[New] 2024 Approved Top 8 Stabilizers Optimal Tools for 4K Camera Shooting</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-giggle-guides-essential-websites-for-humorous-ringtones/"><u>[New] In 2024, Giggle Guides Essential Websites for Humorous Ringtones</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-graphical-forecast-the-dominant-23-social-themes/"><u>[Updated] 2024 Approved Graphical Forecast The Dominant '23 Social Themes</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-premium-10-drones-capturing-images-and-films/"><u>[Updated] 2024 Approved Premium 10 Drones Capturing Images & Films</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-recording-your-browsers-video-call/"><u>[Updated] In 2024, Recording Your Browser's Video Call</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-maximizing-your-potential-is-a-joined-force-right-for-you/"><u>[Updated] Maximizing Your Potential Is a Joined Force Right for You?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-advancing-your-slow-motion-footage-using-gopro-hero-10/"><u>2024 Approved Advancing Your Slow-Motion Footage Using GoPro Hero 10</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-vivo-y56-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Vivo Y56 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/diversifying-outreach-with-deft-multi-group-social-media-techniques/"><u>Diversifying Outreach with Deft Multi-Group Social Media Techniques</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/elevate-your-storytelling-easy-video-creation-with-ezvid-on-mac-for-2024/"><u>Elevate Your Storytelling Easy Video Creation with Ezvid on Mac for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/from-novice-to-expert-the-complete-powerdirector-journey/"><u>From Novice to Expert The Complete PowerDirector Journey</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-elevate-your-mac-broadcast-top-5-live-streaming-applications/"><u>In 2024, Elevate Your Mac Broadcast Top 5 Live Streaming Applications</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-oppo-find-x7-ultra-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Oppo Find X7 Ultra FRP Bypass</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-best-gopro-hero5-black-batteries-and-chargers-official-and-3rd-party-for-2024/"><u>The Best GoPro Hero5 Black Batteries and Chargers Official and 3Rd Party for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-efficiently-extracting-twitters-visual-jokes-gifs/"><u>[New] 2024 Approved Efficiently Extracting Twitter's Visual Jokes (GIFs)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-becoming-a-youtube-pro-the-ultimate-picture-post-guide/"><u>2024 Approved Becoming a YouTube Pro The Ultimate Picture Post Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-djis-minis-and-air-2-free-fun-luts-for-ultimate-mixes/"><u>2024 Approved DJI's Minis & Air 2 Free, Fun LUTS for Ultimate Mixes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-earnings-trends-in-the-digital-audio-space/"><u>2024 Approved Earnings Trends in the Digital Audio Space</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-full-mobility-examination-2023/"><u>2024 Approved Full Mobility Examination 2023</u></a></li>
+<li><a href="https://fox-http.techidaily.com/breathless-battles-olympic-short-track-for-2024/"><u>Breathless Battles Olympic Short Track for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/co-creating-video-marketing-with-brand-participants/"><u>Co-Creating Video Marketing with Brand Participants</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comparing-ai-models-understanding-gpt-4-gpt-nturbo-and-gpt-phi-variants/"><u>Comparing AI Models: Understanding GPT-4, GPT-nTurbo & GPT-Phi Variants</u></a></li>
+<li><a href="https://fox-http.techidaily.com/converting-gifs-into-stickers-complete-step-by-step-tutorial-for-2024/"><u>Converting GIFs Into Stickers – Complete Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/crafting-engaging-youtube-content-mastering-the-art-of-writing-scripts-with-chatgpt/"><u>Crafting Engaging YouTube Content: Mastering the Art of Writing Scripts with ChatGPT</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/cumulative-community-capture-for-2024/"><u>Cumulative Community Capture for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/delving-into-the-nuances-of-touch-based-navigation/"><u>Delving Into the Nuances of Touch-Based Navigation</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-copy-contacts-from-apple-iphone-7-to-sim-drfone-by-drfone-transfer-from-ios/"><u>How to Copy Contacts from Apple iPhone 7 to SIM? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-11-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone 11 without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/making-a-cost-benran-analysis-on-mesh-networks/"><u>Making a Cost-Benran Analysis on Mesh Networks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/winning-back-lossed-rendering-support-in-overwatch-2/"><u>Winning Back Lossed Rendering Support in Overwatch 2</u></a></li>
 </ul></div>
 

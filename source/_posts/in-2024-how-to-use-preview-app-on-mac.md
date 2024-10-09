@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Use Preview App on Mac"
-date: 2024-09-16T20:25:19.705Z
-updated: 2024-09-17T21:33:19.309Z
+date: 2024-10-03T18:04:16.169Z
+updated: 2024-10-09T17:44:51.990Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -69,13 +76,6 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -92,6 +92,13 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -103,6 +110,13 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -119,13 +133,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 **Step 3: Format the Text**
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
 
@@ -171,13 +178,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -212,6 +212,13 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -235,5 +242,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-fixed-eclipsed-youtube-short-video/"><u>[Updated] Fixed Eclipsed YouTube Short Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-key-frames-per-second-in-superior-slow-motion-imaging/"><u>2024 Approved Key Frames per Second in Superior Slow Motion Imaging</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-pivotal-user-feedback-a-look-at-vllo/"><u>2024 Approved Pivotal User Feedback A Look at VLLO</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premium-20-free-to-use-pubg-image-arrays/"><u>2024 Approved Premium 20 Free-to-Use PUBG Image Arrays</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unplug-and-replay-twitch-livestream-techniques/"><u>2024 Approved Unplug and Replay Twitch Livestream Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-the-apple-podcast-submission-process/"><u>2024 Approved Unveiling the Apple Podcast Submission Process</u></a></li>
+<li><a href="https://fox-http.techidaily.com/avoiding-unwanted-shaking-in-dynamic-gopro-footage-for-2024/"><u>Avoiding Unwanted Shaking in Dynamic GoPro Footage for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/decode-audio-formats-your-complete-srt-to-other-file-guide/"><u>Decode Audio Formats Your Complete SRT to Other File Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-samsung-galaxy-a14-5g-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Samsung Galaxy A14 5G</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-14-pro-to-samsung-simplified-guide-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer From Apple iPhone 14 Pro to Samsung Simplified Guide | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solving-roblox-pc-error-277-top-2024-tricks-and-fixes/"><u>Solving Roblox PC Error 277: Top 2024 Tricks and Fixes</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Dive Deep Into the World of Text Animation  Top 14 Samples\""
-date: 2024-10-02T20:15:35.641Z
-updated: 2024-10-04T06:33:46.273Z
+date: 2024-10-08T16:01:23.624Z
+updated: 2024-10-09T18:53:09.508Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,13 @@ Fade in and fade out text animation is extremely common in videos where the text
 
 You must have noticed the sliding text animation in videos where facts and figures are shown on the video. The sliding text animation generally slides into the video frame from a border or a stripe. Thereafter, it vanishes into the border or the stripe from where it originated. Sometimes, the text slides in from the right and sits in a fixed highlighted box, and slides out eventually.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Text breaks away animation
 
 There are different variations of text breaks away animation but it is one of the most visually appealing text animations. That text appears on the video and it shatters and disappears. Sometimes, the text turns into dust after shattering like a glass. This text effect cum animation is highly impactful in getting the attention of the viewers immediately.
@@ -70,13 +77,6 @@ There are different variations of text breaks away animation but it is one of th
 ### 5\. Typing text animation
 
 Referred to as typewriter text animation as well, the characters in a word or sentence appear on the screen one by one as if someone is typing it in real-time. There is always a cursor blinking at the end of the character and it shifts with the appearance of the words and sentences. Instead of showing words or sentences all at once, showing text as if someone is typing it on the screen is more visually pleasing.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Horizontal and vertical scrolling text
 
@@ -98,13 +98,6 @@ Generally, in a slide out text animation, the text comes out of a border and the
 
 ![combined slide out animation](https://images.wondershare.com/filmora/article-images/2022/09/combined-slide-out-animation.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. The Stomp Animation
 
 The stomp effect is quite eye-catching due to its dynamic nature. In this animation, the words come out from another word till the entire sentence is displayed. For example, you have a sentence of four words to display. So, you should show the first word and the second word will come out of the first word and the sequence will continue. If you have two words, you can show them coming out of one another from the middle.
@@ -112,10 +105,10 @@ The stomp effect is quite eye-catching due to its dynamic nature. In this animat
 ![the stomp animation](https://images.wondershare.com/filmora/article-images/2022/09/the-stomp-animation.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. The Curtain Animation
@@ -136,6 +129,13 @@ This is one of the most popular GSAP text animation examples whereby you display
 
 ![animated text fill effect](https://images.wondershare.com/filmora/article-images/2022/09/animated-text-fill-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Neon Light Animation
 
 There are different variations of neon light animation that cool super cool. You can go for the simple neon light animation where the text says still and the neon lights fade in and out. You can change the color of the lights if you plan to keep the text for some time. If you are using a large text, you can go for the modified neon light animation where you can shine in and out for individual characters and the lights could be flickering.
@@ -147,6 +147,13 @@ There are different variations of neon light animation that cool super cool. You
 Instead of bringing the entire sentence into focus, you can use a square box to run over the sentence and bring the focus on the words depending on the position of the square box. The animation is highly effective in getting the viewers to read the sentence and get the message.
 
 ![in and out focus text effect](https://images.wondershare.com/filmora/article-images/2022/09/in-and-out-focus-text-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. How to Make a Text Animation Video
 
@@ -168,23 +175,9 @@ Step3 Go to Titles and you will get to see all the different categories of text 
 
 ![search animation title filmora](https://images.wondershare.com/filmora/article-images/2022/09/search-animation-title-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Reposition the text layer as per your preference and you can also reposition the text objects from Viewer. Double-click on the text layer to type in your desired text.
 
 ![edit preset animation filmora](https://images.wondershare.com/filmora/article-images/2022/09/edit-preset-animation-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -233,10 +226,10 @@ Last but not least, the vertical scrolling text effect is extremely common for o
 You should always keep the basic and the common types of text animations in mind and come up with interesting and creative text animations. We are listing down some popular text animation examples that you can use on your video.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Morphing Text Animation
@@ -244,6 +237,13 @@ You should always keep the basic and the common types of text animations in mind
 When there are multiple words to display one by one, instead of fade in and fade out effect, you can opt for morphing text animation. In this animation, the words seem to get morphed into one another. So, the first word will morph into the second word for the second word to appear on the screen and the sequence continues. The animation can be done fast to showcase multiple words in a short time period.
 
 ![morphing text animation](https://images.wondershare.com/filmora/article-images/2022/09/morphing-text-animation.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Combined Slide Out Animation
 
@@ -275,6 +275,13 @@ This is one of the most popular GSAP text animation examples whereby you display
 
 ![animated text fill effect](https://images.wondershare.com/filmora/article-images/2022/09/animated-text-fill-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Neon Light Animation
 
 There are different variations of neon light animation that cool super cool. You can go for the simple neon light animation where the text says still and the neon lights fade in and out. You can change the color of the lights if you plan to keep the text for some time. If you are using a large text, you can go for the modified neon light animation where you can shine in and out for individual characters and the lights could be flickering.
@@ -282,10 +289,10 @@ There are different variations of neon light animation that cool super cool. You
 ![neon light animation](https://images.wondershare.com/filmora/article-images/2022/09/neon-light-animation.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. In and Out of Focus Text Effect
@@ -313,13 +320,6 @@ Step2 if you do not have any background video, you can select from stock backgro
 Step3 Go to Titles and you will get to see all the different categories of text animation templates from the left panel. Search for “animation” and you will get all the stunning text animation templates. Drag and drop any of them onto the timeline above the background layer.
 
 ![search animation title filmora](https://images.wondershare.com/filmora/article-images/2022/09/search-animation-title-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Reposition the text layer as per your preference and you can also reposition the text objects from Viewer. Double-click on the text layer to type in your desired text.
 
@@ -353,18 +353,22 @@ We have discussed all the common type of text animations that are used to create
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-capture-and-replay-screen-recording-for-instagram-stories/"><u>[New] 2024 Approved Capture and Replay Screen Recording for Instagram Stories</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-explore-top-picks-for-high-resolution-4k-panels/"><u>[New] In 2024, Explore Top Picks for High-Resolution 4K Panels</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-high-definition-gameplay-capture-mastery/"><u>[Updated] 2024 Approved High-Definition Gameplay Capture Mastery</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-understanding-the-role-and-impact-of-b-roll-in-editing/"><u>[Updated] 2024 Approved Understanding the Role and Impact of B Roll in Editing</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-unveiling-the-mystery-of-instagrams-most-trusted-6-techniques-for-building-a-fanbase/"><u>[Updated] 2024 Approved Unveiling the Mystery of Instagram's Most Trusted 6 Techniques for Building a Fanbase</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-laptoppc-editors-steer-clear-of-inshot/"><u>[Updated] Laptop/PC Editors Steer Clear of Inshot</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-art-of-differentiating-real-vs-fake-facebook-likes-for-2024/"><u>[Updated] The Art of Differentiating Real vs Fake Facebook Likes for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-navigating-the-nuances-of-snapchat-high-visibility/"><u>2024 Approved Navigating the Nuances of Snapchat High-Visibility</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-50plus-best-text-effects-for-videographers/"><u>In 2024, 50+ Best Text Effects for Videographers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-essential-arsenal-for-modern-enterprise-top-trending-gadgets-and-tech-to-own/"><u>In 2024, Essential Arsenal for Modern Enterprise Top Trending Gadgets and Tech To Own</u></a></li>
-<li><a href="https://fox-http.techidaily.com/masterclass-in-image-cleanup-remove-unwanted-surroundings-for-2024/"><u>Masterclass in Image Cleanup Remove Unwanted Surroundings for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-vivo-t2-pro-5g-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Vivo T2 Pro 5G for Streaming | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/ultimate-free-collection-top-8-tools-for-viewing-4k-media-on-winos-x/"><u>Ultimate Free Collection Top 8 Tools for Viewing 4K Media on Win/OS X</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-launch-a-creative-vision-start-xps-moviemaker-suite/"><u>[New] 2024 Approved Launch a Creative Vision, Start Xp’s Moviemaker Suite</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-echo-of-valyria-prime-destinations-for-tts-downloads/"><u>[New] In 2024, The Echo of Valyria Prime Destinations for TTS Downloads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-trailblaze-with-our-list-of-the-top-9-resources-for-dynamic-3d-fonts/"><u>[New] In 2024, Trailblaze with Our List of The Top 9 Resources for Dynamic 3D Fonts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-art-of-zoom-setup-ensuring-smooth-video-conferencing/"><u>[New] The Art of Zoom Setup Ensuring Smooth Video Conferencing</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-iosandroid-techniques-extracting-twitters-gifs/"><u>[Updated] 2024 Approved IOS/Android Techniques Extracting Twitter's GIFs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-amplify-your-voice-on-twitter-top-video-uploading-solutions/"><u>[Updated] Amplify Your Voice on Twitter Top Video Uploading Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-picsart-guide-discreetly-mask-faces/"><u>[Updated] In 2024, Picsart Guide Discreetly Mask Faces</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-techniques-to-effortlessly-record-your-instagram-experiences/"><u>[Updated] Techniques to Effortlessly Record Your Instagram Experiences</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/convert-and-digitize-any-dvd-to-ios-device-format-with-winx-dvd-ripper-for-mac-perfect-solution-for-macos-users/"><u>Convert and Digitize Any DVD to iOS Device Format with WinX DVD Ripper for Mac: Perfect Solution for macOS Users</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/converti-file-mod-a-formato-movie-online-gratuito-movavi/"><u>Converti File MOD a Formato Movie Online Gratuito - Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easy-conversion-tutorial-switching-video-types-change-webm-into-mp4-with-the-help-of-vlc-media-player/"><u>Easy Conversion Tutorial: Switching Video Types - Change WebM Into MP4 with the Help of VLC Media Player</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-shoot-vertical-panorama-photos-with-your-smartphone-androidios/"><u>In 2024, How to Shoot Vertical Panorama Photos with Your Smartphone Android/iOS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-noshadowedit-advanced-background-shadow-elimination/"><u>In 2024, NoShadowEdit Advanced Background Shadow Elimination</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-top-6-creative-editors-on-the-latest-macos-big-sur/"><u>In 2024, Top 6 Creative Editors on the Latest macOS Big Sur</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlined-shooting-essential-gimbals-and-handhelds-reviewed-for-2024/"><u>Streamlined Shooting Essential Gimbals and Handhelds Reviewed for 2024</u></a></li>
 </ul></div>
 

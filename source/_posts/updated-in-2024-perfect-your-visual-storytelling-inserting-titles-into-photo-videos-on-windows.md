@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Perfect Your Visual Storytelling  Inserting Titles Into Photo Videos on Windows\""
-date: 2024-09-28T16:27:40.570Z
-updated: 2024-10-04T10:10:23.537Z
+date: 2024-10-04T17:07:22.798Z
+updated: 2024-10-09T19:06:01.745Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -74,13 +74,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -88,36 +81,37 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -144,22 +138,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-fresh-take-on-the-enhanced-sony-s6500-media-device/"><u>[New] 2024 Approved Fresh Take on the Enhanced Sony S6500 Media Device</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-textual-brilliance-in-media-exploring-the-best-effects/"><u>[New] 2024 Approved Textual Brilliance in Media Exploring the Best Effects</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-science-behind-stopping-photo-booth-movies-for-2024/"><u>[New] The Science Behind Stopping Photo Booth Movies for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-charting-course-essential-steps-from-concept-to-content-creation-in-review-channels/"><u>[Updated] 2024 Approved Charting Course Essential Steps From Concept to Content Creation in Review Channels</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-effortless-capture-iphones-dual-task-technique/"><u>[Updated] 2024 Approved Effortless Capture IPhone's Dual-Task Technique</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-asmr-knowledge-beyond-what-you-see/"><u>[Updated] In 2024, ASMR Knowledge Beyond What You See</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-clearer-chrome-tips-to-improve-facebook-playback/"><u>2024 Approved Clearer Chrome Tips to Improve Facebook Playback</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-elevate-your-podcasts-with-top-10-ai-name-generators/"><u>2024 Approved Elevate Your Podcasts with Top 10 AI Name Generators</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fix-guide-how-to-stop-your-jurassic-world-evolution-game-from-crashing/"><u>Fix Guide: How to Stop Your Jurassic World Evolution Game From Crashing</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/guide-to-optimal-audio-changer-tools-for-vtubers/"><u>Guide to Optimal Audio Changer Tools for VTubers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-iphone-14-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-decoding-dji-phantom-3-a-thorough-examination/"><u>In 2024, Decoding DJI Phantom 3 A Thorough Examination</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-superior-techniques-for-adjusting-tempo-of-tracks-in-spotify/"><u>In 2024, Superior Techniques for Adjusting Tempo of Tracks in Spotify</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-the-complete-guide-to-designing-personalized-instagram-ringtone/"><u>In 2024, The Complete Guide to Designing Personalized Instagram Ringtone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-how-to-create-a-picture-in-picture-effect-using-final-cut-pro/"><u>New 2024 Approved How to Create a Picture-in-Picture Effect Using Final Cut Pro</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hots-of-sound-characters-short-musical-roles-for-2024/"><u>Snapshots of Sound Characters Short Musical Roles for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-resolving-persistent-usb-connection-issues/"><u>Troubleshooting Guide: Resolving Persistent USB Connection Issues</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-complete-understanding-of-srt-covering-everything-important/"><u>[New] 2024 Approved Complete Understanding of SRT, Covering Everything Important</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-humor-highway-tailored-joke-routes-for-each-occasion/"><u>[New] Humor Highway Tailored Joke Routes for Each Occasion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-mitigating-virtual-reality-nausea/"><u>[New] In 2024, Mitigating Virtual Reality Nausea</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-capturing-every-angle-top-choice-pro-360cameras-of-2023/"><u>[Updated] 2024 Approved Capturing Every Angle Top Choice Pro 360°Cameras of 2023</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-elevate-your-tiktok-content-with-voice-overlay/"><u>[Updated] 2024 Approved Elevate Your TikTok Content with Voice Overlay</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-accelerated-image-editing-your-path-to-masterful-windows-photo-work-for-2024/"><u>[Updated] Accelerated Image Editing Your Path to Masterful Windows Photo Work for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-eco-visuals-cost-free-download/"><u>[Updated] In 2024, Eco Visuals, Cost-Free Download</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/core-components-for-transformative-facebook-advertisements/"><u>Core Components for Transformative Facebook Advertisements</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-blurry-to-crystal-clear-the-ultimate-guide-to-vce-22/"><u>From Blurry to Crystal Clear The Ultimate Guide to VCE 2.2</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Vivo G2? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-realme-11x-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Realme 11X 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-exploring-cinema-best-filming-cameras-from-35mm-to-point-and-shoot/"><u>In 2024, Exploring Cinema Best Filming Cameras From 35Mm to Point-and-Shoot</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-hide-identity-blurred-face-artistry/"><u>In 2024, Hide Identity Blurred Face Artistry</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pixel-perfect-free-mobile-photography-booster/"><u>Pixel Perfect Free Mobile Photography Booster</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-balance-between-accuracy-and-understanding/"><u>The Balance Between Accuracy and Understanding</u></a></li>
 </ul></div>
 

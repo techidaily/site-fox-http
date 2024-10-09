@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Smartphone Lens  Creating Sweeping Panos\""
-date: 2024-10-02T20:37:12.281Z
-updated: 2024-10-03T17:09:22.388Z
+date: 2024-10-07T17:44:04.484Z
+updated: 2024-10-09T17:39:50.383Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,16 @@ thumbnail: https://thmb.techidaily.com/634ac9f760c3e79a9b2c54edc99fe994b8053a847
 * [Part 2: For Android Users](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For iPhone users
@@ -61,10 +67,16 @@ thumbnail: https://thmb.techidaily.com/634ac9f760c3e79a9b2c54edc99fe994b8053a847
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image source: mac-fusion
@@ -88,10 +100,10 @@ thumbnail: https://thmb.techidaily.com/634ac9f760c3e79a9b2c54edc99fe994b8053a847
 * Tap on "Done" when completed.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
@@ -104,10 +116,10 @@ thumbnail: https://thmb.techidaily.com/634ac9f760c3e79a9b2c54edc99fe994b8053a847
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -135,22 +147,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-craft-exceptional-videos-on-iphone-pro-tips-from-the-experts-8-for-2024/"><u>[New] Craft Exceptional Videos on iPhone Pro Tips From the Experts (8) for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-designing-multi-layered-photographic-illusions-for-2024/"><u>[New] Designing Multi-Layered Photographic Illusions for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-surviving-splashes-top-7-action-cam-selection/"><u>[New] Surviving Splashes Top 7 Action Cam Selection</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-beginners-guide-to-earning-on-reddit-top-13-simple-money-making-ideas/"><u>[New] The Beginner's Guide to Earning on Reddit Top 13 Simple Money-Making Ideas</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-finest-8-platforms-for-sharing-3d-text-psd-files-for-2024/"><u>[New] The Finest 8 Platforms for Sharing 3D Text PSD Files for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-toonsmax-app-insight-comprehensive-review-2024/"><u>[New] ToonsMax App Insight - Comprehensive Review 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-experience-unparalleled-text-design-with-top-5-downloadable-platforms/"><u>[Updated] 2024 Approved Experience Unparalleled Text Design with Top 5 Downloadable Platforms</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-income-from-video-how-to-profit-on-vimeo-platform/"><u>[Updated] 2024 Approved Income From Video How to Profit on Vimeo Platform</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-blue-band-promise-made-easy-snapping-strategies/"><u>[Updated] 2024 Approved The Blue Band Promise Made Easy Snapping Strategies</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-live-recording-mastery-with-innovative-webcams-explored/"><u>[Updated] In 2024, Live Recording Mastery with Innovative WebCams Explored</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-filter-techniques-for-a-stunning-feed/"><u>[Updated] Instagram Filter Techniques for a Stunning Feed</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-precision-and-performance-top-6-video-edits-on-macos-big-sur/"><u>2024 Approved Precision and Performance Top 6 Video Edits on macOS Big Sur</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ngs-on-youtube-the-crucial-number-of-video-views-for-money/"><u>Earnings on YouTube The Crucial Number of Video Views for Money</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-enters-sunglasses-space-with-ray-ban-stories-launch/"><u>Facebook Enters Sunglasses Space with Ray-Ban Stories Launch</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-the-stutter-issue-in-deathloop-on-your-gaming-pc-tips-and-solutions/"><u>Resolving the Stutter Issue in Deathloop on Your Gaming PC - Tips & Solutions</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/revolutionize-your-interaction-with-chatgpt-through-voice-commands-top-5-ways/"><u>Revolutionize Your Interaction with ChatGPT Through Voice Commands – Top 5 Ways!</u></a></li>
-<li><a href="https://fox-http.techidaily.com/visionaryedit-ai-painting-with-digital-brushes-for-2024/"><u>VisionaryEdit AI Painting with Digital Brushes for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-from-novice-to-expert-advanced-screencasting-steps/"><u>[New] 2024 Approved From Novice to Expert Advanced Screencasting Steps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-learn-the-ins-and-outs-of-adding-gifs-on-instagram-in-4-steps/"><u>[New] In 2024, Learn the Ins and Outs of Adding GIFs on Instagram in 4 Steps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-initiate-flawless-zoom-sessions-today/"><u>[New] Initiate Flawless Zoom Sessions Today</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-unveil-the-ultimate-8-online-places-to-find-free-3d-text-files/"><u>[Updated] Unveil the Ultimate 8 Online Places to Find FREE 3D Text Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-visual-impact-journey-begins-with-our-50-free-banners/"><u>[Updated] Your Visual Impact Journey Begins with Our 50 FREE Banners</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-8-best-image-grabbing-utilities/"><u>2024 Approved 8 Best Image Grabbing Utilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dynamic-captions-animation-tips-for-instagram-storytelling-for-2024/"><u>Dynamic Captions Animation Tips for Instagram Storytelling for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/easy-to-implement-opening-sequences-for-you/"><u>Easy-to-Implement Opening Sequences for You</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elite-cost-effective-asmr-recording-devices-unveiled-for-2024/"><u>Elite Cost-Effective ASMR Recording Devices Unveiled for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/empowering-communication-with-these-leading-mac-tts-programs-for-2024/"><u>Empowering Communication with These Leading Mac TTS Programs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/engaging-environments-scenery-that-sells-streaming/"><u>Engaging Environments Scenery That Sells Streaming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/envisioning-with-vr-technology/"><u>Envisioning with VR Technology</u></a></li>
+<li><a href="https://fox-http.techidaily.com/expert-picks-optimal-vr-for-drone-pilots/"><u>Expert Picks Optimal VR for Drone Pilots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-raw-renders-to-rich-realities-grading-in-post-production/"><u>From Raw Renders to Rich Realities Grading in Post-Production</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-realme-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Realme</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/streaming-supremacy-duo/"><u>Streaming Supremacy Duo</u></a></li>
+<li><a href="https://extra-information.techidaily.com/upside-down-visuals-unraveling-instagram-video-confusion/"><u>Upside Down Visuals Unraveling Instagram Video Confusion</u></a></li>
 </ul></div>
 

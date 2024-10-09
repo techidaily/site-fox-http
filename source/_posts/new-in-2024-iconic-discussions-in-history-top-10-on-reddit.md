@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Iconic Discussions in History - Top 10 on Reddit\""
-date: 2024-10-02T21:23:51.061Z
-updated: 2024-10-04T04:45:56.979Z
+date: 2024-10-06T18:54:48.215Z
+updated: 2024-10-09T18:51:36.023Z
 tags: 
   - screen-recording
   - ai video
@@ -60,19 +60,6 @@ Its purpose is quite ironic. The point was to make this image of Chancellor Palp
 
 Sadly, the attempt failed but still received a lot of attention.
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. [$GME GO BRRR (r/wallstreetbets)](https://www.reddit.com/r/wallstreetbets/comments/l8rf4k/times%5Fsquare%5Fright%5Fnow/)
 
 This post currently has 469k votes with a stunning 99% Upvote rate. It’s now the most upvoted Reddit post in this list.
@@ -89,6 +76,13 @@ Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was poste
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
@@ -102,13 +96,6 @@ What's even more interesting is that the driver commented on this Reddit post, l
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Reddit gets most of its users inside its gaming communities. As a result, these can be some of the hottest topics with countless popular posts.
 
@@ -132,18 +119,18 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Some things on Reddit don't have to make sense to get a lot of attention.
 
 Like this frog, for example. 99% out of the 313k voters on this post upvoted and loved watching this tiny frog take a bath on a hot summer day.
 
 That's all there is to it. No politics, no serious issues, and so on. Just a frog trying to cool off in a bottle cup.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
 
@@ -163,6 +150,13 @@ Well, a Reddit user made an edit of this clip and now it looks as if Will juggle
 
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
 
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
@@ -180,13 +174,6 @@ The Reddit post has over 4k comments, many of which feature thousands of upvotes
 ## Video – Top 10 Most Upvoted Posts on Reddit
 
 Apart from what been introduced to you above, we also prepared a video about the most upvoted posts on Reddit. If you have any interests, you can watch it and get a deeper understanding of why these posts are so popular.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -214,13 +201,6 @@ Its purpose is quite ironic. The point was to make this image of Chancellor Palp
 
 Sadly, the attempt failed but still received a lot of attention.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. [$GME GO BRRR (r/wallstreetbets)](https://www.reddit.com/r/wallstreetbets/comments/l8rf4k/times%5Fsquare%5Fright%5Fnow/)
 
 This post currently has 469k votes with a stunning 99% Upvote rate. It’s now the most upvoted Reddit post in this list.
@@ -246,6 +226,13 @@ Another funny post in the official /r/funny subreddit itself. At this time, this
 The image depicts the New York spirit as an excited cab driver shows off his cab in the 2018 New York Taxi Driver calendar.
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
@@ -291,6 +278,13 @@ It's a post with a title and a link to a site where anyone can join the battle. 
 
 ![reddit post of deangelo juggling balls the office](https://images.wondershare.com/filmora/article-images/2023/01/deangelo-juggling-balls-on-the-office.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Millions of fans worldwide loved The Office with Steve Carell, a.k.a Michael Scott. One of the funniest moments was when Will Ferrell juggled imaginary balls in the Dunder Mifflin office.
 
 Well, a Reddit user made an edit of this clip and now it looks as if Will juggled four balls... then five.
@@ -298,10 +292,10 @@ Well, a Reddit user made an edit of this clip and now it looks as if Will juggle
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
@@ -309,10 +303,10 @@ The post has a 98% upvote rate with 170k voters in total. The reason it's so pop
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Finally, this is an inspiring and heartwarming post about a brave troop.
@@ -326,10 +320,10 @@ After an attempt by Union Troops to recover his body, they received a letter fro
 The Reddit post has over 4k comments, many of which feature thousands of upvotes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Video – Top 10 Most Upvoted Posts on Reddit
@@ -370,20 +364,20 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-broadcasting-to-the-big-screen-watching-fb-videos-on-tv/"><u>[New] 2024 Approved Broadcasting to the Big Screen Watching FB Videos on TV?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-tech-analysis-elite-parrot-ar-drone-20/"><u>[New] 2024 Approved Tech Analysis Elite Parrot AR Drone 2.0</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-apex-design-studio-examination/"><u>[Updated] Apex Design Studio Examination</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-bright-ideas-elevate-your-video-with-strategic-lighting-for-2024/"><u>[Updated] Bright Ideas Elevate Your Video with Strategic Lighting for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-cash-flow-harnessing-youtube-ad-revenue-anywhere/"><u>[Updated] In 2024, Channel Cash Flow Harnessing YouTube Ad Revenue Anywhere</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-mastering-iphone-screen-casts-with-ease-for-2024/"><u>[Updated] Mastering iPhone Screen Casts with Ease for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-photoquarter-analysis/"><u>[Updated] PhotoQuarter Analysis</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-windows-inspection-rapid-execution-procedures/"><u>[Updated] Windows Inspection Rapid Execution Procedures</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/10-key-steps-for-efficient-access-to-windows-connections-tool/"><u>10 Key Steps for Efficient Access to Window's Connections Tool</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/alexa-integrated-ultra-hd-ready-insignia-ns-43df710na19-fire-tv-edition-an-unbeatable-combination/"><u>Alexa Integrated, Ultra HD Ready Insignia NS-43DF710NA19 Fire TV Edition - An Unbeatable Combination</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatbot-guidance-for-stress-management-leveraging-the-power-of-chatgpt/"><u>Chatbot Guidance for Stress Management: Leveraging the Power of ChatGPT</u></a></li>
-<li><a href="https://driver-install.techidaily.com/fasten-intel-lan-controller-tuning-effortlessly/"><u>Fasten Intel LAN Controller Tuning Effortlessly</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-venture-into-the-best-sites-for-innovative-text-manipulation-tools/"><u>In 2024, Venture Into the Best Sites for Innovative Text Manipulation Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unleash-creative-vocal-power-access-free-audio-effects-here-for-2024/"><u>Unleash Creative Vocal Power Access Free Audio Effects Here for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-quick-setup-for-smartphones-as-personalized-vr-headsets/"><u>[New] The Quick Setup for Smartphones as Personalized VR Headsets</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-audio-silencing-for-clearer-videographies-freepremium/"><u>[Updated] In 2024, Audio Silencing for Clearer Videographies (Free/Premium)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-quality-quest-deciphering-the-superior-video-format/"><u>[Updated] In 2024, Quality Quest Deciphering the Superior Video Format</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unlock-enhanced-audio-visual-sync-subtitle-addition-to-wmp/"><u>[Updated] In 2024, Unlock Enhanced Audio-Visual Sync Subtitle Addition to WMP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unlock-your-phones-potential-with-ios-11-camera-tips/"><u>[Updated] In 2024, Unlock Your Phone's Potential with iOS 11 Camera Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-quicklooker-windows-11s-speedy-photo-viewer/"><u>[Updated] QuickLooker Windows 11'S Speedy Photo Viewer</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-huawei-nova-y91-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Huawei Nova Y91 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-innovative-tech-discovering-the-top-9-microphone-recorders-online/"><u>In 2024, Innovative Tech Discovering the Top 9 Microphone Recorders Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-ultimate-bundle-6-powerful-apps-to-remove-signature-borders/"><u>In 2024, The Ultimate Bundle – 6 Powerful Apps to Remove Signature Borders</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-unnoticed-consumers-of-fb-stories/"><u>In 2024, Unnoticed Consumers of Fb Stories</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-luts-with-adobe-after-effects/"><u>Mastering LUTs with Adobe After Effects</u></a></li>
+<li><a href="https://win-able.techidaily.com/outriders-and-the-ue4-glitch-understanding-and-fixing-the-process-has-crashed-issue/"><u>Outriders and the UE4 Glitch: Understanding & Fixing the 'Process Has Crashed' Issue</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/scanner-activation-a-win10-fix-guide/"><u>Scanner Activation: A Win10 Fix Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-poco-x5-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Poco X5 Phones</u></a></li>
 </ul></div>
 
