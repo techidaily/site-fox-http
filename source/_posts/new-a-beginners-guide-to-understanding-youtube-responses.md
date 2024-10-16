@@ -1,7 +1,7 @@
 ---
 title: "[New] A Beginner's Guide to Understanding YouTube Responses"
-date: 2024-10-07T18:49:27.817Z
-updated: 2024-10-09T17:50:13.000Z
+date: 2024-10-11T18:04:21.142Z
+updated: 2024-10-15T22:09:11.141Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ YouTube comments are an opportunity for the site's 1.7 million unique monthly vi
 Not only does it show your fans followers that you care about what they have to say, engaging with comments has they have to say, engaging with comments has the added benefit of boosting you in the YouTube algorithm. Videos with lots of likes, replies and moderation tend to show up higher in search results.
 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Advantage of YouTube comments
 
@@ -83,6 +90,13 @@ Step2 On the YouTube homepage, click on the three horizontal parallel lines in t
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 From the drop down menu, select “History”.
 
 Step4 On the right side under the “Manage all history” section, click on “comments”.
@@ -90,22 +104,15 @@ Step4 On the right side under the “Manage all history” section, click on “
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
 
 Step6 Make the necessary edits and choose “Save”.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Highlighted Comments and Replies on YouTube
 
@@ -114,19 +121,6 @@ Among the comments you see on a video, you might notice some that YouTube has la
 For example, you might click on a notification, and YouTube takes you to a particular video. Then, when somebody else views and leaves a comment on that video, YouTube will often add the “Highlighted Comment” label on the comment to make it easy for you to spot it when you next go back to that video.
 
 Each time YouTube adds the “highlighted comment” or “highlighted reply” tags to a video, they create a unique URL. The version of the comment that you see uses this newly generated URL. Therefore, the only way to make these labels disappear (apart from reading the new comments) is to remove the addition to the URL.
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why Deleting YouTube Comments?
 
@@ -147,10 +141,10 @@ Comments history also contains the link to the video where you've left the comme
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -189,18 +183,20 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-quick-instructions-for-downloading-and-fun-with-ifunny-memes/"><u>[New] 2024 Approved Quick Instructions for Downloading and Fun with iFunny Memes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-mastering-social-media-splitscreen-a-facebook-guide/"><u>[New] In 2024, Mastering Social Media Splitscreen A Facebook Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-optimal-camera-balance-for-drone-use/"><u>[New] Optimal Camera Balance for Drone Use</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-top-5-ps2-emulation-apps-for-android-devices/"><u>[Updated] 2024 Approved Top 5 PS2 Emulation Apps for Android Devices</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/face-off-frenzy-legendary-sj6-vs-xiaomis-four-k-creators-for-2024/"><u>Face-Off Frenzy Legendary SJ6 Vs. Xiaomi's Four-K Creators for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-how-to-add-fonts-to-after-effects/"><u>In 2024, How to Add Fonts to After Effects</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-the-art-of-subtle-sonic-softening-using-lumafusion/"><u>In 2024, The Art of Subtle Sonic Softening Using Lumafusion</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-quoras-poe-for-ai-bot-and-llm-entry/"><u>Mastering Quora's POE for AI Bot & LLM Entry</u></a></li>
-<li><a href="https://fox-http.techidaily.com/precision-review-of-the-dji-inspire-2-drone/"><u>Precision Review of the DJI Inspire 2 Drone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/sky-storage-spectacle-unlimited-free-and-elite-premium-alternatives-for-your-pics-for-2024/"><u>Sky Storage Spectacle Unlimited Free & Elite Premium Alternatives for Your Pics for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/stop-street-fighter-6-malfunction-ultimate-troubleshooting-guide-for-pc-users/"><u>Stop Street Fighter #6 Malfunction: Ultimate Troubleshooting Guide for PC Users</u></a></li>
-<li><a href="https://app-tips.techidaily.com/urgent-security-alert-critical-vulnerability-found-and-patched-in-popular-curl-tool-for-linux-systems-read-the-full-story-on-zdnet/"><u>Urgent Security Alert: Critical Vulnerability Found & Patched in Popular Curl Tool for Linux Systems - Read the Full Story on ZDNet</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/user-perspectives-and-professional-judgement-dissecting-google-voice-phone-system/"><u>User Perspectives & Professional Judgement: Dissecting Google Voice Phone System</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-3-straightforward-methods-to-fine-tune-shades/"><u>[New] 2024 Approved 3 Straightforward Methods to Fine-Tune Shades</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-voice-changes-in-psgames/"><u>[New] In 2024, Mastering Voice Changes in PSGames</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-through-gesture-detection-methods/"><u>[New] Navigating Through Gesture Detection Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-mastering-voice-effects-explore-free-flexible-audio-transformations/"><u>[Updated] In 2024, Mastering Voice Effects Explore Free, Flexible Audio Transformations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-guide-to-youtube-video-distribution-on-fb/"><u>[Updated] The Ultimate Guide to YouTube Video Distribution on FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-enhance-youtube-video-speed-fast-render-and-upload-techniques/"><u>2024 Approved Enhance YouTube Video Speed - Fast Render and Upload Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-most-popular-image-stickering-apps-iosandroid-edition/"><u>2024 Approved Most Popular Image Stickering Apps – iOS/Android Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024s-premier-iphone-selfie-enhancing-gadgets/"><u>2024'S Premier iPhone Selfie-Enhancing Gadgets</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/beliebteste-kostenlose-videoediting-tools-von-2024-erkunden-sie-die-top-5-favoriten-der-community/"><u>Beliebteste Kostenlose Videoediting-Tools Von 2024: Erkunden Sie Die Top 5 Favoriten Der Community!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/comparing-tools-for-system-fixes-scan-disk-sysprep-vs-chkdsk-and-dissect/"><u>Comparing Tools for System Fixes: Scan Disk, Sysprep Vs. CHKDSK and Dissect</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-setup-getting-epson-wf-2750-printer-drivers-installed-on-your-computer/"><u>Easy Setup: Getting Epson WF-2750 Printer Drivers Installed on Your Computer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/first-impressions-a-deep-dive-into-3d-printing-alone/"><u>First Impressions A Deep Dive Into 3D Printing Alone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/taming-the-gray-windows-outage/"><u>Taming the Gray Windows Outage</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-10-secure-and-legitimate-sites-for-watching-anime-safely/"><u>Top 10 Secure and Legitimate Sites for Watching Anime Safely</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-picks-explore-the-best-new-windows-10-apps-and-games/"><u>Top Picks Explore the Best New Windows 10 Apps and Games</u></a></li>
 </ul></div>
 

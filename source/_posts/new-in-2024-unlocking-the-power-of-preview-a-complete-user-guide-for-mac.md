@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlocking the Power of Preview  A Complete User Guide for Mac\""
-date: 2024-09-15T19:51:12.663Z
-updated: 2024-09-17T16:50:35.084Z
+date: 2024-10-11T01:18:04.000Z
+updated: 2024-10-15T21:06:56.605Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -68,6 +75,13 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -84,6 +98,13 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -129,13 +150,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -152,13 +166,6 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -170,13 +177,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -212,6 +212,13 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -235,5 +242,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-mastering-visual-enhancements-with-polarrs-platform-for-2024/"><u>[New] Mastering Visual Enhancements with Polarr's Platform for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-premier-picture-preservation-websites/"><u>[New] Premier Picture Preservation Websites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-step-by-step-guide-to-video-upgrade-version-22/"><u>[New] Step-by-Step Guide to Video Upgrade - Version 2.2</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-tips-tuning-your-snapchat-videos-for-maximum-impact/"><u>[New] Top Tips Tuning Your Snapchat Videos for Maximum Impact</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-quick-tips-effective-inshot-for-pclaptop-videos/"><u>[Updated] 2024 Approved Quick Tips Effective Inshot for PC/Laptop Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-revolutionizing-iphone-photography-with-hdr-techniques/"><u>[Updated] 2024 Approved Revolutionizing iPhone Photography with HDR Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-custom-whatsapp-ringtone-guide-on-ios-devices-for-2024/"><u>[Updated] Custom WhatsApp Ringtone Guide on iOS Devices for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-do-reviewers-get-dollars-for-commentary/"><u>[Updated] Do Reviewers Get Dollars for Commentary?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-nextv-networks-worldwide-streaming-with-your-locals/"><u>[Updated] In 2024, NexTV Networks Worldwide Streaming With Your Locals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-packaging-to-prowess-marketings-unboxed-secrets/"><u>[Updated] Packaging to Prowess Marketing's Unboxed Secrets</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-art-of-digitalizing-ps3-gamesplay-for-2024/"><u>[Updated] The Art of Digitalizing PS3 Gamesplay for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-why-are-my-insta-vids-upside-down-for-2024/"><u>[Updated] Why Are My Insta Vids Upside Down for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726029285852-ps3/"><u>「PS3」ビデオコンバート：ゲーム機向け動画変換方法とヒント</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-infinix-note-30i-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Infinix Note 30i to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-asus-rog-phone-8-pro-frp-by-drfone-android/"><u>How Can We Bypass Asus ROG Phone 8 Pro FRP?</u></a></li>
+<li><a href="https://techidaily.com/how-to-get-out-of-recovery-or-dfu-mode-on-apple-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery or DFU Mode on Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-glacial-gala-winter-olympics-excellence/"><u>In 2024, Glacial Gala Winter Olympics Excellence</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overwatch-stability-improved-with-corrected-graphics-driver-problems/"><u>Overwatch Stability Improved with Corrected Graphics Driver Problems</u></a></li>
+</ul></div>
 

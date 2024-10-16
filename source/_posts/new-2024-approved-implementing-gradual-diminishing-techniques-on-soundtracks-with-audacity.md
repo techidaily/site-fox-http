@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Implementing Gradual Diminishing Techniques on Soundtracks with Audacity\""
-date: 2024-10-07T16:47:33.795Z
-updated: 2024-10-09T16:14:16.687Z
+date: 2024-10-10T23:03:31.017Z
+updated: 2024-10-16T00:19:31.934Z
 tags: 
   - screen-recording
   - ai video
@@ -52,22 +52,15 @@ Choose your audio segment, go to the Effect menu, slide to the bottom, and pick 
 ![studio fade out audacity](https://images.wondershare.com/filmora/article-images/2022/07/studio-fade-out-audacity.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Adjustable Fade
 
 A dialog box will show up on the screen when you choose the customizable fade option. You may customize the form and pattern of the fading using that dialog box. You may use this ability to make partial fades if you'd like. You must maintain the tracks stacked one on top of the other with the lower track underneath the higher track and its end overlapping when employing this form of fade.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Steps to Use Adjustable Fade:**
 
@@ -77,10 +70,10 @@ A dialog box will show up on the screen when you choose the customizable fade op
 ![adjustable fade audio audacity](https://images.wondershare.com/filmora/article-images/2022/07/adjustable-fade-audio-audacity.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. Crossfades Audacity
@@ -95,7 +88,21 @@ Select the area to be crossfaded using the Selection tool, and then click Effect
 
 ![crossafade audio with audacity](https://images.wondershare.com/filmora/article-images/2022/07/crossafade-audio-with-audacity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Use your Selection tool to organize the clips such that a crossfade will be applied between two clips on different tracks. Go to Effect > Crossfade Songs, place the cursor where you want the fade to begin, then drag it across the tracks you wish to blend.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5\. Alternative Way to Fade Audio
 
@@ -123,13 +130,6 @@ You must drag the files into Filmora's timeline after importing your media files
 
 ![open the audio editor in filmora](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step4 Fade-in/fade-out audio
 
 The first step in this process is to learn how to use Filmora to start fading in and out your audio recordings. The best aspect of Filmora is how simple it is to employ these techniques from the timeline. To achieve this, focus on the audio file that you want to change in the timeline; after you've picked it, the two icons will show up above the audio file. Drag the first one to the desired duration for the audio fade-in option, as demonstrated:
@@ -145,10 +145,23 @@ The last step consists of downloading your modified file to your PC and storing 
 ![export the modified file](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -167,13 +180,6 @@ In the step that follows, we'll show you how to use this platform to fade in and
 
 ![open filmora and import audio files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 By choosing the Video Editor option from the software's home screen, you may now investigate the basic principles of editing. This will bring up the main interface for Filmora. To import your music and video files, just choose the Import button from the software's main screen, as seen below:
 
 ##### Step3 Open the Audio Editor in Filmora
@@ -188,13 +194,6 @@ The first step in this process is to learn how to use Filmora to start fading in
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
 
 ##### Step5 Export the Modified File
@@ -204,10 +203,17 @@ The last step consists of downloading your modified file to your PC and storing 
 ![export the modified file](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -238,22 +244,21 @@ You may access a variety of tools and services on the platform known as Audacity
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-dive-into-apods-an-uncomplicated-download-guide/"><u>[New] 2024 Approved Dive Into APods An Uncomplicated Download Guide</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-legal-aspects-and-ethical-considerations-of-recording-whatsapp/"><u>[New] 2024 Approved Legal Aspects and Ethical Considerations of Recording WhatsApp</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[New] Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-get-more-instagram-video-views-in-2024/"><u>[New] How to Get More Instagram Video Views, In 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-acclaimed-top-5-compact-cameras-for-filming/"><u>[New] In 2024, Acclaimed Top 5 Compact Cameras for Filming</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-camera-powerhouse-selecting-the-10-best-4k-phones/"><u>[New] In 2024, Camera Powerhouse Selecting the 10 Best 4K Phones</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-starlight-strategies-dos-and-donts-for-perfect-nightscape-portraits-for-2024/"><u>[New] Starlight Strategies Do's & Don'ts for Perfect Nightscape Portraits for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-ultimate-guide-to-choosing-a-screen-for-superior-4k-video/"><u>[New] The Ultimate Guide to Choosing a Screen for Superior 4K Video</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-dynamic-tiktok-effects-a-double-approach/"><u>[Updated] 2024 Approved Dynamic TikTok Effects A Double Approach</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-artisanaiphotostudio-seamless-image-magic/"><u>[Updated] ArtisanAiPhotoStudio Seamless Image Magic</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-expedited-photographic-viewing-in-windows-10-for-2024/"><u>[Updated] Expedited Photographic Viewing in Windows 10 for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-how-to-use-android-phones-in-watching-vr-or-360-videos-for-2024/"><u>[Updated] How to Use Android Phones in Watching VR or 360 Videos for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-apex-screenplay-creations-segmented-by-movie-type/"><u>[Updated] In 2024, Apex Screenplay Creations, Segmented By Movie Type</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-grassroot-game-gear-free-film-tips-for-fans/"><u>[Updated] In 2024, Grassroot Game Gear - Free Film Tips for Fans</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-topview-assessment-report/"><u>2024 Approved TopView Assessment Report</u></a></li>
-<li><a href="https://os-tips.techidaily.com/a-step-by-step-guide-to-restoring-your-apple-airpods-pros-max-pair/"><u>A Step-by-Step Guide to Restoring Your Apple AirPods / Pros / Max Pair</u></a></li>
-<li><a href="https://fox-http.techidaily.com/luminous-lenses-the-ultimate-10-4k-smartphone-cameras-reviewed/"><u>Luminous Lenses The Ultimate 10 4K Smartphone Cameras Reviewed</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-best-twitter-gif-saver-for-you/"><u>[New] Best Twitter GIF Saver for You</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-capture-your-discord-sessions-a-guide/"><u>[New] Capture Your Discord Sessions A Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-complete-biomechanical-study-2023-for-2024/"><u>[New] Complete Biomechanical Study 2023 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-crafting-a-captivating-periscope-livestream/"><u>[New] Crafting a Captivating Periscope Livestream</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-20-mobiles-perfecting-dji-visual-content-for-2024/"><u>[New] Top 20 Mobiles Perfecting DJi Visual Content for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-hustle-smart-listen-hard-top-tasks-for-podcast-enthusiasts/"><u>[Updated] In 2024, Hustle Smart, Listen Hard Top Tasks for Podcast Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-promotional-planning-perfection/"><u>[Updated] In 2024, Promotional Planning Perfection</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-google-pixel-7a-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Google Pixel 7a Phone? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-infinix-gt-10-pro-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Infinix GT 10 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-gionee-f3-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Gionee F3 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-nokia-g310-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Nokia G310 FRP</u></a></li>
+<li><a href="https://fox-http.techidaily.com/pureimage-the-backdrop-cutter/"><u>PureImage The Backdrop Cutter</u></a></li>
+<li><a href="https://fox-http.techidaily.com/recovery-of-windows-photo-viewer-functionality-on-win10-for-2024/"><u>Recovery of Windows Photo Viewer Functionality on Win10 for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transforming-your-resume-and-cover-letter-the-chatgpt-way-to-employment-success/"><u>Transforming Your Resume and Cover Letter: The ChatGPT Way to Employment Success</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-magic-5-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor Magic 5? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Audacity  Pro Audio Capture Guide\""
-date: 2024-09-16T00:38:18.565Z
-updated: 2024-09-18T01:20:54.070Z
+date: 2024-10-11T21:07:49.568Z
+updated: 2024-10-15T17:07:56.796Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +59,13 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,12 +113,24 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-authentic-praise-amplified-branding/"><u>[New] 2024 Approved Authentic Praise, Amplified Branding</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-professional-insight-into-accurate-and-clear-vr-recording/"><u>[New] 2024 Approved Professional Insight Into Accurate and Clear VR Recording</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-effortless-pc-sound-logging-with-x-recorder-software/"><u>[New] In 2024, Effortless PC Sound Logging with X-Recorder Software</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-video-game-top-10-keyword-strategy-resources/"><u>[New] In 2024, Elevate Your Video Game Top 10 Keyword Strategy Resources</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-zoom-into-action-videoleaps-tips-and-tricks-for-2024/"><u>[New] Zoom Into Action Videoleap's Tips and Tricks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-professional-tips-sharpen-and-brighten-your-iphones-hdri-in-adobe-premiere-pro-for-2024/"><u>[Updated] [Professional Tips] Sharpen and Brighten Your iPhone's HDRI in Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-mastering-azure-transcription-tools-and-techniques/"><u>[Updated] In 2024, Mastering Azure Transcription Tools and Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unpacking-the-wirecast-experience-and-its-rivals/"><u>[Updated] In 2024, Unpacking the WireCast Experience & Its Rivals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-score-free-adventures-tiktoks-hidden-background-gemstones-for-2024/"><u>[Updated] Score-Free Adventures TikTok's Hidden Background Gemstones for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-tablet-list-for-photographers-going-beyond-filmora-for-2024/"><u>[Updated] The Ultimate Tablet List for Photographers Going Beyond Filmora for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-guffaw-guide-the-leading-text-generator-companions/"><u>2024 Approved Guffaw Guide The Leading Text Generator Companions</u></a></li>
+<li><a href="https://win11.techidaily.com/3-keyways-to-refresh-file-explorer-in-win1011/"><u>3 Keyways to Refresh File Explorer in WIN10/11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-nubia-red-magic-9-proplus-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Nubia Red Magic 9 Pro+ to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/game-on-with-fortnite-your-ultimate-review-of-the-thrilling-new-season/"><u>Game On with Fortnite - Your Ultimate Review of the Thrilling New Season</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-core-principles-of-e-storytelling/"><u>In 2024, Core Principles of E-Storytelling</u></a></li>
+</ul></div>
 

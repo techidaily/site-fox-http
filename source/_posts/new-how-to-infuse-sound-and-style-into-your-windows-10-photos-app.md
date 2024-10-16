@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Infuse Sound and Style Into Your Windows 10 Photos App"
-date: 2024-09-11T16:28:16.266Z
-updated: 2024-09-18T00:00:28.780Z
+date: 2024-10-12T23:17:15.846Z
+updated: 2024-10-15T21:23:20.478Z
 tags: 
   - screen-recording
   - ai video
@@ -70,17 +70,45 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -105,12 +133,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-essential-list-8-leading-tools-for-video-translation-mastery/"><u>[New] 2024 Approved Essential List 8 Leading Tools for Video Translation Mastery</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-mastering-large-video-transfer-ios-to-macos-device-harmony/"><u>[New] 2024 Approved Mastering Large Video Transfer IOS to macOS Device Harmony</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-tier-auditory-theatre-plays/"><u>[New] 2024 Approved Top-Tier Auditory Theatre Plays</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-behind-the-curtain-exclusive-review-of-apeaksofts-tech-advancements/"><u>[New] Behind the Curtain Exclusive Review of Apeaksoft's Tech Advancements</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-expert-tips-for-crafting-immersive-soundscapes-in-youtube/"><u>[New] Expert Tips for Crafting Immersive Soundscapes in YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-timing-duration-for-a-20mb-high-definition-video/"><u>[New] In 2024, Timing Duration for a 20Mb High-Definition Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-sweet-slumber-scenes-video-critique/"><u>[Updated] 2024 Approved Sweet Slumber Scenes Video Critique</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-cutting-edge-platforms-for-digital-transformation-into-nft-tokens-for-2024/"><u>[Updated] Cutting-Edge Platforms for Digital Transformation Into NFT Tokens for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-5-tips-to-get-more-views-with-youtube-optimization-free-checklist/"><u>[Updated] In 2024, 5 Tips to Get More Views with YouTube Optimization [Free Checklist]</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-best-screen-recorders-for-pc-mac-top-10-list/"><u>[Updated] In 2024, Best Screen Recorders for PC, Mac - Top 10 List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-professional-gimbals-and-tripods-for-youtube-starters/"><u>[Updated] In 2024, Professional Gimbals & Tripods for YouTube Starters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-starting-a-vlog-the-must-have-equipmentsoftware/"><u>[Updated] In 2024, Starting a Vlog The Must-Have Equipment/Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-phone-lens-magic-creating-high-horizons/"><u>[Updated] Phone Lens Magic Creating High Horizons</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-13-pro-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone 13 Pro Without a Passcode</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-essential-guide-to-crafting-engaging-haul-videos/"><u>In 2024, The Essential Guide to Crafting Engaging Haul Videos</u></a></li>
+<li><a href="https://win-news.techidaily.com/mastering-motion-a-comprehensive-guide-to-the-action-rcu-application/"><u>Mastering Motion: A Comprehensive Guide to the Action RCU Application</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-on-apple-iphone-15-plus-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID On Apple iPhone 15 Plus Making It Possible</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ultimate-guide-to-hd-live-streaming-equipment/"><u>Ultimate Guide to HD Live-Streaming Equipment</u></a></li>
+</ul></div>
 

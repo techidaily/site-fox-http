@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Decoding Photopea's Art of Backdrop Elimination"
-date: 2024-10-04T18:43:46.938Z
-updated: 2024-10-09T17:17:48.640Z
+date: 2024-10-14T01:42:04.901Z
+updated: 2024-10-15T19:58:18.428Z
 tags: 
   - screen-recording
   - ai video
@@ -49,22 +49,15 @@ Step3 Now, simply press the **"Delete"** button on your keyboard to remove the b
 
 ![removing the image background using magic wand in photopea](https://images.wondershare.com/filmora/article-images/2023/03/removing-the-image-background-using-magic-wand-in-photopea.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Next, find the **"Tolerance"** option in the top toolbar and increase its value until you get the appropriate number.
 
 ![adjusting the magic wand settings](https://images.wondershare.com/filmora/article-images/2023/03/adjusting-the-magic-wand-settings.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 Alternatively, you can reduce the value to deselect the parts of your image. Once you change the value, click on the background and press the **"Delete"** button to remove it.
@@ -84,26 +77,13 @@ You can modify the brush size using the drop-down icon at the top-right of the w
 ![using magic cut to remove image background in photopea](https://images.wondershare.com/filmora/article-images/2023/03/using-magic-cut-to-remove-image-background-in-photopea.png)
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4 Once satisfied with your changes, click **"OK"** to save your settings and remove the background.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Select the Subject Manually When The Image Is Detailed
 
@@ -131,24 +111,18 @@ Step1 Click the **"File"** option from the top menu and select **"Open & Place..
 
 ![adding new background to image in photopea](https://images.wondershare.com/filmora/article-images/2023/03/adding-new-background-to-image-in-photopea.png)
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Choose the new background image from your system and click **"Open"** to import it to **"Photopea."**
 
 Step3 Now, click the **"Edit"** option from the top menu and select **"Transform" > "Scale."** Drag the handles to resize the background image and click **"Enter"** to apply the changes.
 
 ![scaling the new background image](https://images.wondershare.com/filmora/article-images/2023/03/scaling-the-new-background-image.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Under the **"Layers"** header in the right panel, drag the new image layer below the object layer, and the background will be applied to your object.
 
@@ -164,9 +138,23 @@ PixCut's Artificial Intelligence-based background remover can erase the backgrou
 
 With its Image Resizer tool, you can make your image smaller or larger in size to fulfill your requirements.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Manual Background Erase and Restore options
 
 PixCut also offers the "Erase & Restore" tool to help you remove or restore certain parts of your image after removing the background using the AI-based tool.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Background Change
 
@@ -183,23 +171,23 @@ PixCut also removes watermarks from your pictures, allowing you to bypass copyri
 ![wondershare pixcut](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## You May Be Interested In: How To Get Free Images
@@ -211,10 +199,16 @@ Hopefully, you've found this guide helpful and can now make changes to your imag
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -257,22 +251,20 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-beyond-flying-fun-in-depth-dji-phantom-4-examination/"><u>[New] 2024 Approved Beyond Flying Fun In-Depth DJI Phantom 4 Examination</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-budget-friendly-high-resolution-cameras/"><u>[New] 2024 Approved Budget-Friendly High-Resolution Cameras</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-become-a-zoom-pro-navigating-the-best-practices-for-snaps-in-snapchat-for-2024/"><u>[New] Become a Zoom Pro Navigating the Best Practices for Snaps in Snapchat for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-capturing-the-future-an-overview-of-iphone-xs-camera-innovations/"><u>[New] In 2024, Capturing the Future An Overview of iPhone X's Camera Innovations</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-discover-the-top-11-kid-videography-gear-for-initial-use/"><u>[New] In 2024, Discover the Top 11 Kid Videography Gear for Initial Use</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-top-10-sci-fi-vr-adventures-new-realms-unveiled-for-2024/"><u>[New] Top 10 Sci-Fi VR Adventures New Realms Unveiled for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-transform-and-edit-videos-like-a-pro-with-these-iphonepc-tools/"><u>[New] Transform and Edit Videos Like a Pro With These iPhone/PC Tools</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-next-gen-televisions-elite-10-rankings/"><u>[Updated] Next-Gen Televisions Elite #10 Rankings</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-playlists-down-to-youtube-the-5-best-conversion-resources-for-2024/"><u>Bring Playlists Down to YouTube The 5 Best Conversion Resources for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-motorola-g54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-enhancing-visuals-5-simple-steps-to-zoom-in-minecraft/"><u>In 2024, Enhancing Visuals 5 Simple Steps to Zoom in Minecraft</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/prepare-your-budget-microsoft-announces-costly-windows-11-updates-beginning-next-year-insights-from-zdnet/"><u>Prepare Your Budget: Microsoft Announces Costly Windows 11 Updates Beginning Next Year - Insights From ZDNet</u></a></li>
-<li><a href="https://extra-information.techidaily.com/reviving-the-workspace-dive-into-windows-10s-innovations/"><u>Reviving the Workspace Dive Into Windows 10'S Innovations</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/steps-to-clear-out-your-youtube-watch-later-collection/"><u>Steps to Clear Out Your YouTube Watch Later Collection</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/toonsmax-app-insight-comprehensive-review-2024/"><u>ToonsMax App Insight - Comprehensive Review 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/zero-dollars-free-techniques-for-desktop-snaps/"><u>Zero Dollars Free Techniques for Desktop Snaps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2023s-samsung-bd-j5900-a-detailed-look-for-2024/"><u>[New] 2023'S Samsung BD-J5900 A Detailed Look for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-assessing-acid-pro-top-alternative-software/"><u>[New] In 2024, Assessing ACID Pro Top Alternative Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-metaverse-compelling-vr-headsets-recommended/"><u>[New] Navigating Metaverse Compelling VR Headsets Recommended</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-what-phone-is-compatible-with-gear-vr-2023-update/"><u>[New] What Phone Is Compatible with Gear VR? -2023 Update</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-how-to-record-ps3-gameplay/"><u>[Updated] How to Record PS3 Gameplay</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-clipmaster-software/"><u>2024 Approved ClipMaster Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-launch-and-lay-the-foundations-of-xps-video-craft/"><u>2024 Approved Launch & Lay the Foundations of XP's Video Craft</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-on-set-questions-answered-quickly/"><u>2024 Approved On-Set Questions Answered Quickly</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-transforming-youtube-videos-bars-free-vision/"><u>2024 Approved Transforming YouTube Videos Bars-Free Vision</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725287072685-dvd2024/"><u>DVD移行ガイド2024：究極手順！ディスクの新規コピーとメディア間転送</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elite-choices-in-total-sweep-cinematography-for-2024/"><u>Elite Choices in Total Sweep Cinematography for 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/solving-the-issue-transferring-windows-7-clones-when-your-machine-fails-to-start/"><u>Solving the Issue: Transferring Windows 7 Clones When Your Machine Fails to Start</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-itel-s23plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-5-best-action-cameras-for-hunting-for-2024/"><u>Top 5 Best Action Cameras for Hunting for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unleashing-creative-potential-with-pixiz-for-photo-videos/"><u>Unleashing Creative Potential with Pixiz for Photo Videos</u></a></li>
 </ul></div>
 

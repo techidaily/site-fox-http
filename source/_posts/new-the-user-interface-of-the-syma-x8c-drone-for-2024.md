@@ -1,7 +1,7 @@
 ---
 title: "[New] The User Interface of the Syma X8C Drone for 2024"
-date: 2024-09-15T19:46:06.741Z
-updated: 2024-09-17T23:39:23.558Z
+date: 2024-10-15T00:00:00.004Z
+updated: 2024-10-15T22:40:37.738Z
 tags: 
   - screen-recording
   - ai video
@@ -78,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/d3f8a164ff7cec81bd719ff1860ad4b428bdab1ff
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -94,6 +101,13 @@ thumbnail: https://thmb.techidaily.com/d3f8a164ff7cec81bd719ff1860ad4b428bdab1ff
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
@@ -102,11 +116,25 @@ thumbnail: https://thmb.techidaily.com/d3f8a164ff7cec81bd719ff1860ad4b428bdab1ff
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -131,12 +159,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-exemplary-melodies-set-for-visual-narratives/"><u>[New] 2024 Approved Exemplary Melodies Set for Visual Narratives</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-analyzing-screen-capture-tech-for-professionals-for-2024/"><u>[New] Analyzing Screen Capture Tech for Professionals for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-efficient-photographic-snipping-techniques-windows-11/"><u>[New] Efficient Photographic Snipping Techniques, Windows 11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-add-music-to-facebook-profile-iphone-and-android-for-2024/"><u>[New] How to Add Music to Facebook Profile (iPhone & Android)？ for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-innovations-in-vr-a-deep-dive-into-the-best-engine-updates/"><u>[New] In 2024, Innovations in VR A Deep Dive Into the Best Engine Updates</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-straightforward-path-to-windows-voice-transformation-for-fishy-sounds/"><u>[New] In 2024, The Straightforward Path to Windows Voice Transformation for Fishy Sounds</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-interior-illumination-through-natural-sun-exposure/"><u>[New] Interior Illumination Through Natural Sun Exposure</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-preserving-past-a-guide-to-digitally-archiving-faded-prints-for-2024/"><u>[New] Preserving Past A Guide to Digitally Archiving Faded Prints for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-resize-photos-on-an-iphone-for-2024/"><u>[Updated] How to Resize Photos on an iPhone for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-affordable-high-definition-cams-for-adventure-enthusiasts/"><u>[Updated] In 2024, Affordable High Definition Cams for Adventure Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-content-with-these-20-pro-video-shortcuts/"><u>[Updated] In 2024, Elevate Your Content With These 20 Pro Video Shortcuts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-high-quality-freely-accessible-music-websites-listed-here/"><u>[Updated] In 2024, High-Quality, Freely Accessible Music Websites Listed Here</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/chinese-memory-tech-firm-targets-195bplus-valuation-through-strategic-financing-as-it-delays-public-offering/"><u>Chinese Memory Tech Firm Targets $19.5B+ Valuation Through Strategic Financing as It Delays Public Offering</u></a></li>
+<li><a href="https://fox-within.techidaily.com/essential-features-of-a-text-document-unveiling-its-attributes/"><u>Essential Features of a Text Document: Unveiling Its Attributes</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/find-your-perfect-youtube-download-solution-with-our-top-picks-an-excellent-alternative-to-dvdvideosoft-for-pc-and-mac-users/"><u>Find Your Perfect YouTube Download Solution with Our Top Picks, an Excellent Alternative to DVDVideoSoft for PC and MAC Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ice-acceleration-showdown-at-the-olympics-2022/"><u>In 2024, Ice Acceleration Showdown at the Olympics, 2022</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-essential-framework-for-adding-media-to-youtube-compilations/"><u>The Essential Framework for Adding Media to YouTube Compilations</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Masterclass in Monochrome Magic  A Professional's Guide for 2024\""
-date: 2024-10-08T16:06:44.069Z
-updated: 2024-10-09T17:41:37.101Z
+date: 2024-10-08T23:39:18.744Z
+updated: 2024-10-16T00:58:19.017Z
 tags: 
   - screen-recording
   - ai video
@@ -59,6 +59,20 @@ If you want to add color to your black or white shirt, you can do it by “Hue a
 
 ![ pick the color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Tip 4: Use Direct Selection Color Picker
 
 Through the direct selection color picker, you can change the color of an object instantly. For this, create a “Hue and Saturation Adjustment Layer,” click any part of the picture to change its color. Now drag the sliders of saturation to change the color accordingly. On the reset adjustment layer, you can pick the color from the direct selection, such as from the drop-down menu, you can select colors like reds, blues, greens, and blues.
@@ -67,26 +81,6 @@ At the bottom of the options, you can see two points that will tell you about yo
 
 ![ change specific color to another color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-5.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Tip 5: Choose Object Color Range
 
 Do you want to change the color of a specific part of the image? You can do this on Adobe Photoshop photo color editor by going to the "Quick Selection Tool" and then applying the colors, but it may leave edges and curves of the object. So, the recommended way is to navigate to the “Select” tab and then click on “Color Range” from its drop-down menu.
@@ -94,10 +88,10 @@ Do you want to change the color of a specific part of the image? You can do this
 ![access color range option](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 After clicking on the color range option, a pop-up window will appear from which tap on “Selection.” You can view your image on the preview window and can select the whole back using the “Selection” tool.
@@ -105,16 +99,10 @@ After clicking on the color range option, a pop-up window will appear from which
 ![select complete object](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-7.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Afterward, create a group in which add layers, mask, and adjustment layers to change the saturation, color, and brightness of the selected area accurately. To only change the color, drag the sliders of hue to do it instantly.
@@ -122,10 +110,10 @@ Afterward, create a group in which add layers, mask, and adjustment layers to ch
 ![change hue for changing color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Tip 6: Use Blend IF
@@ -144,13 +132,6 @@ It helps the user create transparency across the layer. After hiding the layer a
 
 ![select your new color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Tip 7: Use Online Photo Editor to Change Colors
 
 If you don’t have an offline tool like Adobe Photoshop, you can use an online photo color editor to replace the colors quickly. In this part, we will suggest [BeFunky](https://www.befunky.com/) photo color editor change the photo colors efficiently.
@@ -160,15 +141,28 @@ To change the color, navigate to this tool and upload the images. Then, head to 
 ![select source color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 To increase or decrease the intensity of your color, use the “Tolerance” option, and drag it accordingly. If you want to change the hue of the source color, click on the box next to “Target Color.” If you have accidentally applied any color on some part, you can head to erase tab and can remove the alterations from the brush.
 
 ![choose target color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-13.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -198,16 +192,22 @@ Changing the color of a photo can save us a lot of work done and effort. To effo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-cross-reality-shopping-experiences/"><u>[New] Cross-Reality Shopping Experiences</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-harness-power-of-persuasion-with-these-tips-for-reddit/"><u>[New] Harness Power of Persuasion with These Tips for Reddit</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-covert-measures-for-efficient-home-based-learning/"><u>[New] In 2024, Covert Measures for Efficient Home-Based Learning</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-zipping-to-captions-direct-method-for-srt-file-creation/"><u>[New] In 2024, Zipping to Captions Direct Method for .Srt File Creation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elevate-video-experience-ranking-the-best-12-players/"><u>[Updated] 2024 Approved Elevate Video Experience Ranking the Best 12 Players</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-essential-guide-to-youtube-video-lighting-tips/"><u>[Updated] 2024 Approved The Essential Guide to YouTube Video Lighting Tips</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-best-online-choice-for-quick-hassle-free-gif-conversion-to-video/"><u>[Updated] The Best Online Choice for Quick, Hassle-Free GIF Conversion to Video</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-cultivating-confidence-for-captivating-your-youtube-audience/"><u>2024 Approved Cultivating Confidence for Captivating Your YouTube Audience</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/decoding-the-freeze-in-photo-booth-videos/"><u>Decoding the Freeze in Photo Booth Videos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-honor-v-purse-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Honor V Purse.</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-smart-8-hd-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Smart 8 HD to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-perfect-photos-post-edit-top-6-iphone-techniques-to-tidy-up-images/"><u>[New] Perfect Photos Post-Edit Top 6 iPhone Techniques to Tidy Up Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-15-non-gopro-action-cameras-your-ultimate-guide-for-2024/"><u>[New] Top 15 Non-GoPro Action Cameras Your Ultimate Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-2023s-premier-entryway-toolkit-across-devices/"><u>[Updated] 2024 Approved 2023'S Premier Entryway Toolkit Across Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-composing-engaging-podcast-thumbnails/"><u>[Updated] 2024 Approved Composing Engaging Podcast Thumbnails</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-seamless-speed-control-the-editors-essential-handbook/"><u>[Updated] In 2024, Seamless Speed Control The Editor's Essential Handbook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-increasing-youtube-views-through-consistency-in-creative-commons-compliance/"><u>[Updated] Increasing YouTube Views Through Consistency in Creative Commons Compliance</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-t5-eyes-complete-review-action-footage-reimagined-for-2024/"><u>[Updated] T5 Eye's Complete Review Action Footage Reimagined for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-prime-phone-pals-selecting-speech-to-text-apps-for-offline-use/"><u>2024 Approved Prime Phone Pals Selecting Speech-to-Text Apps for Offline Use</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726226611873-aac-ogg-movavi/"><u>在線AAC OGG無限量移動 - 利用 Movavi規格交換器</u></a></li>
+<li><a href="https://fox-http.techidaily.com/bebops-avian-acrobatics-a-parrot-revelation-for-2024/"><u>Bebop's Avian Acrobatics – A Parrot Revelation for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/boost-your-competitive-edge-with-custom-vocal-alteration-techniques-in-free-fire-gaming-no-charge-for-2024/"><u>Boost Your Competitive Edge with Custom Vocal Alteration Techniques in Free Fire Gaming (No Charge!) For 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-mpow-bluetooth-drivers-compatible-with-windows-1187/"><u>Download & Update MPOW Bluetooth Drivers Compatible with Windows 11/8/7</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/from-freezing-points-to-inviting-landscapes/"><u>From Freezing Points to Inviting Landscapes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-excellent-10-drone-fleet-for-professional-photos-and-films/"><u>In 2024, Excellent 10-Drone Fleet for Professional Photos & Films</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-video-capture-on-periscope-a-comprehensive-manual/"><u>Mastering Video Capture on Periscope A Comprehensive Manual</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/speedy-sonic-tuning-devices-index-pc-tablet/"><u>Speedy Sonic Tuning Devices Index (PC, Tablet)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unmatched-smartphone-camera-apps-on-ios-and-android-devices-for-2024/"><u>Unmatched Smartphone Camera Apps on iOS & Android Devices for 2024</u></a></li>
 </ul></div>
 

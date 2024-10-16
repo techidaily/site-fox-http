@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Guide: Why the Nintendo Switch Reigns Supreme Among Handheld Gamers"
-date: 2024-09-15T19:49:13.309Z
-updated: 2024-09-17T22:47:23.810Z
+date: 2024-10-08T18:06:31.998Z
+updated: 2024-10-15T18:30:55.481Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Guide: Why the Nintendo Switch Reigns Supreme Among Handheld Gamers"
@@ -77,6 +77,13 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
@@ -84,10 +91,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -104,13 +111,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -119,14 +119,14 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -147,6 +147,13 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -169,5 +176,21 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-deciphering-the-value-of-photoshop-sway-control/"><u>[New] 2024 Approved Deciphering the Value of Photoshop Sway Control</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-leading-gallery-archive-services/"><u>[New] 2024 Approved Leading Gallery Archive Services</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-pioneering-virtual-experiences-a-report/"><u>[New] 2024 Approved Pioneering Virtual Experiences A Report</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unmatched-document-enhancements-for-2024/"><u>[New] Unmatched Document Enhancements for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-deciphering-the-value-of-photoshop-sway-control/"><u>[Updated] 2024 Approved Deciphering the Value of Photoshop Sway Control</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-dive-deep-into-youtube-shorts-essentials/"><u>2024 Approved Dive Deep Into YouTube Shorts Essentials</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/decision-time-choose-your-dream-video-editor-filmora-or-democracy-creator/"><u>Decision Time! Choose Your Dream Video Editor (Filmora or Democracy Creator)</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-10-pioneering-tech-giants-view-the-future-with-ai-an-expert-roundtable/"><u>How 10 Pioneering Tech Giants View the Future with AI: An Expert Roundtable</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-v-purse-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from V Purse.</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/indispensable-sandbox-journeys-await-for-2024/"><u>Indispensable Sandbox Journeys Await for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/introducing-the-latest-airpods-pro-featuring-enhanced-tracking-and-new-charging-options-insights-from-apples-announcement/"><u>Introducing the Latest AirPods Pro Featuring Enhanced Tracking & New Charging Options - Insights From Apple's Announcement</u></a></li>
+<li><a href="https://fox-http.techidaily.com/pro-4k-capture-the-definitive-seven-cameras-for-2024/"><u>Pro 4K Capture The Definitive Seven Cameras for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-common-starcraft-amoled-on-computer-errors-and-solutions/"><u>Troubleshooting Common Starcraft Amoled on Computer Errors and Solutions</u></a></li>
+</ul></div>
 

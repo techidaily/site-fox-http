@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Cataloging Camera Types for Visual Media"
-date: 2024-09-10T23:28:01.096Z
-updated: 2024-09-17T18:50:38.104Z
+date: 2024-10-10T02:15:29.350Z
+updated: 2024-10-16T00:46:41.810Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
 
 ![ Consumer video camera](https://images.wondershare.com/filmora/article-images/consumer-camera-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Consumer video cameras refer to simple cameras designed for personal non-professional use. In most cases, these cameras are less expensive and can be bought in the range of **$200** to **$1,500** and they usually come with smaller imaging chips. The images from consumer video cameras are not as great in terms of quality as the images from a professional camera.
 
  The other characteristic of consumer cameras is that they are smaller and simpler to operate, with most of them being fully automatic. But users still have the versatility to manually adjust other settings such as exposure audio level, focus and white balance amongst others. Unlike their professional counterparts, consumer cameras don’t have extensions to allow for extra audio inputs for professional sound equipment and all of them have fixed lenses with outdated digital revolution.
@@ -55,6 +62,13 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
 ## 3. Pro Consumer Video Camera
 
 ![Prosumer camera](https://images.wondershare.com/filmora/article-images/prosumer-video-camera.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Next in the list are pro consumer video cameras. Pro consumer cameras lie in between consumer cameras and professional cameras. They are the cameras with smaller form factors than the larger cameras which are usually mounted on the shoulders for big budget TV production. However, the cameras are packed with enough features to grant professional image quality and are sufficient to do just any job.
 
@@ -77,15 +91,22 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
  These cameras have the capability to do everything that a traditional program could do, but with the added advantage of achieving the same tasks at relatively affordable rates. They are also ideal for high-end freelance broadcast work and film making.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5. DSLR Video Cameras
 
 ![DRSL video camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  DSLR (Digital Single Lens Reflex) is basically digital photo camera fitted with the ability to take high quality HD videos. The popularity of these cameras has grown in the past few years due to three outstanding characteristics below common to all DSLR cameras:
 
@@ -100,13 +121,6 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
  Additionally, DSLR cameras don’t have an XLR audio inputs to allow the use of professional mics and mixes and they also have a limited recording time of just 12 minutes per clip and this is not very encouraging if you are in the middle of recording someone’s wedding vows. Even though there are a number of workarounds and third party applications to help in overcoming these shortcomings, they will only add to the cost and complications of DSLR shooting.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -131,5 +145,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-streamlining-the-process-vimeo-to-mp3-conversion/"><u>[New] 2024 Approved Streamlining the Process Vimeo to MP3 Conversion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-ultimate-windows-edition-toolkit-for-videos/"><u>[New] 2024 Approved Ultimate Windows Edition Toolkit for Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-optimal-display-technologies-srgb-over-rgb-for-2024/"><u>[New] Optimal Display Technologies Srgb over Rgb for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-revolutionize-your-designs-incorporating-3d-text-psx/"><u>[Updated] 2024 Approved Revolutionize Your Designs Incorporating 3D Text PSX</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-critical-review-of-vlcs-capture-tools/"><u>[Updated] Critical Review of VLC's Capture Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-snap-to-it-ios-and-android-writers-choice/"><u>[Updated] In 2024, Snap to It – iOS & Android' Writers’ Choice</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveiling-innovative-cloud-storage-options-in-2s024-for-2024/"><u>[Updated] Unveiling Innovative Cloud Storage Options in 2S024 for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-iphone-15-pro-max-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off iPhone 15 Pro Max without Password</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-nokia-150-2023-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Nokia 150 (2023) without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/complete-insight-into-ricoh-theta-s-camera-for-2024/"><u>Complete Insight Into Ricoh Theta S Camera for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/delve-into-hardware-with-toms-technology-hub/"><u>Delve Into Hardware with Tom's Technology Hub</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/demystifying-cc-errors-on-the-latest-windows-os/"><u>Demystifying CC Errors on the Latest Windows OS</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-honor-magic-vs-2-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Honor Magic Vs 2? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://fox-http.techidaily.com/non-athletic-games-the-best-10-front-rows/"><u>Non-Athletic Games The Best 10 Front Rows</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-free-video-fx-apps-the-ultimate-list-for-ios-and-android/"><u>Updated 2024 Approved Free Video FX Apps The Ultimate List for iOS and Android</u></a></li>
+</ul></div>
 

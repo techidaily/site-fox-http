@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlocking Full Capabilities in Mac's Preview Software\""
-date: 2024-09-13T17:16:03.866Z
-updated: 2024-09-18T00:56:07.765Z
+date: 2024-10-13T00:56:36.797Z
+updated: 2024-10-15T23:36:56.087Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,19 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -68,6 +81,13 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -84,13 +104,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -121,10 +134,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -171,6 +184,13 @@ After opening an image, click **File** from the menu bar at the top, and click *
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -205,13 +225,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -235,5 +248,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-simplified-live-mastery-one-channel-broadcast-strategies/"><u>[New] 2024 Approved Simplified LIVE Mastery One-Channel Broadcast Strategies</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-best-of-the-best-androids-top-8-group-chatters/"><u>[New] 2024 Approved The Best of the Best Android's Top 8 Group Chatters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-quick-guide-to-hosting-a-virtual-meeting-with-zoom-on-android-gadgets/"><u>[New] In 2024, Quick Guide to Hosting a Virtual Meeting with Zoom on Android Gadgets</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-premier-collection-of-ae-plugins-unveiled/"><u>[New] In 2024, The Premier Collection of AE Plugins Unveiled</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-seeking-outtop-8-android-apps-for-cost-effective-video-tile-creation/"><u>[New] Seeking Outtop 8 Android Apps for Cost-Effective Video Tile Creation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-timelapse-using-gopro-hero5-black/"><u>[Updated] Mastering Timelapse Using GoPro Hero5 Black</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-blueprint-for-on-screen-dialogues-for-2024/"><u>[Updated] The Blueprint for On-Screen Dialogues for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-guide-to-iconic-covers-top-10-podcast-graphic-tips/"><u>2024 Approved A Guide to Iconic Covers Top 10 Podcast Graphic Tips</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-discovering-8-cost-effective-video-meeting-software-options/"><u>2024 Approved Discovering 8 Cost-Effective Video Meeting Software Options</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/enhanced-with-the-power-of-cookiebot-features/"><u>Enhanced With the Power of Cookiebot Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/expert-review-unveiling-the-features-and-performance-of-apple-tv-4k-gen-3/"><u>Expert Review: Unveiling the Features and Performance of Apple TV 4K (Gen 3)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-craft-professional-edits-with-story-remix-in-windows-photos-app/"><u>In 2024, Craft Professional Edits with Story Remix in Windows Photos App</u></a></li>
+</ul></div>
 
