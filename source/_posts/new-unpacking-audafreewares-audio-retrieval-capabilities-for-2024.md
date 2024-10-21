@@ -1,7 +1,7 @@
 ---
 title: "[New] Unpacking AudaFreeware's Audio Retrieval Capabilities for 2024"
-date: 2024-10-09T01:18:00.099Z
-updated: 2024-10-15T17:26:23.069Z
+date: 2024-10-17T16:01:46.681Z
+updated: 2024-10-21T16:37:40.533Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,19 @@ Pazera is a free audio extractor that allows easy extraction of audio from video
 
 With the Pazera audio extractor, you can quickly extract audio and adjust sample frequency, bit rate, set time limits, and set size limits, and do lots more without necessarily requiring any technical knowledge. Besides, it supports batch processing which makes it easy for users to extract audio from more than one video file in just one click. And you can always take advantage of its advanced features to enhance the audio extraction process.
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Main Features**
 
 **Supported OS:** Windows 10, Windows 2003, Windows 8, Windows Vista, Windows, Windows Server 2008, Windows 7, Windows XP
@@ -61,24 +74,18 @@ With the Pazera audio extractor, you can quickly extract audio and adjust sample
 
 **Best for:** Extracting audios from multiple video files in different formats.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Our Verdict**
 
 Pazera is a great audio extraction tool that can always come in handy for both basic and advanced audio extraction processes. Although the tool has common problems like unavailability of guidelines for installation, malware attacks, audio incompatibility, etc, it's really worth trying.
 
 Unlike many other tools, Pazera, in our honest opinion, has lots of quality features that make audio extraction smooth. Its features are also helpful for users to adjust different aspects of the extracted audio in a very straightforward manner.
-
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **What I like About Pazera**
 
@@ -87,6 +94,13 @@ Unlike many other tools, Pazera, in our honest opinion, has lots of quality feat
 * Highly-intuitive UI makes it very easy to operate.
 * It performs audio extraction fast and efficiently.
 * It supports different audio output formats.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Dislikes About Pazera**
 
@@ -97,13 +111,6 @@ Unlike many other tools, Pazera, in our honest opinion, has lots of quality feat
 ### Does Pazera reduce audio quality?
 
 Truth be told, Pazera extracts audio with high-definition quality. So, you can always rely on it for audio extraction operations.
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Use Pazera to extract audio from a video
 
@@ -122,6 +129,13 @@ Step2 Configure audio output settings such as output formats and others. It's re
 Step3 Once you're done with the configuration process, hit the ‘Convert’ button to begin the extraction process.
 
 ![hit convert button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-use-pazera-to-extract-audio-from-a-video-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Why Pazera Free Audio Extractor is not working?
 
@@ -142,6 +156,13 @@ Well, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is t
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Key Features**
 
@@ -165,10 +186,16 @@ To delete the video clip itself, right-click on it from the timeline and select 
 ![drag upload video to timeline](https://images.wondershare.com/filmora/article-images/2022/07/extract-audio-from-video-files-with-filmora-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Edit the extracted audio track. You can adjust volume, fade in/fade out, split, and do lots more.
@@ -185,13 +212,6 @@ Step4 After you've completed the audio editing operation, click ‘Export’ and
 
 Pazera is not a safe audio extractor tool, as there have been reports that the tool has malware that could compromise computer system functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Is Audio Extractor legit?
 
 Audio extractor is used by a lot of folks globally to extract audio from video files. So, yes, Audio extractor is legit.
@@ -207,31 +227,11 @@ Pazera audio extractor is a decent tool, and it can be utilized by anyone to ext
 * [How to use Filmora to Extract Audio from Video Files](#part4-1)
 * [Hot FAQs on Pazera Extracting Audio](#part5)
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: Overview: What is Pazera and is it Good Enough?
 
 Pazera is a free audio extractor that allows easy extraction of audio from video files without compromising quality. The tool’s user-friendly interface makes it very versatile in performing audio extraction tasks, and the amazing thing is it supports various audio formats.
 
 With the Pazera audio extractor, you can quickly extract audio and adjust sample frequency, bit rate, set time limits, and set size limits, and do lots more without necessarily requiring any technical knowledge. Besides, it supports batch processing which makes it easy for users to extract audio from more than one video file in just one click. And you can always take advantage of its advanced features to enhance the audio extraction process.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Main Features**
 
@@ -262,6 +262,13 @@ Unlike many other tools, Pazera, in our honest opinion, has lots of quality feat
 * Highly-intuitive UI makes it very easy to operate.
 * It performs audio extraction fast and efficiently.
 * It supports different audio output formats.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Dislikes About Pazera**
 
@@ -332,13 +339,6 @@ To delete the video clip itself, right-click on it from the timeline and select 
 
 ![drag upload video to timeline](https://images.wondershare.com/filmora/article-images/2022/07/extract-audio-from-video-files-with-filmora-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Edit the extracted audio track. You can adjust volume, fade in/fade out, split, and do lots more.
 
 ![edit extracted audio track](https://images.wondershare.com/filmora/article-images/2022/07/extract-audio-from-video-files-with-filmora-3.jpg)
@@ -347,14 +347,14 @@ Step4 After you've completed the audio editing operation, click ‘Export’ and
 
 ![click on export](https://images.wondershare.com/filmora/article-images/2022/07/extract-audio-from-video-files-with-filmora-4.jpg)
 
-## Hot FAQs on Pazera Extracting Audio
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Hot FAQs on Pazera Extracting Audio
 
 ### Is Pazera Free Audio Extractor safe?
 
@@ -396,22 +396,24 @@ Pazera audio extractor is a decent tool, and it can be utilized by anyone to ext
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-ios-video-experience-the-10-most-excellent-players/"><u>[New] 2024 Approved IOS Video Experience The 10 Most Excellent Players</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-cost-effective-drone-collection-affordable-flight-gadgets-for-2024/"><u>[New] Cost-Effective Drone Collection Affordable Flight Gadgets for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-hero-11-and-max-360-gopro-challenge-video-quality-faceoff/"><u>[New] In 2024, Hero 11 & Max 360 GoPro Challenge - Video Quality Faceoff</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-interpreting-second-duration-from-mb-content/"><u>[New] Interpreting Second Duration From MB Content</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-exploring-m1s-potential-in-streamlining-editing-tasks/"><u>[Updated] 2024 Approved Exploring M1’s Potential in Streamlining Editing Tasks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-from-tube-to-chat-sharing-video-content-from-youtube-and-twitter-directly/"><u>[Updated] 2024 Approved From Tube to Chat Sharing Video Content From YouTube & Twitter Directly</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-iphones-video-fix-combat-blurry-facebook-videos/"><u>[Updated] 2024 Approved IPhone's Video Fix Combat Blurry Facebook Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-discover-vitas-full-fledged-video-editor-a-detailed-guide-2024/"><u>[Updated] Discover Vita's Full-Fledged Video Editor A Detailed Guide, 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-elevate-media-projects-engaging-with-windows-11-movie-maker-for-2024/"><u>[Updated] Elevate Media Projects Engaging with Windows 11 Movie Maker for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-maximizing-viewing-experience-in-android/"><u>2024 Approved Maximizing Viewing Experience in Android</u></a></li>
-<li><a href="https://win11.techidaily.com/clear-the-path-nine-tricks-to-dodge-steady-windows-update-stalls/"><u>Clear the Path: Nine Tricks to Dodge Steady Windows Update Stalls</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/effective-fixes-for-handling-codec-not-found-issues-in-ms-powerpoint-on-windows-systems/"><u>Effective Fixes for Handling 'Codec Not Found' Issues in MS PowerPoint on Windows Systems</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/fixing-fractured-videos-leveraging-backup-copies/"><u>Fixing Fractured Videos: Leveraging Backup Copies</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/overcoming-phase0exception-in-depth-strategies-to-resolve-stop-error-0x00000078/"><u>Overcoming PHASE0_EXCEPTION: In-Depth Strategies to Resolve Stop Error 0X00000078</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-giants-iron-fisted-approach-to-combatting-false-claims/"><u>Social Giant's Iron-Fisted Approach to Combatting False Claims</u></a></li>
-<li><a href="https://fox-http.techidaily.com/time-honored-tricks-top-1980s-visual-effects-to-elevate-your-edits-for-2024/"><u>Time-Honored Tricks Top 1980S Visual Effects to Elevate Your Edits for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unlocking-youtubes-central-hub-for-video-crafting-for-2024/"><u>Unlocking YouTube's Central Hub for Video Crafting for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-excellence-on-screen-the-years-best-camcorders-reviewed-for-2024/"><u>[New] Excellence on Screen The Year's Best Camcorders Reviewed for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-a-step-by-step-approach-to-pinpointing-stellar-photos-on-pexels/"><u>[New] In 2024, A Step-by-Step Approach to Pinpointing Stellar Photos on Pexels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-inside-secrets-to-stunning-photography-with-canva/"><u>[New] In 2024, Inside Secrets to Stunning Photography with Canva</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leading-streaming-tools-for-online-video-games/"><u>[New] In 2024, Leading Streaming Tools for Online Video Games</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-creating-an-impactful-film-short-summary/"><u>[Updated] 2024 Approved Creating an Impactful Film Short Summary</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-explore-the-potential-of-color-grading-through-luts-and-ar/"><u>[Updated] Explore the Potential of Color Grading Through LUTs and AR</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-propel-your-productivity-mastering-marketing-in-the-telegram-world/"><u>[Updated] Propel Your Productivity Mastering Marketing in the Telegram World</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-secrets-to-streamlining-lone-broadcasts-a-practical-guide-for-2024/"><u>[Updated] Secrets to Streamlining Lone Broadcasts A Practical Guide for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/achieve-peak-efficiency-with-ideal-memory-settings-on-your-amd-ryzen-3000-processors-in-depth-review-from-toms-hardware/"><u>Achieve Peak Efficiency with Ideal Memory Settings on Your AMD Ryzen 3000 Processors - In-Depth Review From Tom's Hardware</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-the-apple-iphone-se-sim-lock-4-easy-methods-by-drfone-ios/"><u>How To Unlock The Apple iPhone SE SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-8-tips-to-prevent-htc-vive-motion-sickness/"><u>In 2024, 8 Tips to Prevent HTC Vive Motion Sickness</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Vivo S18 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-social-media-engagement-on-facebook-twitter-instagram-and-youtube-platforms/"><u>Mastering Social Media Engagement on Facebook, Twitter, Instagram and YouTube Platforms</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/norton-rose-llp-setzt-auf-fortschrittliche-dokumentenverarbeitung-mit-abbyy-recognition-server-zentralisierte-digitalisierung-fur-anwalte/"><u>Norton Rose LLP Setzt Auf Fortschrittliche Dokumentenverarbeitung Mit ABBYY Recognition Server – Zentralisierte Digitalisierung Für Anwälte</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solution-stop-airpods-from-jumping-between-apple-gadgets-seamlessly/"><u>Solution: Stop AirPods From Jumping Between Apple Gadgets Seamlessly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/step-by-step-for-gaining-access-to-the-best-clip-art-for-2024/"><u>Step by Step for Gaining Access to the Best Clip Art for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/tcl-32s325-32-inch-720p-roku-smart-led-tv-2019-review/"><u>TCL 32S325 32-Inch 720P Roku Smart LED TV (2019) Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-new-possibnilities-the-ultimate-selection-of-iphone-add-ons-you-need-now/"><u>Unlocking New Possibnilities: The Ultimate Selection of iPhone Add-Ons You Need Now!</u></a></li>
 </ul></div>
 

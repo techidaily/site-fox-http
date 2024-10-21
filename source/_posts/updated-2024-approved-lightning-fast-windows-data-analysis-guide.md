@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Lightning-Fast Windows Data Analysis Guide\""
-date: 2024-10-13T01:30:58.698Z
-updated: 2024-10-15T22:59:09.396Z
+date: 2024-10-17T16:52:16.151Z
+updated: 2024-10-21T16:06:27.117Z
 tags: 
   - screen-recording
   - ai video
@@ -60,10 +60,10 @@ Step2 Scroll down and download the .msi file. After downloading the installation
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
@@ -71,10 +71,10 @@ Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://g
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
@@ -82,10 +82,10 @@ Step4 After a successful installation, find the file you want to preview and sel
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
@@ -95,6 +95,13 @@ Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years
 Meanwhile, it’s expected that QuickLook will come with a small preview screen. However, that should be enough space to preview whatever file you’re searching for. Also, it’s expected that Windows will embed the QuickLook capabilities into the Photos app. But it’s not yet clear if Peek will work with media files like videos and audio as it is on Mac.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
 
@@ -109,13 +116,6 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 #### 3\. Can QuickLook for Mac edit files?
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -151,15 +151,22 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-tough-titans-tangle-choosing-between-t5-and-sjcam-s6/"><u>[New] 2024 Approved Tough Titans Tangle Choosing Between T5 and SJCAM S6</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-step-by-step-unlocking-the-joys-of-ifunnys-meme-app-for-2024/"><u>[New] Step-by-Step Unlocking the Joys of iFunny's Meme App for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cutting-edge-review-superior-text-plugins-for-adobe-ae/"><u>[Updated] 2024 Approved Cutting-Edge Review Superior Text Plugins for Adobe AE</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-iphone-photo-techniques-mastering-leading-lines/"><u>[Updated] 2024 Approved IPhone Photo Techniques Mastering Leading Lines</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-most-reliable-and-affordable-passport-photo-makers-ranked-for-2024/"><u>[Updated] The Most Reliable and Affordable Passport Photo Makers Ranked for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/10-leading-mobile-vr-headsets-ranked/"><u>10 Leading Mobile VR Headsets Ranked</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/bootable-usb-drive-datenwiederherstellung-auf-windows-1011/"><u>Bootable USB Drive Datenwiederherstellung Auf Windows 10/11</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/efektywny-porzadownik-kopii-zapasowych-dla-serwera-windows-jak-ustalic-drugi-tydzien-na-sukces/"><u>Efektywny Porządownik Kopii Zapasowych Dla Serwera Windows: Jak Ustalić Drugi Tydzień Na Sukces</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-zte-axon-40-lite-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track ZTE Axon 40 Lite without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unleash-the-power-of-your-youtube-channel-with-expert-editing-techniques-for-2024/"><u>Unleash the Power of Your YouTube Channel with Expert Editing Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-efficient-workflow-with-firefoxs-picture-in-picture/"><u>[New] Efficient Workflow with Firefox’s Picture-in-Picture</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-quintessential-vr-cinematic-treasures-for-2024/"><u>[New] Quintessential VR Cinematic Treasures for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-guide-to-zooming-in-win11-for-2024/"><u>[New] The Ultimate Guide to Zooming in Win11 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-periscope-streaming-made-simple/"><u>[Updated] 2024 Approved Periscope Streaming Made Simple</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-behind-the-screen-a-strategic-approach-for-secret-youtube-videos-for-2024/"><u>[Updated] Behind the Screen A Strategic Approach for Secret YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-perfect-photo-finishes-picarts-background-erase-method/"><u>[Updated] In 2024, Perfect Photo Finishes PicArt's Background Erase Method</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unleash-artistry-a-curated-list-of-premium-3d-animation-software/"><u>[Updated] In 2024, Unleash Artistry A Curated List of Premium 3D Animation Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unveiling-creative-twists-transformative-text-in-imagery/"><u>[Updated] In 2024, Unveiling Creative Twists Transformative Text in Imagery</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-prime-gopro-movie-maker-list/"><u>[Updated] Prime GoPro Movie Maker List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-ranked-reddit-discussions-top-10-edition-for-2024/"><u>[Updated] The Ultimate Ranked Reddit Discussions – Top 10 Edition for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-vivo-v29-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Vivo V29 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-the-official-amd-gpio-interface-driver-for-enhanced-pc-performance/"><u>Install the Official AMD GPIO Interface Driver for Enhanced PC Performance</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/macx-dvd-ripper-pro-free-distribution-celebrate-digiarts-decade-with-our-summer-limited-time-campaign/"><u>MacX DVD Ripper Pro Free Distribution - Celebrate DigiArt's Decade with Our Summer Limited-Time Campaign!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-to-apple-watch-sleep-monitoring-top-5-picks/"><u>The Ultimate Guide to Apple Watch Sleep Monitoring - Top 5 Picks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-ultimate-guide-to-iphone-gif-management-for-2024/"><u>The Ultimate Guide to iPhone GIF Management for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-mastering-face-blurring-essential-apps-tips-and-tricks-for-beginners/"><u>Updated In 2024, Mastering Face Blurring Essential Apps, Tips, and Tricks for Beginners</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Realme Narzo 60 5G | Dr.fone</u></a></li>
 </ul></div>
 

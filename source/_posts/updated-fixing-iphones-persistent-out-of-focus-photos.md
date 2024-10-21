@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Fixing iPhone's Persistent Out-of-Focus Photos\""
-date: 2024-09-11T13:05:10.159Z
-updated: 2024-09-12T13:05:10.159Z
+date: 2024-10-16T16:46:49.264Z
+updated: 2024-10-21T16:51:00.526Z
 tags: 
   - screen-recording
   - ai video
@@ -40,25 +40,31 @@ thumbnail: https://thmb.techidaily.com/f7c3dfb51630ea312d0721a61ab19847e1113bba5
 
 ![auto focus](https://images.wondershare.com/filmora/auto-focus.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part2: Lock AE/AF
 
  As in the above tip, we explained to tap on the srceen where you wish to set the focus. However, sometimes, single tapping on the srceen isn’t sufficient. This is because if any kind of movement happens in the scene or if you move, the camera will start re-adjusting its focus which obviously you don’t want. If you seriously want to take a better picture, make sure to lock the focus on the subject in the scene. This can be done by enabling AE/AF feature and doing this will keep the focus on the subject even if anything moves in the scene. To do this, just tap and hold on the subject for a few seconds until you get to see a yellow box at the top of the srceen saying “AE/AF LOCK”. Once you notice, you can release your fingers and start having fun with picture capturing moment.
 
 ![auto focus](https://images.wondershare.com/filmora/ae-lock.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part3: Stand too close is not good
 
@@ -66,38 +72,31 @@ thumbnail: https://thmb.techidaily.com/f7c3dfb51630ea312d0721a61ab19847e1113bba5
 
 ![stand too close](https://images.wondershare.com/filmora/close.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part4: Upgrade iOS
 
  If you are still experiencing out of focus photography after giving try on the above solutions, the problem may have been occur due to the software. When iOS issues bother you and creating such problems, getting the latest iOS update typically solves the issues by removing any bugs and advancing the performance. Hence, it is recommended to update your iOS into the latest version when you are stuck with this iPhone focus issue. To execute this method, just head on to “Settings” > “General” > “Software Update” and look for the updates. You will be able to observe if there is any new update available. If yes, tap on “Install Now”.
 
 ![upgrade ios](https://images.wondershare.com/filmora/upgrade-ios.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part5: Turn off your iPhone
 
  If still the problem persists after using all the fixes, you can try turning off your device as a last resort. This will probably solve your problem and has worked in many cases. If in case it doesn’t work either, the last suggestion we could give you is, stepping towards the nearest Apple support center and consulting there. As they say that the work suits in the hands of the one who is skilled to do it. So, an expert at the iPhone customer service will surely understand the problem and will fix your issue.
 
 ![turn off iphone](https://images.wondershare.com/filmora/turn-off-iphone-ios.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Verdict
 
@@ -106,13 +105,6 @@ thumbnail: https://thmb.techidaily.com/f7c3dfb51630ea312d0721a61ab19847e1113bba5
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -137,5 +129,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/updated-from-silence-to-symphony-adding-audio-elements-to-instareels/"><u>[Updated] From Silence to Symphony Adding Audio Elements to InstaReels</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-how-to-join-someones-live-on-tiktok-for-2024/"><u>[Updated] How to Join Someone's Live on TikTok for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-tecno-camon-20-premier-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/easing-the-loading-trouble-of-enex-driver-into-win11/"><u>Easing the Loading Trouble of eNEX Driver Into Win11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ekran-kaydi-soruda-sonucu-oluyor-ses-olmaya-basladi-movavi/"><u>Ekran Kaydı Soruda [Sonucu Oluyor - Ses Olmaya Başladı] | Movavi</u></a></li>
+<li><a href="https://fox-http.techidaily.com/enhancing-narratives-a-guide-to-using-b-roll-for-2024/"><u>Enhancing Narratives A Guide to Using B-Roll for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/essential-5-pro-drones-for-skilled-drone-pilots-for-2024/"><u>Essential 5 Pro Drones for Skilled Drone Pilots for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/essential-directories-unencumbered-visuals-galore-for-2024/"><u>Essential Directories Unencumbered Visuals Galore for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/forge-viral-content-adobe-memes-for-2024/"><u>Forge Viral Content Adobe Memes for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-monochrome-to-vibrancy-top-11-video-coloring-strategies/"><u>From Monochrome to Vibrancy Top 11 Video Coloring Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/full-scoop-deciphering-the-google-podcast-app/"><u>Full Scoop Deciphering the Google Podcast App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/full-spectrum-on-morphvox-technology-for-voice-conversion/"><u>Full Spectrum on MorphVOX Technology for Voice Conversion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/harnessing-the-power-of-look-up-tables-in-film-grading/"><u>Harnessing the Power of Look-Up Tables in Film Grading</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-on-iphone-13-pro-max-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently On iPhone 13 Pro Max</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-successfully-install-the-latest-updates-for-your-amd-radeon-drivers/"><u>How to Successfully Install the Latest Updates for Your AMD Radeon Drivers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-motorola-moto-g-5g-2023-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Motorola Moto G 5G (2023) Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/utionize-your-branding-50-free-youtube-banners-inside/"><u>Revolutionize Your Branding - 50 Free YouTube Banners Inside!</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/step-by-step-guide-reviving-your-external-hard-drive-with-command-prompt-on-windows-11/"><u>Step-by-Step Guide: Reviving Your External Hard Drive with Command Prompt on Windows 11</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/which-ai-chatbot-leads-the-pack-an-in-depth-comparison-of-microsofts-bing-ai-google-bard-and-chatgpt/"><u>Which AI Chatbot Leads The Pack? An In-Depth Comparison of Microsoft's Bing AI, Google Bard And ChatGPT</u></a></li>
+</ul></div>
 

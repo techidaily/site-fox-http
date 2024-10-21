@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Navigating New Skies with Syma X5C – An Expert’s Take for Novices"
-date: 2024-10-10T22:22:15.047Z
-updated: 2024-10-16T02:33:36.009Z
+date: 2024-10-20T17:09:35.492Z
+updated: 2024-10-21T16:06:36.802Z
 tags: 
   - screen-recording
   - ai video
@@ -97,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
@@ -110,19 +110,19 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -132,10 +132,10 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -163,17 +163,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-manufacture-mirthful-animations-on-giphy/"><u>[Updated] 2024 Approved Manufacture Mirthful Animations on Giphy</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-beyond-low-definition-the-ultimate-path-from-sdr-to-hdri-video/"><u>[Updated] Beyond Low Definition The Ultimate Path From SDR to HDRI Video</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-crafting-visual-narratives-with-premium-text-tools-in-ae-for-2024/"><u>[Updated] Crafting Visual Narratives with Premium Text Tools in AE for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-high-staking-haven-evalutations-for-2024/"><u>[Updated] HIGH-STAKING HAVEN EVALUTATIONS for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-secure-your-photography-leading-software-insights/"><u>[Updated] Secure Your Photography - Leading Software Insights</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-strategic-placements-for-elevating-youtube-videos/"><u>2024 Approved Strategic Placements for Elevating YouTube Videos</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/decoding-the-buzz-potential-unveiling-of-apples-personal-household-bot-pricing-and-launch-date-insights/"><u>Decoding the Buzz: Potential Unveiling of Apple’s Personal Household Bot – Pricing & Launch Date Insights.</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/effective-solutions-for-dealing-with-excessively-growth-of-pagefilesys/"><u>Effective Solutions for Dealing with Excessively Growth of Pagefile.sys</u></a></li>
-<li><a href="https://windows11.techidaily.com/eliminate-troubleshooting-roadblocks-for-compatibility-issues/"><u>Eliminate Troubleshooting Roadblocks for Compatibility Issues</u></a></li>
-<li><a href="https://games-able.techidaily.com/streamlining-playstation-5-subscription-schemes/"><u>Streamlining PlayStation 5 Subscription Schemes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-realme-12-pro-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Realme 12 Pro 5G</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On OnePlus 11R? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-bridging-worlds-unveiling-the-best-6-in-nft-art-for-2024/"><u>[New] Bridging Worlds Unveiling the Best 6 in NFT Art for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nd-game-for-youtube-content-pros-secrets-and-templates/"><u>[New] End Game for YouTube Content Pros' Secrets & Templates</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elite-screenscape-high-quality-4k-panels-for-editors/"><u>[New] In 2024, Elite Screenscape High-Quality 4K Panels for Editors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-speed-eradicating-background-bgs-in-a-flash-for-2024/"><u>[New] Mastering Speed Eradicating Background Bgs in a Flash for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-secrets-for-transcribing-and-converting-video-tweets-into-audio-files-mp3/"><u>[New] Secrets for Transcribing & Converting Video Tweets Into Audio Files (MP3)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-best-of-the-best-windows-11-webcams-for-recording/"><u>[Updated] 2024 Approved Best of the Best Windows 11 Webcams for Recording</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-industrys-choice-our-miniature-dvd-players-guide/"><u>[Updated] 2024 Approved Industry's Choice Our Miniature DVD Players Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unbeatable-upvotes-reddits-hottest-threads-from-history/"><u>[Updated] 2024 Approved Unbeatable Upvotes Reddit's Hottest Threads From History</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-bridging-the-gap-between-standard-and-superior-video-quality-techniques/"><u>[Updated] Bridging the Gap Between Standard and Superior Video Quality Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-high-res-horizon-a-comprehensive-look-at-the-sony-xperia-xz-for-2024/"><u>[Updated] High-Res Horizon - A Comprehensive Look at the Sony Xperia XZ for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-rights-and-recourse-following-sudden-account-suspension-on-fb/"><u>[Updated] In 2024, Rights and Recourse Following Sudden Account Suspension on FB</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-seamlessly-enter-the-realm-of-ios-vr-videos/"><u>[Updated] Seamlessly Enter the Realm of IOS VR Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unlocking-the-secret-strategies-of-instagram-influencers/"><u>2024 Approved Unlocking the Secret Strategies of Instagram Influencers</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/exploring-the-leading-edge-of-web-browsing-the-data-you-need-to-see-powered-by-zdnet-analysis/"><u>Exploring the Leading Edge of Web Browsing : The Data You Need to See | Powered by ZDNet Analysis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/revolutionary-top-8-methods-convert-subtitles-to-srt-format-seamlessly-for-2024/"><u>Revolutionary Top 8 Methods Convert Subtitles to SRT Format Seamlessly for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/todays-biggest-bites-the-top-youtube-hits-for-2024/"><u>Today’s Biggest Bites The Top YouTube Hits for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-oppo-a59-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Oppo A59 5G? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Revamping Your Windows 11 Photo Viewer  Add Filters and Background Music\""
-date: 2024-09-16T22:56:25.063Z
-updated: 2024-09-17T19:09:01.069Z
+date: 2024-10-14T16:42:16.849Z
+updated: 2024-10-21T16:08:04.154Z
 tags: 
   - screen-recording
   - ai video
@@ -70,17 +70,51 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -105,12 +139,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-boosting-snapchat-vibes-with-smart-editing-tricks/"><u>[New] 2024 Approved Boosting Snapchat Vibes with Smart Editing Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-2023s-leading-vr-game-development-tools/"><u>[New] In 2024, 2023'S Leading VR Game Development Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-from-mere-color-to-spectacle-hdr-vs-sdr-in-editing/"><u>[New] In 2024, From Mere Color to Spectacle HDR vs SDR in Editing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transforming-visual-narratives-with-creative-use-of-luts-in-pro/"><u>[New] In 2024, Transforming Visual Narratives with Creative Use of LUTs in Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-colorful-world-of-chroma-key-artistry-explained-for-newcomers/"><u>[New] The Colorful World of Chroma Key Artistry Explained for Newcomers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-a-complete-guide-to-videdit-studio-pro-features-and-more/"><u>[Updated] 2024 Approved A Complete Guide to VidEdit Studio Pro, Features and More</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-essential-scripts-for-advanced-affects-workflows/"><u>[Updated] Essential Scripts for Advanced Affects Workflows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-instantaneous-effortless-podcast-live/"><u>[Updated] In 2024, Instantaneous Effortless Podcast Live</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-revolutionary-no-cost-online-convertors-for-tiktop-to-mp3/"><u>[Updated] In 2024, Revolutionary No-Cost Online Convertors for TikTop to MP3</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-your-journey-to-youtubes-command-center-of-creativity/"><u>2024 Approved Your Journey to YouTube's Command Center of Creativity</u></a></li>
+<li><a href="https://games-able.techidaily.com/high-performance-hardware-top-tier-playtime/"><u>High-Performance Hardware, Top-Tier Playtime</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-view-mov-files-on-samsung-galaxy-z-fold-5-by-aiseesoft-video-converter-play-mov-on-android/"><u>How to view MOV files on Samsung Galaxy Z Fold 5 ?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-of-the-best-ultimate-list-of-gopro-casings/"><u>In 2024, Best of the Best Ultimate List of GoPro Casings</u></a></li>
+</ul></div>
 

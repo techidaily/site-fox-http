@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Preventing Motion Sickness in Virtual Worlds"
-date: 2024-10-12T21:14:37.754Z
-updated: 2024-10-15T19:42:59.359Z
+date: 2024-10-19T16:32:18.259Z
+updated: 2024-10-21T16:51:33.645Z
 tags: 
   - screen-recording
   - ai video
@@ -36,10 +36,16 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
  HTC Vive is aiming at giving its customers the virtual reality experience so real and sick-free that they can fully have fun with the technology and make their money and time spent well. In spite of improvements to game technology in recent years, HTC is focusing heavily these days on making sure users feel correctly oriented. HTC is also at work on boosting the frame rate to match with the body movements and to clear up that nausea-inducing mismatch. The game developers are coming up with a variety of solutions to solve the problem, or at least minimize it. A new technology introduced by the Mayo Clinic is a good hope for HTC Vive to bring its headsets to a whole new level. The hospital has developed algorithms that, when paired with galvanic vestibular stimulation (GVS), can trick the brain into syncing what you're seeing in VR with physical stimulation within a tenth of a second.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8 Tips to reduce motion sickness
@@ -60,16 +66,10 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -97,22 +97,16 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-inside-the-innovations-of-vegaspro-19/"><u>[New] 2024 Approved Inside the Innovations of VegasPro '19</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-the-best-game-video-recording-and-editing-software-for-beginners/"><u>[New] In 2024, The Best Game Video Recording and Editing Software for Beginners</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-liberate-yourself-with-free-movie-player-software/"><u>[New] Liberate Yourself with FREE MOVIE PLAYER Software</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-optimal-display-technologies-srgb-over-rgb/"><u>[Updated] 2024 Approved Optimal Display Technologies Srgb over Rgb</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-android-tutorial-reversed-video-display/"><u>[Updated] Android Tutorial Reversed Video Display</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-exploring-the-depths-of-ifunnys-meme-experience/"><u>[Updated] In 2024, Exploring the Depths of iFunny's Meme Experience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-secure-and-updated-altering-numbers-in-tiktok-profiles/"><u>[Updated] In 2024, Secure and Updated Altering Numbers in TikTok Profiles</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-ready-for-high-res-our-choice-of-best-screenshot-and-recorder-apps/"><u>[Updated] Ready for High-Res Our Choice of Best Screenshot & Recorder Apps</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-the-ultimate-adventure-anthology-top-10-game-selection/"><u>[Updated] The Ultimate Adventure Anthology – Top 10 Game Selection</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-audio-calls-tracker-iphone-voice-memo/"><u>2024 Approved Audio Calls Tracker IPhone Voice Memo</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-motivational-cinema-the-ultimate-guide-to-empowerment-films/"><u>2024 Approved Motivational Cinema The Ultimate Guide to Empowerment Films</u></a></li>
-<li><a href="https://fox-http.techidaily.com/cutting-edge-transitions-for-kinemaster-users-for-2024/"><u>Cutting Edge Transitions for Kinemaster Users for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/gratuito-convertendo-arquivos-oma-em-wav-com-o-movavi-convertidor-online/"><u>Gratuito: Convertendo Arquivos OMA Em WAV Com O Movavi Convertidor Online</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-13-pro-apples-new-iphone-drfone-by-drfone-ios/"><u>How to Unlock iPhone 13 Pro, Apples New iPhone | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-introduction-design-made-simple-and-inexpensive/"><u>In 2024, YouTube Introduction Design Made Simple and Inexpensive</u></a></li>
-<li><a href="https://fox-http.techidaily.com/removing-vibration-effects-from-drones-recordings/"><u>Removing Vibration Effects From Drones' Recordings</u></a></li>
-<li><a href="https://video-capture.techidaily.com/the-downsides-of-using-windows-phone-7-an-in-depth-analysis/"><u>The Downsides of Using Windows Phone 7: An In-Depth Analysis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-set-of-free-photo-screen-shifts/"><u>[New] Ultimate Set of Free Photo Screen Shifts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-navigating-the-world-of-gopro-streaming-and-social-media-networks-for-2024/"><u>[Updated] Navigating the World of Gopro Streaming and Social Media Networks for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-unending-suspension-how-to-erase-youtube-shorts/"><u>2024 Approved Unending Suspension How to Erase YouTube Shorts</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-locked-iphone-13-mini-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>Forgot Locked iPhone 13 mini Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-androids-secret-weapon-for-stunning-time-lagged-footage/"><u>In 2024, Android's Secret Weapon for Stunning Time-Lagged Footage</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-single-tasking-with-background-elimination/"><u>In 2024, Single-Tasking with Background Elimination</u></a></li>
+<li><a href="https://fox-http.techidaily.com/optimizing-your-project-b-roll-utilization-tips-for-2024/"><u>Optimizing Your Project B-Roll Utilization Tips for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-insiders-techniques-for-google-voice-recordings-for-2024/"><u>The Insider's Techniques for Google Voice Recordings for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transform-scenes-into-memorable-moments-your-comprehensive-guide-to-gopro-timelapses-for-2024/"><u>Transform Scenes Into Memorable Moments Your Comprehensive Guide to GoPro Timelapses for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/uncovering-secrets-in-instagram-story-watchers-for-2024/"><u>Uncovering Secrets in Instagram Story Watchers for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-ultimate-mac-video-editing-software-comparison-for-for-2024/"><u>Updated The Ultimate Mac Video Editing Software Comparison For for 2024</u></a></li>
 </ul></div>
 
