@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Time-Honored Tech  Selfies with iPhone X for 2024\""
-date: 2024-10-16T17:10:46.257Z
-updated: 2024-10-21T17:01:51.031Z
+date: 2024-10-20T03:32:34.055Z
+updated: 2024-10-26T16:36:42.751Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -49,6 +56,19 @@ The quality of cameras on iPhones has been improving over the years, and Portrai
 However, the Portrait Mode is only featured on iOS 10.1 or some more recent versions of the iOS, so if you want to use the Portrait Mode you need to upgrade your device's iOS. After you launched the camera app, swipe left and look for the Portrait Mode. Once you find the feature, make sure it is marked yellow, in order to start using its tools. The app will display several different lighting options including the Natural Light preset that is essential for creating photos with Portrait Lightning.
 
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Image resource: 9to5mac
 
@@ -61,10 +81,10 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Image resource: imore
@@ -74,10 +94,10 @@ Launch the Camera app, and swipe to the Portrait option, and then tap on the Cam
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
@@ -120,23 +140,9 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -163,22 +169,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-top-10-tools-to-enhance-your-youtube-vocal-recordings/"><u>[New] 2024 Approved Top 10 Tools to Enhance Your YouTube Vocal Recordings</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-mastering-audio-recording-top-mics-for-4k-video/"><u>[New] In 2024, Mastering Audio Recording - Top Mics for 4K Video</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-next-gen-title-genius-for-online-content-creators/"><u>[New] In 2024, Next-Gen Title Genius for Online Content Creators</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-professional-filmmakers-plug-in-picks-for-final-cut/"><u>[New] Professional Filmmaker's Plug-In Picks for Final Cut</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-ultimate-filmmakers-choice-leading-15-creative-gopro-luts/"><u>[New] Ultimate Filmmaker's Choice Leading 15 Creative GOPRO LUTs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-channel-appeal-with-free-professional-banner-designs-for-2024/"><u>[Updated] Enhance Channel Appeal with Free, Professional Banner Designs for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-integrating-custom-sounds-into-your-whatsapp-experience-for-2024/"><u>[Updated] Integrating Custom Sounds Into Your WhatsApp Experience for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-definitive-guide-for-shoppers-in-the-era-of-virtual-reality-for-2024/"><u>[Updated] The Definitive Guide for Shoppers in the Era of Virtual Reality for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-oneplus-ace-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on OnePlus Ace 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/bridge-gap-twitter-video-and-chrome-compatibility-for-2024/"><u>Bridge Gap Twitter Video and Chrome Compatibility for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/evaluating-ai-in-the-art-of-mixed-drinks/"><u>Evaluating AI in the Art of Mixed Drinks</u></a></li>
-<li><a href="https://win11.techidaily.com/four-hacks-stopping-automatic-windows-and-office-updates/"><u>Four Hacks: Stopping Automatic Windows & Office Updates</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-detailed-exploration-of-the-background-eraser-feature-in-photoshop/"><u>In 2024, Detailed Exploration of the Background Eraser Feature in Photoshop</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Lava Blaze 2 5G | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/mastering-the-art-of-srt-files-an-all-inclusive-guide-to-subtitles-for-2024/"><u>Mastering the Art of SRT Files An All-Inclusive Guide to Subtitles for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/pixels-of-peaceful-tales-video-critique/"><u>Pixels of Peaceful Tales Video Critique</u></a></li>
-<li><a href="https://howto.techidaily.com/zte-axon-40-lite-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>ZTE Axon 40 Lite Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-prime-picks-best-windows-phone-video-players-list/"><u>[New] 2024 Approved Prime Picks Best Windows Phone Video Players List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-winning-strategies-for-win-11s-crashy-photos-app/"><u>[New] In 2024, Winning Strategies for Win 11'S Crashy Photos App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-memorable-images-top-10-best-meme-blueprints-for-2024/"><u>[New] Memorable Images TOP 10 Best Meme Blueprints for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-highlight-hubs-choosing-the-right-online-aids/"><u>[Updated] 2024 Approved Highlight Hubs Choosing the Right Online Aids</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-blueprint-for-thriving-on-instagrams-crowd/"><u>[Updated] 2024 Approved The Blueprint for Thriving on Instagram's Crowd</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-path-to-stardom-logo-creation-tips-for-podcasters/"><u>[Updated] In 2024, The Path to Stardom Logo Creation Tips for Podcasters</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-top-rated-traffic-cameras-for-automobiles-2023/"><u>[Updated] In 2024, Top-Rated Traffic Cameras for Automobiles 2023</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-zoom-breakout-rooms-for-newcomers-explored/"><u>[Updated] In 2024, Zoom Breakout Rooms for Newcomers Explored</u></a></li>
+<li><a href="https://games-able.techidaily.com/exploring-the-depths-of-playnites-fs-mode-for-tvs/"><u>Exploring the Depths of Playnite's FS Mode for TVs</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/free-quick-guide-converting-vob-files-into-wmv-format-on-mac/"><u>Free Quick Guide: Converting VOB Files Into WMV Format on Mac</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-prime-musical-virtuoso-sessions/"><u>In 2024, Prime Musical Virtuoso Sessions</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-the-error-how-to-successfully-restore-or-fix-your-pc-in-windows-10/"><u>Overcoming the Error: How to Successfully Restore or Fix Your PC in Windows 10</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Flight to Perfection  Assessing GoPro Karma's Capabilities\""
-date: 2024-10-17T17:13:06.845Z
-updated: 2024-10-21T16:20:44.740Z
+date: 2024-10-20T04:27:45.959Z
+updated: 2024-10-27T10:03:42.558Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,10 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,10 +100,10 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -115,16 +115,10 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -152,18 +146,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-9-superior-editing-platforms-for-every-drone-operators-level/"><u>[New] 9 Superior Editing Platforms for Every Drone Operator's Level</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-best-mac-microphone-software-a-detailed-look-at-the-five-top-picks/"><u>[New] Best Mac Microphone Software A Detailed Look at the Five Top Picks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-step-up-to-stardom-10-pro-tips-for-pixlr-excellence/"><u>[New] In 2024, Step up to Stardom 10 Pro Tips for Pixlr Excellence</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-silver-winners-prime-dvd-software-for-sierra-os/"><u>[New] Silver Winners Prime Dvd Software for Sierra OS</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-essential-checklist-for-consistent-content-creators-for-2024/"><u>[New] The Essential Checklist for Consistent Content Creators for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-ultimate-guide-easy-file-movement-to-pcs/"><u>[Updated] 2024 Approved The Ultimate Guide Easy File Movement to PCs</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-camera-mastery-expert-tips-for-selecting-best-iphone-views/"><u>[Updated] Camera Mastery Expert Tips for Selecting Best iPhone Views</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-choreographing-attractive-podcast-briefs-for-2024/"><u>[Updated] Choreographing Attractive Podcast Briefs for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-unveiling-30-preferred-steadicam-models-for-high-quality-dslr-projects/"><u>[Updated] In 2024, Unveiling 30 Preferred Steadicam Models for High-Quality DSLR Projects</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/facebook-free-chat-steps-to-access-messenger-independently/"><u>Facebook-Free Chat: Steps to Access Messenger Independently</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-motorola-moto-g-stylus-5g-2023-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Motorola Moto G Stylus 5G (2023) FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-art-of-disguising-reality-learn-free-green-screen-techniques-via-vfx-leaders-on-4-video-platforms-for-2024/"><u>The Art of Disguising Reality Learn Free Green Screen Techniques via VFX Leaders on 4 Video Platforms for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/why-cant-i-answer-calls-with-my-samsung-galaxy-watch-find-out-how-to-fix-it/"><u>Why Can't I Answer Calls with My Samsung Galaxy Watch? Find Out How to Fix It</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-tempo-treasure-hunters-dive-into-free-online-scanners/"><u>[New] 2024 Approved Tempo Treasure Hunters Dive Into FREE Online Scanners</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-angle-away-discover-our-top-11-bridge-photography-tools/"><u>[New] In 2024, Angle Away! Discover Our Top 11 Bridge Photography Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-boost-canons-charm-10-free-luts-tailored-upgrades-await/"><u>[New] In 2024, Boost Canon's Charm 10 Free LUTs, Tailored Upgrades Await</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-integrate-snapchat-into-your-mac-seamlessly/"><u>[New] Integrate Snapchat Into Your Mac Seamlessly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-captivating-colors-in-photos-a-ps-masterclass/"><u>[Updated] 2024 Approved Captivating Colors in Photos A PS Masterclass</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-crafting-characters-the-art-of-3d-text-design-for-2024/"><u>[Updated] Crafting Characters The Art of 3D Text Design for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-perfect-panning-crossfading-in-logic-pro-x/"><u>[Updated] In 2024, Perfect Panning Crossfading in Logic Pro X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-innovating-temporal-displacement-effects-for-2024/"><u>[Updated] Innovating Temporal Displacement Effects for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/elevating-your-ppt-experience-tips-for-gmeet-users-laptopstablets/"><u>Elevating Your PPT Experience Tips for GMeet Users, Laptops/Tablets</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-lost-data-from-apple-iphone-7-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data from Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-on-apple-iphone-se-2020-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID On Apple iPhone SE (2020) without Password?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-oppo-reno-11-pro-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Oppo Reno 11 Pro 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-xiaomi-civi-3-disney-100th-anniversary-edition-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Xiaomi Civi 3 Disney 100th Anniversary Edition without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-visuals-vault-uploading-to-ig/"><u>In 2024, Visuals Vault Uploading to IG</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/open-sticky-notes-in-windows-11-with-precision/"><u>Open Sticky Notes in Windows 11 with Precision</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/resolve-high-cpu-consumption-issues-in-windows-10-a-comprehensive-guide/"><u>Resolve High CPU Consumption Issues in Windows 10: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/secure-engagement-understanding-fair-advertising-on-youtube-for-2024/"><u>Secure Engagement Understanding Fair Advertising on YouTube for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-artistic-edge-premium-text-tools-for-adobe-after-effects/"><u>The Artistic Edge Premium Text Tools for Adobe After Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-complete-voice-change-blueprint-using-morphvox/"><u>The Complete Voice Change Blueprint Using MorphVOX</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unlocking Full Potential of Mac's Preview Tool"
-date: 2024-10-20T16:33:57.568Z
-updated: 2024-10-21T16:05:31.428Z
+date: 2024-10-23T09:53:48.402Z
+updated: 2024-10-27T00:59:09.664Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -56,16 +63,10 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
@@ -81,13 +82,6 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -105,13 +99,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -123,6 +110,13 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -184,6 +178,13 @@ After opening an image, click **File** from the menu bar at the top, and click *
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -218,13 +219,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -250,18 +244,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-starting-from-scratch-motion-graphics-essentials/"><u>[New] 2024 Approved Starting From Scratch Motion Graphics Essentials</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-stream-smart-10-must-know-rules-for-regular-vlogging/"><u>[New] In 2024, Stream Smart 10 Must-Know Rules for Regular Vlogging</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-prioritize-these-5-facts-when-tiktoking-on-macos-for-2024/"><u>[New] Prioritize These 5 Facts When TikToking on macOS for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-ultimate-guide-to-convert-srt-to-txt-in-minutes/"><u>[New] Ultimate Guide to Convert SRT to TXT in Minutes</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-understanding-and-executing-photo-gender-modification-online/"><u>[New] Understanding and Executing Photo Gender Modification Online</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-boosting-your-channel-a-guide-to-amassing-viewers/"><u>[Updated] In 2024, Boosting Your Channel A Guide to Amassing Viewers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-real-world-vr-device-showcase-for-2024/"><u>[Updated] Real-World VR Device Showcase for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-downloads-for-your-canon-imageclass-mf4800-printing-needs/"><u>Easy Downloads for Your Canon ImageCLASS MF4800 Printing Needs</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-tips-for-total-deletion-of-your-yahoo-mail-address/"><u>Expert Tips for Total Deletion of Your Yahoo Mail Address</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/find-the-top-8-video-communication-apps-for-android-groups-for-2024/"><u>Find the Top 8 Video Communication Apps for Android Groups for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-xs-max-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone XS Max Prevention & Solution | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolved-god-of-war-tackles-insufficient-memory-problem/"><u>Resolved: 'God of War' Tackles Insufficient Memory Problem</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-exploring-video-edits-is-inshot-top-choice-for-2024/"><u>[New] Exploring Video Edits Is InShot Top Choice for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ideal-pastimes-pairing-with-your-favorite-audio-shows/"><u>[New] Ideal Pastimes Pairing with Your Favorite Audio Shows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-full-guide-to-vscos-camera-app/"><u>[Updated] 2024 Approved Full Guide to VSCO's Camera App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-a-decade-of-dreamy-vacation-flicks-top-10-titles/"><u>[Updated] In 2024, A Decade of Dreamy Vacation Flicks Top 10 Titles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-tips-on-filming-with-drone-for-2024/"><u>[Updated] Tips on Filming with Drone for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enhancing-your-live-viewing-experience-on-facebook/"><u>Enhancing Your Live Viewing Experience on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-huawei-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Huawei</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-gt-neo-5-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Realme GT Neo 5 Phone without Any Data Loss</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-step-by-step-perfectly-sharing-your-photography-on-youtube/"><u>In 2024, Step-by-Step Perfectly Sharing Your Photography on YouTube</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-blocked-downloads-in-the-ms-store/"><u>Overcoming Blocked Downloads in the MS Store</u></a></li>
+<li><a href="https://fox-http.techidaily.com/rank-the-best-10-cost-free-image-enhancers-for-smartphone-users/"><u>Rank the Best 10 Cost-Free Image Enhancers for Smartphone Users</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-to-fixing-the-missing-opengl32dll-error/"><u>Step-by-Step Guide to Fixing the 'Missing OpenGL32.dll' Error</u></a></li>
 </ul></div>
 

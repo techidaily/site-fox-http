@@ -1,7 +1,7 @@
 ---
 title: "How to Shoot a Green Screen Video for 2024"
-date: 2024-09-06T18:30:10.647Z
-updated: 2024-09-07T18:30:10.647Z
+date: 2024-10-25T11:49:41.592Z
+updated: 2024-10-26T20:41:13.956Z
 tags: 
   - screen-recording
   - ai video
@@ -38,18 +38,6 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
@@ -66,24 +54,12 @@ Don’t throw too much light onto the green background. That will create hotspot
 
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
 Also choose carefully the camera as some cameras are better to shoot green screen video, especially if you are shooting something with a bit of movement. Then shoot your video as HD quality video (720p or higher) and save in a format your green screen software can import.
@@ -96,30 +72,12 @@ Looking for some best cameras for shooting green screen video? Check our picks o
 
 ![Clothing tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 There are some mistakes that you can avoid to help your green screen video look more professional and more realistic. Perhaps one of the simplest mistakes that many people make with green screen video shooting is actually wearing green clothing. If you are wearing clothing or clothing that has buttons or accents that are a similar color green as your selected background green, the image that you project onto the green screen in post-editing will also get picked up by these accents on your clothing or by the clothing itself. This is great if you want to cut off part of an actor's body, but not so professional if you are trying to make an actor appear in a realistic scene.
 
 #### 4 Wrinkles problem in shooting a Green Screen Video
 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
 #### 5 Motion blur problem in shooting a Green Screen Video
@@ -136,12 +94,6 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -167,4 +119,33 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-key-to-staying-put-mastering-6-viewer-friendly-genres/"><u>[New] 2024 Approved The Key to Staying Put Mastering 6 Viewer-Friendly Genres</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-role-of-b-roll-in-polishing-video-projects/"><u>[New] 2024 Approved The Role of B-Roll in Polishing Video Projects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-complete-rundown-top-10-digital-drawing-software-on-chrome-for-2024/"><u>[New] A Complete Rundown Top 10 Digital Drawing Software on Chrome for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-balancing-dynamics-with-controlled-decays-for-2024/"><u>[New] Balancing Dynamics with Controlled Decays for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-exceptional-programs-for-professional-4k-video-capture/"><u>[New] Exceptional Programs for Professional 4K Video Capture</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-m1-pro-vs-m1-max-examining-the-advancements-in-apples-cpu-technology/"><u>[New] In 2024, M1 Pro Vs. M1 Max Examining the Advancements in Apple's CPU Technology</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-top-notch-game-capture-applications-outshining-fbx-capabilities/"><u>[New] In 2024, Top-Notch Game Capture Applications Outshining FBX Capabilities</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-add-border-to-instagram-photos/"><u>[Updated] In 2024, How to Add Border to Instagram Photos?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-perfect-your-visual-storytelling-inserting-titles-into-photo-videos-on-windows/"><u>[Updated] In 2024, Perfect Your Visual Storytelling Inserting Titles Into Photo Videos on Windows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-select-top-6-slide-show-apps-for-latest-iphone-models-for-2024/"><u>[Updated] Select Top 6 Slide Show Apps for Latest iPhone Models for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-list-of-dji-phantom-4-supplements/"><u>[Updated] The Ultimate List of DJI Phantom 4 Supplements</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-immersive-escapes-androidioss-favorite-ar-games/"><u>2024 Approved Immersive Escapes Android/iOS's Favorite AR Games</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comprehensive-tutorial-on-transforming-webm-media-into-efficient-h264-format/"><u>Comprehensive Tutorial on Transforming WebM Media Into Efficient H.ˈ264 Format</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-solutions-for-fixing-the-elusive-user3acdll-error-on-your-computer/"><u>Effective Solutions for Fixing the Elusive User3^[A]^^(C)dll Error on Your Computer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-prime-iphone-photography-top-app-picks-x-7/"><u>In 2024, Prime iPhone Photography Top App Picks (X, 7)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-syncing-youtube-audio-to-film-compositions/"><u>In 2024, Syncing YouTube Audio to Film Compositions</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/top-virtualdub-substitutes-effortlessly-capture-and-save-live-streams-as-mp4/"><u>Top VirtualDub Substitutes: Effortlessly Capture and Save Live Streams as MP4</u></a></li>
+<li><a href="https://fox-http.techidaily.com/total-environmental-immersion-in-media-creation/"><u>Total Environmental Immersion in Media Creation</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-success-on-bumble-overcoming-the-challenge-of-no-matches/"><u>Unlocking Success on Bumble: Overcoming the Challenge of No Matches</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
