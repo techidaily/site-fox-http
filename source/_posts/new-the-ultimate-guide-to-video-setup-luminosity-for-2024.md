@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Guide to Video Setup Luminosity for 2024"
-date: 2024-09-06T18:27:19.939Z
-updated: 2024-09-07T18:27:19.939Z
+date: 2024-10-30T23:25:03.526Z
+updated: 2024-11-01T22:51:09.968Z
 tags: 
   - screen-recording
   - ai video
@@ -16,24 +16,12 @@ keywords: "Video Brightness Basics,Lighting Tips for Videos,Optimal Luminosity L
 thumbnail: https://thmb.techidaily.com/0a9719ddcbae5c52ddb9477f8674bda6f7443fbaaf23c9836dcb573723ce4b8e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Ultimate Guide to Video Setup Luminosity
 
 Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. How-to Guide
 
 **_1) Preparation_**
@@ -60,12 +48,6 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
@@ -90,34 +72,16 @@ Then, we also have a LED ring light that shines toward the camera. The light add
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 After setting up all the lighting above, you can take a look at the comparison below:
 
 **Using Key Light only**
 
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
@@ -127,6 +91,13 @@ After setting up all the lighting above, you can take a look at the comparison b
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -160,4 +131,20 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-how-to-trim-video-in-windows-10-photos-easily/"><u>[New] How to Trim Video in Windows 10 Photos Easily</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-luminous-android-videography-techniques/"><u>[New] In 2024, Luminous Android Videography Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-iphones-detailed-photography-for-2024/"><u>[New] Mastering the Art of iPhone's Detailed Photography for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-grids-that-wow-discover-the-top-apps-for-pics/"><u>[Updated] 2024 Approved Grids That Wow Discover the Top Apps for Pics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-mp4-enhancement-the-ultimate-srt-integration/"><u>[Updated] 2024 Approved Mastering MP4 Enhancement The Ultimate SRT Integration</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elite-gamers-showcase-premium-setups-unveiled/"><u>[Updated] Elite Gamers' Showcase – Premium Setups Unveiled</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-depth-exploration-of-razers-kiyo-cam/"><u>[Updated] In-Depth Exploration of Razer's Kiyo Cam</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-must-see-vr-movies-for-film-enthusiasts/"><u>[Updated] Must-See VR Movies for Film Enthusiasts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1-unpacking-avi-vs-mp4-a-detailed-feature-and-format-comparison-guide/"><u>1. Unpacking AVI vs MP4: A Detailed Feature & Format Comparison Guide</u></a></li>
+<li><a href="https://network-issues.techidaily.com/amd-and-windows-10-unite-for-smooth-driver-load-resolution/"><u>AMD and Windows 10 Unite for Smooth Driver Load Resolution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-samsungs-budget-friendly-5g-galaxy-a51-smartphone/"><u>Expert Analysis of Samsung's Budget-Friendly 5G Galaxy A51 Smartphone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-iphone-14-plus-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From iPhone 14 Plus Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-vivo-t2x-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Vivo T2x 5G</u></a></li>
+</ul></div>
 

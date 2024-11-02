@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Master Videoleap to Capture Up-Close Footage\""
-date: 2024-10-20T02:35:14.076Z
-updated: 2024-10-26T22:37:19.598Z
+date: 2024-10-30T20:05:53.698Z
+updated: 2024-11-01T21:00:12.845Z
 tags: 
   - screen-recording
   - ai video
@@ -61,10 +61,10 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
@@ -72,15 +72,15 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
 * When you are satisfied, simply export the project and your animated zoom video will be saved successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Alternative way to Zoom Video on Computer
 
@@ -96,10 +96,24 @@ If for some reason you are not able to install and use Videoleap on your system 
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -115,24 +129,10 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -166,20 +166,24 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-principles-of-crafting-alluring-vlog-storylines/"><u>[New] 2024 Approved Principles of Crafting Alluring Vlog Storylines</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-designing-multi-layered-photographic-illusions-for-2024/"><u>[New] Designing Multi-Layered Photographic Illusions for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-eyelaughs-funny-image-generator-for-2024/"><u>[New] EyeLaughs Funny Image Generator for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-metaverse-mirth-making-manual-top-funny-imagery-and-techniques-for-2024/"><u>[New] The Metaverse Mirth-Making Manual Top Funny Imagery & Techniques for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-impact-of-new-instagrams-algorithms-on-users/"><u>[Updated] 2024 Approved Impact of New Instagram's Algorithms on Users</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-nightscape-notables-tips-for-capturing-starlit-portraits/"><u>[Updated] 2024 Approved Nightscape Notables Tips for Capturing Starlit Portraits</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-pinterest-video-extraction-top-5-free-tools-ranked-for-2024/"><u>[Updated] Pinterest Video Extraction Top 5 Free Tools Ranked for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-professional-tips-for-high-quality-sports-streaming/"><u>[Updated] Professional Tips for High-Quality Sports Streaming</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-virtual-worlds-for-corporate-growth-and-innovation-for-2024/"><u>[Updated] Virtual Worlds for Corporate Growth and Innovation for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-blending-beats-and-visuals-a-tutorial-on-youtube-music-addition/"><u>2024 Approved Blending Beats and Visuals A Tutorial on YouTube Music Addition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-recode-video-files-to-audio-outputs/"><u>2024 Approved Recode Video Files to Audio Outputs</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-apple-iphone-7-plus-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Ways to Transfer Music from Apple iPhone 7 Plus to Android | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-stunning-sound-editing-tool-exploring-features-advantages-limitations-and-competitors/"><u>New Stunning Sound Editing Tool Exploring Features, Advantages, Limitations, and Competitors</u></a></li>
-<li><a href="https://windows11.techidaily.com/prioritize-and-proliferate-elevating-notifications-in-windows-11/"><u>Prioritize and Proliferate: Elevating Notifications in Windows 11</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-oppo-a58-4g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Oppo A58 4G FRP Bypass</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-secure-youtube-channels-audible-content/"><u>[New] 2024 Approved How to Secure YouTube Channels' Audible Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-srgb-versus-rgb-a-detailed-comparison-for-professionals/"><u>[New] 2024 Approved Srgb Versus Rgb A Detailed Comparison for Professionals</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-360-degree-cameras-vs-3d-cameras-what-are-the-differences/"><u>[New] 360 Degree Cameras Vs 3D Cameras What Are the Differences</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-beginners-guide-to-professional-gif-creation-for-2024/"><u>[New] A Beginner's Guide to Professional GIF Creation for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-secrets-of-earning-big-reddits-13-money-makers/"><u>[New] Secrets of Earning Big Reddit's 13 Money Makers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-jokecrafters-generate-smiles-app/"><u>[Updated] In 2024, JokeCrafters Generate Smiles (App)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-tie-speeches-and-music-to-slide-contents-in-ppt/"><u>[Updated] Tie Speeches and Music to Slide Contents in PPT</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unleash-your-inner-artist-the-ultimate-gif-toolkit-for-memes/"><u>[Updated] Unleash Your Inner Artist The Ultimate GIF Toolkit for Memes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-avoiding-pitfalls-understanding-youtube-standards/"><u>2024 Approved Avoiding Pitfalls Understanding YouTube Standards</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-filmmakers-guide-to-accompanying-unboxings-with-tunes/"><u>2024 Approved The Filmmaker's Guide to Accompanying Unboxings with Tunes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-winning-over-viewers-a-comprehensive-guide-to-growing-followers/"><u>2024 Approved Winning Over Viewers A Comprehensive Guide to Growing Followers</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-vivo-y100a-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Vivo Y100A Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/effortless-guid-partition-restoration-on-windows-11-a-step-by-step-guide/"><u>Effortless Guid Partition Restoration on Windows 11: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/excellent-windows-pens-tablet-notes-companions/"><u>Excellent Windows Pens' Tablet Notes Companions</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/find-the-perfect-signal-booster-the-top-wi-fi-extenders-for-uninterrupted-connectivity/"><u>Find the Perfect Signal Booster: The Top Wi-Fi Extenders for Uninterrupted Connectivity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-essentials-to-produce-a-charismatic-vlog-dialogue/"><u>In 2024, Essentials to Produce a Charismatic Vlog Dialogue</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-converting-dvd-files-using-ffmpeg-on-command-line/"><u>Step-by-Step Guide: Converting DVD Files Using FFmpeg on Command Line</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211383492-9780645738636-the-complete-teachings-of-modern-wicca-for-the-seeker/"><u>The Complete Teachings of Modern Wicca For the Seeker | Free Book</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-guide-to-choosing-the-ideal-aqueous-cooling-solutions-for-computers/"><u>Ultimate Guide to Choosing the Ideal Aqueous Cooling Solutions for Computers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding Windows 11 New Functionality"
-date: 2024-09-06T18:27:19.956Z
-updated: 2024-09-07T18:27:19.956Z
+date: 2024-10-27T16:05:37.985Z
+updated: 2024-11-02T07:59:46.269Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,6 @@ keywords: "Win11 New Features,Unlocking Win11's Capabilities,Understanding Win11
 thumbnail: https://thmb.techidaily.com/943166f05e826acb5eb0097146d69c366fc0ed75a4c0f9eeb903504474e41f95.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Decoding Windows 11 New Functionality
 
 # Windows 10 New Features at a Glance
@@ -46,36 +40,18 @@ Microsoft is clearly looking to bring the world at large on board with Windows 1
 
 ![update win10 13](https://images.wondershare.com/windows10/update-win10-13.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Cortana is one of the biggest features Microsoft is rolling out for the Windows 10\. If you have been using the Windows Phone, then you already have an idea of what to expect from the tablet/PC version. This digital assistant is designed to be vastly superior to Siri or Google Now. You'll find Cortana next to your desktop's start button, but you can also say "Hey, Cortana" to bring it to life. You remain in complete control of how much Cortana knows about you, but you'll definitely love the way Cortana can bring up requested information instantly. Early users have also noted that Cortana is more than capable of maintaining a full, almost-natural conversational flow.
 
 **Edge Web Browser**
 
 ![edge](https://images.wondershare.com/filmora/article-images/edge.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Say goodbye to Internet Explorer. The long-disliked browser is finally being chucked aside, in favor of something that will strive to be decidedly different. Although IE will still support legacy software, Edge is clearly the one taking center stage as the default browser for Windows 10\. Features will include a screen grabbing tool that offers touchscreen sketching capabilities, a reading mode, and even a notepad. Search results will be built around your preferences, and you will have the ability as well to get restaurant information or directions shot to you in an instant.
 
 **Windows 10 Start Menu**
 
 ![a8](https://images.wondershare.com/windows10/a8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 No one really liked the start menu layout for Windows 8 and Windows 8.1\. Windows 10 offers a fantastic improvement to that end. If the start menu looks quite familiar, that's because Microsoft has made it a point to bring back the style virtually all of us prefer. Yet Windows 10 will have some decided differences. The start menu will allow you to look over frequently-used apps, use the universal search without swiping, and yes, the tiles will be there, as well. However, you will be able to control how prominent they are.
 
 These are just three of the new features of Windows 10\. Ready to learn about a few more?
@@ -88,24 +64,12 @@ The above three features are good examples of what Windows 10 will bring to the 
 
 ![xbox games windows10](https://images.wondershare.com/windows10/xboy-games-windows10-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Windows 10 will include an exciting Xbox app, which will come loaded with possibilities. The Xbox app will give you the ability to control your Xbox One, but you'll also be able to utilize your DVR capture for your Windows games. Even more exciting is the way you'll have the ability to play multiplayer titles across between your Xbox One and your PC. With the streaming side of things, Windows 10 will allow you to stream titles from your Xbox Box. There will also be DirectX 12 support.
 
  **Universal Apps**
 
 ![universal_apps](https://images.wondershare.com/filmora/article-images/universal_apps.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If you're going to use Windows 10 across several different devices, you're going to love this aspect. Photos, Music, Video, Map, People, and other apps will be available across all your devices. Furthermore, Windows 10 will ensure that your apps will look and function the same, regardless of the app you're using.
 
  **Design and Interface Improvements**
@@ -141,4 +105,31 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-infographic-hottest-social-media-trends-that-will-take-over-2023/"><u>[New] 2024 Approved Infographic - Hottest Social Media Trends That Will Take Over 2023</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-10-free-premium-quality-photo-collage-ios-apps/"><u>[New] 2024 Approved Top 10 Free, Premium Quality Photo Collage iOS Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-evaluating-the-updated-movavi-video-editor/"><u>[New] Evaluating the Updated Movavi Video Editor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-art-of-cinema-mastering-the-best-5-camera-tips/"><u>[New] In 2024, The Art of Cinema Mastering the Best 5 Camera Tips</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-comprehensively-capturing-your-messenger-conversations/"><u>[Updated] 2024 Approved Comprehensively Capturing Your Messenger Conversations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dji-drone-spectrum-entry-enhanced-and-elite-4k-for-2024/"><u>[Updated] DJI Drone Spectrum Entry, Enhanced, and Elite 4K for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/15-best-stop-motion-films-of-all-time/"><u>15 Best Stop Motion Films of All Time</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-direct-video-tweeting-hacks-smartphones/"><u>2024 Approved Direct Video Tweeting Hacks Smartphones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sparkling-access-methods-for-new-users/"><u>2024 Approved Sparkling Access Methods for New Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/8-free-video-conferencing-software-for-windows-and-mac/"><u>8 Free Video Conferencing Software for Windows and Mac</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/comment-retrouver-des-fichiers-deletes-avec-la-commande-de-boutique-du-clavier/"><u>Comment Retrouver Des Fichiers Deletés Avec La Commande De Boutique Du Clavier</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-policy-remove-overtly-politicalreligious-info/"><u>Facebook's New Policy: Remove Overtly Political/Religious Info</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-xs-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone XS To Other iPhone 12 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-any-honor-magic-5-pro-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Honor Magic 5 Pro Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-learn-to-activate-picture-in-picture-viewing-on-iphones-youtube-app/"><u>In 2024, Learn to Activate Picture-in-Picture Viewing on iPhone's Youtube App</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/professional-editing-strategies-for-youtube-videos-after-upload/"><u>Professional Editing Strategies for YouTube Videos After Upload</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-action-seekers-guide-to-polaroid-xs-100i-for-2024/"><u>The Action Seeker's Guide to Polaroid XS 100I for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

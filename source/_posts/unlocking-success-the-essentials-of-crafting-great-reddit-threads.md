@@ -1,7 +1,7 @@
 ---
 title: "\"Unlocking Success  The Essentials of Crafting Great Reddit Threads\""
-date: 2024-09-06T18:28:15.995Z
-updated: 2024-09-07T18:28:15.995Z
+date: 2024-10-25T20:12:27.924Z
+updated: 2024-11-02T07:53:20.922Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,6 @@ keywords: "Repost Success Tips,Write Winning Reddit Posts,Engage with Top Thread
 thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unlocking Success: The Essentials of Crafting Great Reddit Threads
 
 What's your reason for posting on Reddit? Usually, there are two. Trying to make money on Reddit or trying to grow an audience online.
@@ -35,17 +29,18 @@ This guide covers everything from what to post to how to post and crucial factor
 First, let's go over the technical part of the process- How to post on Reddit, both on Desktop and mobile?
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How to Post on Desktop
 
 To post anything on Reddit, first, you need an account. Click on Sign Up and create your account.
@@ -57,11 +52,12 @@ Step1 Go to reddit.com and click on "Create Post"
 ![post on reddit](https://images.wondershare.com/filmora/article-images/2023/01/create-reddit-post.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Step2 Then, choose a community to post in. This is also known as a subreddit
 
 ![select subreddit to post](https://images.wondershare.com/filmora/article-images/2023/01/choose-community.png)
@@ -73,11 +69,12 @@ Step4 If you want to add images or videos, select "Images & Video" and upload yo
 ![reddit images and videos](https://images.wondershare.com/filmora/article-images/2023/01/images-and-videos.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Step5 The next section is titled "Link". Here, you can add a website you want your post to lead to
 
 Step6 You can also select the "Poll" option and give users the chance to vote on something
@@ -94,15 +91,16 @@ Step1 Click on the "+" button at the bottom of your screen
 
 ![post on reddit mobile](https://images.wondershare.com/filmora/article-images/2023/01/reddit-home.PNG)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step2 Add your title, message, images, links, and anything else you may want
 
 ![type in title on reddit post](https://images.wondershare.com/filmora/article-images/2023/01/reddit-post-title.PNG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Click on Next from the top-right corner of the screen
 
@@ -110,22 +108,17 @@ Step4 Choose the subreddit (community) you want to post your message in
 
 ![select a subreddit to post](https://images.wondershare.com/filmora/article-images/2023/01/reddit-subreddit.PNG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Check if everything looks good, add the appropriate tags
 
 Step6 Hit Post
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Essential Tips That WILL Help You When Posting on Reddit
 
 Reddit, like any platform, has its own rules. Its algorithm that, when followed, rewards you with excellent results.
@@ -142,12 +135,6 @@ Some important rules to follow:
 * You must post relevant content in each subreddit. For example, if you want to post something related to food, you should find a subreddit related to food, e.g., r/food.
 * Most subreddits have their own rules and guidelines within. This is usually displayed on the right-hand side of the page.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Reddiquettes
 
 Simply put, etiquettes refer to Reddit etiquette. They are the dos and don'ts of Reddit. Reddit has posted an[official list of the proper reddiquettes](https://www.reddithelp.com/hc/en-us/articles/205926439) all users should always try and stick to.
@@ -178,18 +165,6 @@ The second, AVOID these three things at all times:
 
 Apart from what has been mentioned above, we also prepared a video to help you with posting on Reddit. If you have any interests, you can watch it to establish your overall outlook on posting on Reddit.
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 The only way to get good and learn how to post on Reddit is with practice. So, use the things you learned here to achieve better results. And keep posting and stay consistent. It will all pay off in the end.
@@ -228,4 +203,22 @@ The only way to get good and learn how to post on Reddit is with practice. So, u
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-pioneering-visual-clarity-best-blu-ray-machines/"><u>[New] 2024 Approved Pioneering Visual Clarity Best Blu-Ray Machines</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-prime-8-converters-seamless-sub-and-srt-transition/"><u>[New] 2024 Approved Prime 8 Converters Seamless Sub and SRT Transition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-embellish-slides-with-sonic-elements/"><u>[New] Embellish Slides with Sonic Elements</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-luminous-color-corrector-kit/"><u>[New] Luminous Color Corrector Kit</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-2023-how-to-watch-facebook-live/"><u>[Updated] 2024 Approved 2023 | How to Watch Facebook Live?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-ace-all-round-strategies-maximizing-efficiency-in-acquiring-and-storing-vimeo-videos/"><u>[Updated] 2024 Approved Ace All-Round Strategies Maximizing Efficiency in Acquiring & Storing Vimeo Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-essential-steps-for-quality-live-cricket-viewing/"><u>[Updated] Essential Steps for Quality Live Cricket Viewing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-crafting-stories-excellence-among-8-film-categories/"><u>[Updated] In 2024, Crafting Stories Excellence Among 8 Film Categories</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-secret-sound-scribes-hidden-audio-logging-for-mobile-devices/"><u>[Updated] In 2024, Secret Sound Scribes Hidden Audio Logging for Mobile Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-woven-wisdom-in-digital-weaves-arvr-quote-compilation/"><u>[Updated] In 2024, Woven Wisdom in Digital Weaves AR/VR Quote Compilation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-meme-generator-zombodroid/"><u>2024 Approved MEME Generator Zombodroid</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-screening-the-modern-internet-best-capture-apps-reviewed/"><u>2024 Approved Screening the Modern Internet Best Capture Apps Reviewed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/androids-premier-music-video-experience-6-picks-for-2024/"><u>Android's Premier Music Video Experience 6 Picks for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-xiaomi-redmi-a2plus-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Xiaomi Redmi A2+ Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-for-overcoming-unauthorized-app-restriction/"><u>Strategies for Overcoming Unauthorized App Restriction</u></a></li>
+</ul></div>
 

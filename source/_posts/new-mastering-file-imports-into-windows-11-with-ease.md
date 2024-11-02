@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering File Imports Into Windows 11 with Ease"
-date: 2024-10-21T03:13:43.109Z
-updated: 2024-10-27T13:49:56.601Z
+date: 2024-10-27T22:14:31.911Z
+updated: 2024-11-01T23:18:32.078Z
 tags: 
   - screen-recording
   - ai video
@@ -47,15 +47,28 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 3: Import Photos and Videos
 
@@ -64,10 +77,10 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 4: Import
@@ -87,28 +100,15 @@ Click the Import button on the Photos app and choose the items that you want to 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Troubleshooting the Phone to PC Connection
 
@@ -120,13 +120,6 @@ As mentioned above, you must ensure that you have enabled media and file transfe
 
 If you have an iPhone, ensure that your device is unlocked. You will get a “Trust this device” prompt and you must accept it. And if your photos are saved directly to iCloud and not your iPhone, you will need to complete a transfer from iCloud, which you can do by visiting the website or using the relevant desktop app.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Import Photos and Video from a Camera
 
 Those who are importing photos and videos from a camera rather than a smartphone can use the above options as well. Both Windows 10 File Explorer and the Photos app will be compatible with your camera, provided it can connect through a USB cable and a USB port on the computer.
@@ -134,6 +127,19 @@ Those who are importing photos and videos from a camera rather than a smartphone
 Connect the camera to your phone and then follow the above steps to import your media content.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -166,24 +172,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-newbie-friendly-guide-to-winning-with-telegram-promotion/"><u>[New] In 2024, Newbie-Friendly Guide to Winning with Telegram Promotion</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-start-your-editing-right-with-free-intros/"><u>[New] In 2024, Start Your Editing Right With Free Intros</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-streamlining-audio-addition-in-creative-cloud-suite/"><u>[New] In 2024, Streamlining Audio Addition in Creative Cloud Suite</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-top-text-tilt-treasures/"><u>[New] In 2024, Top Text Tilt Treasures</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-content-capture-5-must-have-social-apps/"><u>[New] Mastering Content Capture 5 Must-Have Social Apps</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-complete-guide-to-adding-video-filter-magic-to-zoom-meetings/"><u>[New] The Complete Guide to Adding Video Filter Magic to Zoom Meetings</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-virtual-verification-a-new-look-at-app-quality-for-2024/"><u>[New] Virtual Verification A New Look at App Quality for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-drone-deciphers-unlocking-gopro-karma-potential-for-2024/"><u>[Updated] Drone Deciphers Unlocking GoPro Karma Potential for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-list-igtv-masterminds-and-maestros/"><u>[Updated] The Ultimate List IGTV Masterminds & Maestros</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-sound-senses-try-our-free-online-rhythm-analyzers/"><u>2024 Approved Sound Senses Try Our FREE Online Rhythm Analyzers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-audio-enhancement-three-inexpensive-apple-techniques-for-films/"><u>2024 Approved Unlocking Audio Enhancement Three Inexpensive Apple Techniques for Films</u></a></li>
-<li><a href="https://games-able.techidaily.com/break-free-from-consoles-with-pc-advantages/"><u>Break Free From Consoles with PC Advantages</u></a></li>
-<li><a href="https://extra-information.techidaily.com/exploiting-slow-motion-magic-in-phantom/"><u>Exploiting Slow-Motion Magic in Phantom</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-digital-footprints-keeping-your-twitter-vids-safe-and-sound/"><u>In 2024, Digital Footprints Keeping Your Twitter Vids Safe and Sound</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-fcps-ultimate-effect-upgrade-the-best-10-plugins/"><u>In 2024, FCP’s Ultimate Effect Upgrade The Best 10 Plugins</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-apple-iphone-7-plus-to-chromecast-drfone-by-drfone-ios/"><u>In 2024, How to Cast Apple iPhone 7 Plus to Chromecast? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-camon-20-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Tecno Camon 20 Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-uplifting-15-track-news-jingles-playlist-for-2024/"><u>New Uplifting 15-Track News Jingles Playlist for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/solving-msvcp140dll-absence-correctly/"><u>Solving MSVCP140.dll Absence Correctly</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-pioneering-digital-music-management-win-media-and-cds/"><u>[New] 2024 Approved Pioneering Digital Music Management Win, Media and Cds</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-supreme-five-optimal-dvd-software-for-sierra-os/"><u>[New] Supreme Five Optimal Dvd Software for Sierra OS</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafty-laughter-your-adobe-guide/"><u>[Updated] Crafty Laughter Your Adobe Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-quick-tips-speeding-up-video-playback-on-snapchat-for-novices/"><u>[Updated] Quick Tips Speeding Up Video Playback on Snapchat for Novices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-10-superior-video-text-enhancements/"><u>2024 Approved 10 Superior Video Text Enhancements</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elevate-your-fb-video-game-11-winning-strategies/"><u>2024 Approved Elevate Your FB Video Game 11 Winning Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-get-ready-to-win-more-with-this-purely-gratis-voice-modifier/"><u>2024 Approved Get Ready to Win More with This Purely Gratis Voice Modifier</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-multi-image-compositions-photo-montages-guide/"><u>2024 Approved Mastering Multi-Image Compositions Photo Montages Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-monitor-matters-how-to-opt-for-the-best-visual-experience-with-4k-displays/"><u>2024 Approved Monitor Matters How to Opt for the Best Visual Experience with 4K Displays</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfect-for-broadcasters-top-360-cameras-listed/"><u>2024 Approved Perfect for Broadcasters Top 360° Cameras Listed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-ultimate-guide-to-repairing-incompatibility-issues-between-your-app-and-pc/"><u>The Ultimate Guide to Repairing Incompatibility Issues Between Your App and PC</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-the-secrets-to-producing-an-unprecedented-1000-songs-with-artificial-intelligence-essential-tips-revealed/"><u>Unlocking the Secrets to Producing an Unprecedented 1,000 Songs with Artificial Intelligence: Essential Tips Revealed</u></a></li>
 </ul></div>
 

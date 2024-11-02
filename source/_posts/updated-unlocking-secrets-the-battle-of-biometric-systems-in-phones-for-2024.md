@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Secrets  The Battle of Biometric Systems in Phones for 2024\""
-date: 2024-09-06T18:27:13.273Z
-updated: 2024-09-07T18:27:13.273Z
+date: 2024-10-26T05:27:27.993Z
+updated: 2024-11-01T20:01:01.279Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/b4646e6c7dd57e63be8305e5fc613622e6d7e1913
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Ollie Mattison
 
  Mar 27, 2024• Proven solutions
@@ -56,17 +50,12 @@ thumbnail: https://thmb.techidaily.com/b4646e6c7dd57e63be8305e5fc613622e6d7e1913
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
@@ -74,17 +63,12 @@ thumbnail: https://thmb.techidaily.com/b4646e6c7dd57e63be8305e5fc613622e6d7e1913
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Part 3: The Common Inconvenience
 
  When it comes to practicality, we would state that both the phone don’t stand well for it. This is because if you use Apple’s latest invention i.e. iPhone X, you are required to first hold your device in your hand followed by looking at the screen. Then you need to swipe it up for unlocking the device.
@@ -96,17 +80,19 @@ thumbnail: https://thmb.techidaily.com/b4646e6c7dd57e63be8305e5fc613622e6d7e1913
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -150,4 +136,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-syncing-soundscapes-to-pixelated-portraits/"><u>[New] In 2024, Syncing Soundscapes to Pixelated Portraits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-tips-and-tricks-exchanging-images-and-videos-on-apple-devices/"><u>[New] Tips & Tricks Exchanging Images & Videos on Apple Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-dominate-any-space-the-ultimate-metaverse-device-guide/"><u>[Updated] 2024 Approved Dominate Any Space The Ultimate Metaverse Device Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-creative-uses-for-unwanted-or-supplementary-shots-for-2024/"><u>[Updated] Creative Uses for Unwanted or Supplementary Shots for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-cutting-ties-in-cyberspace-an-exit-strategy-from-discords-for-2024/"><u>[Updated] Cutting Ties in Cyberspace An Exit Strategy From Discords for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-enabling-effortless-speech-translation-to-text-within-powerpoint-slides/"><u>[Updated] Enabling Effortless Speech Translation to Text Within PowerPoint Slides</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-step-by-step-navigation-in-telegram-web-app/"><u>[Updated] In 2024, Step-by-Step Navigation in Telegram Web App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-youtube-playback-tweaks-turn-off-auto-play-videos/"><u>[Updated] In 2024, YouTube Playback Tweaks Turn Off Auto-Play Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-straightforward-steps-upside-down-video-with-vlc-software/"><u>[Updated] Straightforward Steps Upside-Down Video with VLC Software</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-enhancing-user-experience-with-responsive-html-designs/"><u>2024 Approved Enhancing User Experience with Responsive HTML Designs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-revamping-memories-editing-in-look-back-videos/"><u>2024 Approved Revamping Memories Editing in Look Back Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-transform-speech-into-text-the-accurate-google-method/"><u>2024 Approved Transform Speech Into Text The Accurate Google Method</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-optimal-performance-with-msis-latest-x47-ta/"><u>Get Optimal Performance with MSI's Latest X47지맵드 워크ഫ़ോट 드라이버</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/hd-auflosung-verbessern-und-rekonstruktion-auf-4k-8k-10k-mit-winxvideo-kunstliche-intelligenz-fur-videofreaks/"><u>HD-Auflösung Verbessern Und Rekonstruktion Auf 4K, 8K, 10K Mit WinXVideo - Künstliche Intelligenz Für Videofreaks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-improve-gopro-battery-life/"><u>How to Improve GoPro Battery Life</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-motorola-moto-g24-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Motorola Moto G24 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-the-top-10-drawing-apps-for-chromebooks/"><u>Unveiling the Top 10 Drawing Apps for Chromebooks</u></a></li>
+</ul></div>
 

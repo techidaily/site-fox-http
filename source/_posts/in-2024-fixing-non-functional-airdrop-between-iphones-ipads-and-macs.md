@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Fixing Non-Functional AirDrop Between iPhones, iPads & Macs\""
-date: 2024-10-25T07:23:02.229Z
-updated: 2024-10-27T04:08:58.158Z
+date: 2024-10-29T18:57:19.434Z
+updated: 2024-11-02T01:34:57.326Z
 tags: 
   - screen-recording
   - ai video
@@ -64,26 +64,26 @@ Airdrop contains three options to choose from, Off, Contacts Only, and Everyone.
 
 ![airdrop-detail-setting-on-ios](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-ios.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 03:** Now select Airdrop
 
 **Step 04:** From these three options, make sure to choose "Everyone"
 
 ![airdrop-detail-setting-on-ios2](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-ios2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 It will make your device visible to everyone around you whether they are on your contact list or not.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Airdrop Setting on Mac
@@ -95,13 +95,6 @@ If you are trying to use Airdrop from iPhone or iPad to Mac but the mac is not b
 **Step 02:** It will open a new window. Under this window, select Airdrop from the sidebar
 
 ![airdrop-detail-setting-on-mac-step2](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-mac-step2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 03:** At the bottom of the screen, you can an option named "Allow me to be discovered by". Click on it and select Everyone from the drop-down list.
 
@@ -115,16 +108,16 @@ You can do that on your iPhone simply by navigating to Settings > Wi-Fi. Now tap
 
 ![airdrop-detail-setting-on-mac-step4](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-mac-step4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The same is the case with Bluetooth. Navigate to Settings > Bluetooth. Now tap the Bluetooth switch on/off twice.
 
 ![airdrop-detail-setting-on-mac-step5](https://images.wondershare.com/filmora/article-images/airdrop-detail-setting-on-mac-step5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 After completing all the stated methods, the Airdrop will start to work properly. But it is important for your device to be compatible with Airdrop. Check your device in the list of compatible devices before trying these methods. If you are still facing the same problem of Airdrop not working, then the last option is to reset your device. To reset your device, follow the following steps.
 
@@ -152,6 +145,13 @@ We have tried to compile all the possible ways to fix the problem of Airdrop not
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -177,22 +177,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-decreasing-decibents-deliberately-logic-pros-volume-techniques/"><u>[New] 2024 Approved Decreasing Decibents Deliberately Logic Pro's Volume Techniques</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-art-of-podcast-blurbs-techniques-and-illustrations/"><u>[New] 2024 Approved The Art of Podcast Blurbs Techniques and Illustrations</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-unlocking-the-door-to-seamless-zoom-sessions/"><u>[New] 2024 Approved Unlocking the Door to Seamless Zoom Sessions</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-pro-tools-for-pc-gamers-screen-record-windows-10/"><u>[New] In 2024, Pro Tools for PC Gamers Screen Record Windows 10</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-top-10-innovative-podcast-microphone-picks/"><u>[New] In 2024, Top 10 Innovative Podcast Microphone Picks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-easy-laughter-the-art-of-creating-funny-memes/"><u>[Updated] 2024 Approved Easy Laughter The Art of Creating Funny Memes</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-breaking-boundaries-custom-font-use-in-after-effects-for-2024/"><u>[Updated] Breaking Boundaries Custom Font Use in After Effects for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-funny-carousel-image-builder-for-2024/"><u>[Updated] Funny Carousel Image Builder for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-progressive-audio-softening-methods/"><u>[Updated] Progressive Audio Softening Methods</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-reviewing-and-selecting-the-ultimate-5-book-tt-list-for-2024/"><u>[Updated] Reviewing and Selecting The Ultimate 5 Book TT List for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-streamline-sound-capture-using-audacity-efficiently-on-a-mac/"><u>2024 Approved Streamline Sound Capture Using Audacity Efficiently on a Mac</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-top-10-online-stores-for-personalized-box-designs/"><u>2024 Approved Top 10 Online Stores for Personalized Box Designs</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-realme-10t-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Realme 10T 5G Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-savory-scenes-mastering-the-art-of-eating-focused-filmography/"><u>In 2024, Savory Scenes Mastering the Art of Eating-Focused Filmography</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-smooth-transition-optimal-8-sub-to-srt-modules/"><u>In 2024, Smooth Transition Optimal 8 Sub to SRT Modules</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-on-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock on iPhone 13 Pro Max</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-get-creative-with-free-sound-effects-a-final-cut-pro-users-guide-to-enhancing-audio-for-2024/"><u>New Get Creative with Free Sound Effects A Final Cut Pro Users Guide to Enhancing Audio for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-educational-journey-through-time-with-top-history-yt-channels-for-2024/"><u>[New] Educational Journey Through Time with Top History YT Channels for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-webcam-safety-starts-here-the-10-best-shields/"><u>[Updated] Webcam Safety Starts Here - The 10 Best Shields</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-best-no-cost-cross-platform-laptop-dvd-decoders/"><u>2024 Approved Best No-Cost, Cross-Platform Laptop DVD Decoders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-streamlining-the-update-process-for-accurate-tiktok-age-details/"><u>2024 Approved Streamlining the Update Process for Accurate TikTok Age Details</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-of-the-best-8-cameras-for-top-streaming-experience-for-2024/"><u>Best of the Best 8 Cameras for Top Streaming Experience for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/choosing-between-projectors-and-tvs-for-superior-4k-viewing/"><u>Choosing Between Projectors & TVs for Superior 4K Viewing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-oodle-your-go-to-source-for-complimentary-neighborhood-listings/"><u>Discover Oodle: Your Go-To Source for Complimentary Neighborhood Listings</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/error-code-36-reclaim-space-in-trash/"><u>Error Code 36: Reclaim Space in Trash</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/generate-individual-meme-crafts-today-for-2024/"><u>Generate Individual Meme Crafts Today for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-tecno-pop-7-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Tecno Pop 7 Pro For Mobile Legends? | Dr.fone</u></a></li>
 </ul></div>
 

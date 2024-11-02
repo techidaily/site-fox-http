@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Decreasing Volume Gradually in Garageband"
-date: 2024-10-19T23:08:01.008Z
-updated: 2024-10-27T14:05:06.293Z
+date: 2024-10-30T07:33:29.189Z
+updated: 2024-11-02T09:05:17.796Z
 tags: 
   - screen-recording
   - ai video
@@ -63,15 +63,22 @@ Step3 Scroll down to the fade-out option and turn it.
 
 ![fade audio garageband iphone](https://images.wondershare.com/filmora/article-images/2022/07/fade-audio-garageband-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Hit the done icon.
 
 The fade-out option doesn't offer you much set of control. It usually works as a master track and includes the fade-out effect over all the track channels. You won't be able to edit the fade-out; in simple words, it will automatically select a point where the feature will start working, and it will also control the speed and intensity of the volume drop. It is one of the best features for fading short tracks as it won't lose much audio.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Garageband Alternative to Fade Audio on Mac
@@ -85,6 +92,13 @@ Suppose you are searching for a great MP3 editor that offers various file format
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ![use filmora editor](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This application also offers many features that make the users curious about the application. This application can easily add background music to any video file. You can also change the media file with benefits like split audio, volume adjustment, and adjusting audio. This application also offers audio denoise and equalizer features. You can gather more information by exploring the application.
 
@@ -102,31 +116,11 @@ After the drag and drop procedure, double click on the file and direct yourself 
 
 ![add audio fade in to clip](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3 Save the video
 
 Choose the create option to save the new file if you are done with the adjusting part. You can save your file in several formats such as MP3, MKV, WMV, AVI, etc. you can play the track on various devices like iPad, iPod, iPhone, Zune, etc.
 
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -159,16 +153,10 @@ Choose the create option to save the new file if you are done with the adjusting
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -199,16 +187,17 @@ According to the survey, one of the most searched topics is **how to fade music 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-pc-videography-leveraging-windows-hdr/"><u>[New] PC Videography Leveraging Windows HDR</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-pinnacle-business-cloud-haven/"><u>[Updated] 2024 Approved Pinnacle Business Cloud Haven</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-breaking-barriers-in-drone-races-and-top-5-innovative-fpv-units-for-2024/"><u>[Updated] Breaking Barriers in Drone Races & Top 5 Innovative FPV Units for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-entrepreneurs-guide-free-business-template-plugins/"><u>[Updated] In 2024, Entrepreneur's Guide Free Business Template Plugins</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ideal-youtube-vision-top-video-suggestions-to-energize-your-channel/"><u>[Updated] The Ideal YouTube Vision Top Video Suggestions to Energize Your Channel</u></a></li>
-<li><a href="https://fox-http.techidaily.com/cosmic-realms-unveiled-metaverse-vs-multiverse-for-2024/"><u>Cosmic Realms Unveiled Metaverse vs Multiverse for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722975740753-effortless-driver-update-guide-for-synaptic-ps2-touchpads-get-started-now/"><u>Effortless Driver Update Guide for Synaptic PS/2 Touchpads - Get Started Now!</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/free-easy-methods-to-convert-dng-photos-on-the-web-discover-how-with-movavi/"><u>Free Easy Methods to Convert DNG Photos on the Web - Discover How With Movavi</u></a></li>
-<li><a href="https://driver-error.techidaily.com/happiness-unplugs-wacom-gadgets-united/"><u>Happiness Unplugs: Wacom Gadgets United</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/revolutionize-your-hotel-stay-with-apple-airplay-elite-properties-offering-the-latest-technology-explained/"><u>Revolutionize Your Hotel Stay with Apple AirPlay – Elite Properties Offering the Latest Technology Explained</u></a></li>
-<li><a href="https://article-posts.techidaily.com/slumber-series-evaluating-video-adaptations-of-literary-classics-for-2024/"><u>Slumber Series Evaluating Video Adaptations of Literary Classics for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-creating-skype-chats-for-pc-and-mac-users/"><u>[New] 2024 Approved Creating Skype Chats for PC & Mac Users</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-photo-fables-the-best-ios-and-android-text-apps-for-pictures/"><u>[New] Photo Fables The Best iOS & Android Text Apps for Pictures</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-top-picks-for-professional-video-opening-tools/"><u>[Updated] Top Picks for Professional Video Opening Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-chucklecrafts-create-meme-delight/"><u>2024 Approved ChuckleCrafts Create Meme Delight</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elite-groups-top-12-camcorders-featuring-gps-mapping-capabilities/"><u>2024 Approved Elite Group's Top 12 Camcorders Featuring GPS Mapping Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-produce-personalized-internet-chuckles/"><u>2024 Approved Produce Personalized Internet Chuckles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-rhythmic-reinvention-the-art-of-voice-in-free-fire/"><u>2024 Approved Rhythmic Reinvention The Art of Voice in Free Fire</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-swiftpodcasts-guide-for-iphone-users-download-made-simple/"><u>2024 Approved SwiftPodcasts Guide for iPhone Users - Download Made Simple</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-video-guide-with-annotations-on-youtube-for-2024/"><u>Elevate Your Video Guide with Annotations on YouTube for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-face-id-errors-a-comprehensive-guide-with-14-handy-solutions-for-iphones/"><u>Fixing Face ID Errors: A Comprehensive Guide with 14 Handy Solutions for iPhones</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-12-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 12 without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/overcoming-freeze-error-decoding-code-0x887a0006-on-windows/"><u>Overcoming Freeze Error – Decoding Code 0X887A0006 on Windows</u></a></li>
 </ul></div>
 
