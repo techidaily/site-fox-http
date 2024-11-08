@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pushing Boundaries  Exploring iPhone X's Unique Lens Tech\""
-date: 2024-10-26T00:30:16.840Z
-updated: 2024-11-01T23:57:13.049Z
+date: 2024-11-07T04:14:44.541Z
+updated: 2024-11-07T17:06:38.414Z
 tags: 
   - screen-recording
   - ai video
@@ -42,13 +42,6 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: The importance of depth
 
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
@@ -56,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -81,10 +74,17 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -135,21 +135,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-dynamic-color-grading-using-ae-luts-for-2024/"><u>[New] Dynamic Color Grading Using AE LUTs for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-thorough-investigation-into-simple-hdr-imaging/"><u>[New] In 2024, Thorough Investigation Into Simple HDR Imaging</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-premiere-pros-full-scene-showcase-guide/"><u>[New] Premiere Pro's Full Scene Showcase Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-jungle-beat-parrots/"><u>[Updated] 2024 Approved Jungle Beat Parrots</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-digital-laughter-lab/"><u>[Updated] Digital Laughter Lab</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-iphone-audio-the-complete-guide-to-effortless-recording/"><u>[Updated] In 2024, IPhone Audio The Complete Guide to Effortless Recording</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-top-video-editor-battle-is-inshot-reigning-supreme/"><u>[Updated] Top Video Editor Battle Is InShot Reigning Supreme?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/balancing-dynamics-with-controlled-decays/"><u>Balancing Dynamics with Controlled Decays</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/funnyfilmmaker-quick-comic-creation/"><u>FunnyFilmMaker Quick Comic Creation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-subscriber-supreme-ranked-global-youtube-personalities-by-numbers/"><u>In 2024, Subscriber Supreme Ranked Global YouTube Personalities by Numbers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/laughing-moments-crafting-with-adobe-for-2024/"><u>Laughing Moments Crafting with Adobe for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/navigating-noise-free-auditory-shifts-for-2024/"><u>Navigating Noise-Free Auditory Shifts for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/quick-guide-activatingdeactivating-picture-in-picture-pip-for-youtube/"><u>Quick Guide Activating/Deactivating Picture In Picture (PIP) for YouTube</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-the-dilemma-when-skype-microphone-fails-to-work/"><u>Resolving the Dilemma: When Skype Microphone Fails to Work</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-auteurs-toolkit-5-critical-cinematographic-insights-for-2024/"><u>The Auteur's Toolkit 5 Critical Cinematographic Insights for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-validity-of-vibration-reduction-in-adobes-world-for-2024/"><u>The Validity of Vibration Reduction in Adobe's World for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-your-course-in-the-realm-of-youtube-shorts/"><u>[New] 2024 Approved Charting Your Course in the Realm of YouTube Shorts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-comprehensive-degree-of-view-analysis/"><u>[New] Comprehensive Degree of View Analysis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-evasion-tactics-for-watching-instagram-stories-unattached-to-your-account/"><u>[New] Evasion Tactics for Watching Instagram Stories Unattached to Your Account</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-editors-full-report-on-videocraft-suite-new-horizons-in-editing/"><u>[New] In 2024, Editor's Full Report on VideoCraft Suite - New Horizons in Editing</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-iphone-and-ipad-screen-recording-top-methods-of-2023-for-2024/"><u>[New] IPhone & iPad Screen Recording Top Methods of 2023 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-picture-perfect-with-soundtracked-clips/"><u>[Updated] 2024 Approved Picture Perfect with Soundtracked Clips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-peak-performance-pcs-top-rated-screen-capture-tools-reviewed-for-2024/"><u>[Updated] Peak Performance PCs Top-Rated Screen Capture Tools Reviewed for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-drivers-for-canon-mf8500c-printer-on-windows-7-81-and-10/"><u>Download Drivers for Canon MF8500C Printer on Windows 7, 8.1 & 10</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-helldivers-ii-how-to-resolve-the-initial-black-screen-issue-upon-launch/"><u>Fixing Helldivers II - How to Resolve the Initial Black Screen Issue Upon Launch</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-a-treasure-trove-of-premium-rate-free-luts-revealed/"><u>In 2024, A Treasure Trove of Premium-Rate Free LUTs Revealed</u></a></li>
 </ul></div>
 

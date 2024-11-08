@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beyond Zoom  The Intricacies of iPhone X's Lens Tech for 2024\""
-date: 2024-08-28T17:41:31.703Z
-updated: 2024-08-29T17:41:31.703Z
+date: 2024-11-03T01:05:57.513Z
+updated: 2024-11-07T21:06:04.038Z
 tags: 
   - screen-recording
   - ai video
@@ -44,9 +44,12 @@ thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to use portrait mode
 
  Portrait mode uses your iPhone X’s telephoto lens kit to create images with “bokeh”-esque backgrounds and foregrounds. Portrait Lighting also comes as part of the Portrait Mode with the iPhone X, utilising both machine learning and the depth map of Portrait mode to add exceptional lighting effects to your photos in real time. When you shoot in Portrait mode, the wide-angle measures the difference between what it and the telephoto can see to offer a multi-point depth map. The depth map itself creates artificial depth of field.
@@ -66,11 +69,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
+
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
@@ -78,13 +82,14 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  There are many great reasons for investing in the iPhone X if you are interested in carrying a high-end camera around in your pocket. The phone is the smallest yet to feature two 12MP rear-facing cameras, with the updated telephoto lens also being a big draw for many. The lens has been optically stabilised and had its aperture boosted to f/2.4 from f/2.8\. The phone is now able to offer vastly superior performance in low-light conditions, with the sensor having been completely rebuilt and a brand new image signal processor offering stunning colours and textures. In fact, the phone is able to perform convincingly in low-light conditions even when there are multiple light sources competing.
@@ -94,8 +99,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -119,4 +128,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-innovate-on-screen-imagery-with-youtubes-green-screens-edge/"><u>[New] In 2024, Innovate On-Screen Imagery with YouTube’s Green Screens Edge</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-masterful-examples-of-3d-font-art-available-from-these-9-web-destinations/"><u>[New] Masterful Examples of 3D Font Art Available From These 9 Web Destinations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-aeropixel-remastering-toolkit-windowsmac/"><u>[Updated] 2024 Approved AeroPixel Remastering Toolkit (Windows/Mac)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-perfect-harmony-how-to-add-audio-content-in-adobe-premiere/"><u>[Updated] 2024 Approved Perfect Harmony How To Add Audio Content in Adobe Premiere</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-building-captivating-instagram-feed-layouts/"><u>[Updated] Building Captivating Instagram Feed Layouts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-calculating-video-data-use-in-a-full-day-watch/"><u>[Updated] Calculating Video Data Use in a Full-Day Watch</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-role-of-motion-leveraging-fb-ads-for-outstanding-roi/"><u>[Updated] In 2024, The Role of Motion Leveraging FB Ads for Outstanding ROI</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-tricks-to-acquire-dry-stock-photography/"><u>[Updated] In 2024, Tricks to Acquire Dry Stock Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-perfecting-skies-top-11-must-have-dji-accessories-for-2024/"><u>[Updated] Perfecting Skies Top 11 Must-Have DJI Accessories for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fast-and-secure-free-download-of-current-gigabyte-ethernet-networking-software/"><u>Fast & Secure: Free Download of Current Gigabyte Ethernet Networking Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/from-basics-to-brilliance-fullscreen-proficiency-in-premiere/"><u>From Basics to Brilliance Fullscreen Proficiency in Premiere</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/step-by-step-guide-reviving-your-iphone-without-using-a-previous-backup/"><u>Step-by-Step Guide: Reviving Your iPhone Without Using a Previous Backup</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-tutorial-for-refreshing-your-pcs-usb-sound-card-drivers-on-multiple-windows-versions/"><u>Step-by-Step Tutorial for Refreshing Your PC's USB Sound Card Drivers on Multiple Windows Versions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-hidden-hazards-of-using-ai-as-your-therapeutic-companion-or-clinical-expert/"><u>The Hidden Hazards of Using AI as Your Therapeutic Companion or Clinical Expert</u></a></li>
+</ul></div>
 

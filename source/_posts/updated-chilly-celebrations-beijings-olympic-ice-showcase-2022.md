@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chilly Celebrations  Beijing's Olympic Ice Showcase, 2022\""
-date: 2024-10-27T19:09:11.542Z
-updated: 2024-11-02T07:45:31.240Z
+date: 2024-11-02T17:35:59.965Z
+updated: 2024-11-07T21:38:48.148Z
 tags: 
   - screen-recording
   - ai video
@@ -36,10 +36,10 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
@@ -52,19 +52,6 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
@@ -74,10 +61,10 @@ Injuries are part of sports events but some injuries are gruesome and are result
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
@@ -103,20 +90,13 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
@@ -124,14 +104,14 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
-With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
 
@@ -139,7 +119,21 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
 
@@ -148,10 +142,10 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
@@ -183,22 +177,18 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-enhance-your-iphone-with-tailored-call-alert-sounds/"><u>[New] 2024 Approved Enhance Your iPhone with Tailored Call Alert Sounds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-win-at-watching-basketball-top-15-ways-to-stream-nba-games/"><u>[New] 2024 Approved Win at Watching Basketball Top 15 Ways to Stream NBA Games</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-step-by-step-sharing-media-from-one-iphone-to-another/"><u>[New] Step-by-Step Sharing Media From One iPhone to Another</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-zooms-true-power-tripled-transformation-techniques-for-2024/"><u>[New] Zoom's True Power Tripled Transformation Techniques for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-image-illumination-choose-best-websites-with-photo-framing-features/"><u>[Updated] Image Illumination Choose Best Websites with Photo Framing Features</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-crafting-a-seamless-gift-discovery-journey/"><u>[Updated] In 2024, Crafting a Seamless Gift Discovery Journey</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unveiling-techniques-from-recording-room-to-facebook-lives/"><u>[Updated] In 2024, Unveiling Techniques From Recording Room to Facebook Lives</u></a></li>
-<li><a href="https://win-answers.techidaily.com/expert-advice-fix-your-deathloop-launch-trouble-today/"><u>Expert Advice: Fix Your Deathloop Launch Trouble Today!</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-11-pro-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 11 Pro to iPhone 8/X/11 | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-compile-of-top-15-gopro-stabilizers-and-mounts/"><u>In 2024, Compile of Top 15 GoPro Stabilizers & Mounts</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-apple-iphone-8-plus-drfone-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-maximize-your-seo-top-7-budget-friendly-youtube-tags-extractors-reviewed/"><u>In 2024, Maximize Your SEO Top 7 Budget-Friendly Youtube Tags Extractors Reviewed</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-sphere-of-imaging-who-takes-the-crown/"><u>In 2024, Sphere of Imaging Who Takes the Crown?</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/smart-classroom-gadgets-discover-the-nine-key-tech-products-students-cant-live-without/"><u>Smart Classroom Gadgets: Discover the Nine Key Tech Products Students Can't Live Without</u></a></li>
-<li><a href="https://win11.techidaily.com/the-ultimate-guide-to-restoring-your-windows-11-system/"><u>The Ultimate Guide to Restoring Your Windows 11 System</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/0-editing-skills-every-new-youtuber-must-know-for-2024/"><u>Top 10 Editing Skills Every New YouTuber Must Know for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/uniting-platforms-the-seamless-addition-of-linktree-to-tiktok/"><u>Uniting Platforms The Seamless Addition of Linktree to TikTok</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-profits-demystified-from-clicks-to-credit/"><u>[New] In 2024, YouTube Profits Demystified From Clicks to Credit</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cross-service-playlist-exchange-simplified/"><u>[Updated] 2024 Approved Cross-Service Playlist Exchange Simplified</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-ultimate-5-vr-sets-elevating-uav-experience/"><u>[Updated] 2024 Approved Ultimate 5 VR Sets Elevating UAV Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-retreat-from-macos-sierras-latest-upgrade/"><u>[Updated] How to Retreat From MacOS Sierra's Latest Upgrade</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-the-best-5-devices-to-record-your-virtual-meetings-for-2024/"><u>[Updated] The Best 5 Devices to Record Your Virtual Meetings for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-above-and-beyond-the-best-non-twitter-networks/"><u>2024 Approved Above and Beyond The Best Non-Twitter Networks</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/amplify-your-youtube-audience-three-livestream-strategies/"><u>Amplify Your YouTube Audience Three Livestream Strategies</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/educators-digital-guide-4-essential-gpt-validation-tools/"><u>Educator’s Digital Guide: 4 Essential GPT Validation Tools</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/enhancing-remote-communication-with-effective-skype-screen-sharing-for-2024/"><u>Enhancing Remote Communication with Effective Skype Screen Sharing for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/sli-failed-status-improved/"><u>SLI Failed - Status Improved</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-essence-of-interactive-virtuality/"><u>The Essence of Interactive Virtuality</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-unbeatable-champion-an-in-depth-review-of-the-alienware-aurora-r11-a-gamers-dream/"><u>The Unbeatable Champion: An In-Depth Review of the Alienware Aurora R11 - A Gamer's Dream</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unlocking-vlc-potentials-the-top-10-undiscovered-features-for-2024/"><u>Unlocking VLC Potentials The Top 10 Undiscovered Features for 2024</u></a></li>
 </ul></div>
 

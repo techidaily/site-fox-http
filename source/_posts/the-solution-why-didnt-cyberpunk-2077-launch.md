@@ -1,7 +1,7 @@
 ---
 title: "The Solution: Why Didn't Cyberpunk 2077 Launch?"
-date: 2024-10-27T07:19:45.020Z
-updated: 2024-11-01T23:31:15.066Z
+date: 2024-11-04T00:21:24.124Z
+updated: 2024-11-08T00:12:25.129Z
 tags:
   - win11
   - win10
@@ -31,13 +31,6 @@ It seems that strings of bugs come along with the release of[Cyberpunk 2077](htt
 3. [**Change Graphics performance preference**](https://tools.techidaily.com/drivereasy/download/)
 4. **[Install all Windows updates](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Make sure you’re using a CPU with integrated graphics
 
  When Cyberpunk seems to not be using your GPU, first you need to make sure your**CPU has an integrated graphics card** . In the past few years, Intel rolled out the**F-series CPUs** , such as the i5-10400F and the i3-9100F, which are cheaper than the regular ones for not having integrated graphics. In addition, some**Intel Xeon E3 Processors** designed for servers might not have an integrated GPU. If you’re not sure about your CPU model, contact your supplier.
@@ -45,6 +38,13 @@ It seems that strings of bugs come along with the release of[Cyberpunk 2077](htt
  You also need to make sure that the video output comes from your dedicated graphics card. That means your monitor should be connected with your graphics card.
 
  If you’re sure that your CPU comes with integrated graphics, check out the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 2: Update your graphics driver
 
@@ -83,6 +83,13 @@ To do so, first visit the website of your graphics card manufacturer:
 
  If updating the graphics driver doesn’t help you, take a look at the next method below.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 3: Change Graphics performance preference
 
  Window 10 allows you to customize GPU settings for specific programs, by using a feature called**Graphics performance preference** . If the tricks above don’t give your luck, you can try to**force Cyberpunk 2077 to run on your dedicated GPU** .
@@ -93,45 +100,32 @@ Here’s how:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-1.jpg)
 2. Under the **Multiple displays** section, click **Graphics settings** .  
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/change-preferred-gpu-2.jpg)
 3. Click **Browse**  to specify the file location of the Cyberpunk 2077 launcher.  
-![](https://images.drivereasy.com/wp-content/uploads/2020/11/among-us-change-gpu.jpg)
-4. Click **Options** .  
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/11/among-us-change-gpu.jpg)
+4. Click **Options** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2077-preferred-1.jpg)
 5. Select **High performance** and click **Save** . Then test the gameplay in Cyberpunk 2077.  
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2077-preferred-2.jpg)
 
- If this trick doesn’t solve your problem, you can continue to the next one.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ If this trick doesn’t solve your problem, you can continue to the next one.
 
 ### Fix 4: Install all Windows updates
 
@@ -143,6 +137,13 @@ And it’s quite easy to check for updates:
 ![update & security](https://images.drivereasy.com/wp-content/uploads/2020/10/update-security-2.jpg)
 2. Click **Check for updates** . Then wait for Windows to download and install the available system updates.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/windows-security-update-click-check-for-update.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Once you’ve installed all the system updates, do a reboot and test the gameplay in Cyberpunk 2077.
 
@@ -167,24 +168,20 @@ And it’s quite easy to check for updates:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-step-by-step-to-mastering-adobes-cloud-storage-capabilities-and-options/"><u>[New] 2024 Approved Step-by-Step to Mastering Adobe's Cloud Storage Capabilities & Options</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-aerial-angle-appraisal-overlook/"><u>[New] Aerial Angle Appraisal Overlook</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-ideal-no-ads-screencap-maker-for-phones/"><u>[New] Ideal No-Ads Screencap Maker for Phones</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-pro-video-zoom-editing-cutting-edge-tools-listed/"><u>[New] Pro Video Zoom Editing Cutting Edge Tools Listed</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-quick-assembly-of-stunning-google-collages-for-2024/"><u>[New] Quick Assembly of Stunning Google Collages for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-androids-optimal-cloud-savers-updated-list/"><u>[Updated] 2024 Approved Android's Optimal Cloud Savers Updated List</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-effortlessly-capture-clear-water-scenes-top-tips-exposed/"><u>[Updated] 2024 Approved Effortlessly Capture Clear Water Scenes Top Tips Exposed</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-ultimate-guide-to-ions-pro-3-action-camera-capabilities/"><u>[Updated] 2024 Approved The Ultimate Guide to ION's Pro 3 Action Camera Capabilities</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-direct-link-method-transferring-images-and-videos-on-ios/"><u>[Updated] Direct Link Method Transferring Images & Videos on IOS</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-trusted-6-online-communities-driving-business-growth/"><u>[Updated] In 2024, Trusted 6 Online Communities Driving Business Growth</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-superior-free-viewing-software-guide-top-16-for-2024/"><u>[Updated] Superior Free Viewing Software Guide - Top 16 for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-vlc-mastery-understanding-key-mac-settings-and-options/"><u>[Updated] VLC Mastery Understanding Key Mac Settings and Options</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-worlds-hottest-youtube-personalities-by-subscribers-for-2024/"><u>[Updated] World's Hottest YouTube Personalities by Subscribers for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/complete-solution-fixing-cold-wars-persistent-launch-glitches-on-computer-and-console-systems/"><u>Complete Solution: Fixing Cold War's Persistent Launch Glitches on Computer & Console Systems</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-expertise-in-forming-inspiring-collage-photos/"><u>In 2024, Expertise in Forming Inspiring Collage Photos</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-movie-trailer-maker-software-top-picks-for-mac-and-windows/"><u>New 2024 Approved Movie Trailer Maker Software Top Picks for Mac and Windows</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-the-best-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>New The Best Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcome-discord-network-issues-with-these-packet-loss-solutions/"><u>Overcome Discord Network Issues with These Packet Loss Solutions</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-common-issues-with-a-nonworking-paradox-gaming-application-launcher/"><u>Solving Common Issues with a Nonworking Paradox Gaming Application Launcher</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-quick-tips-tiktok-age-authentication/"><u>[New] 2024 Approved Quick Tips TikTok Age Authentication</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-compile-of-premier-iphone-camera-apps-for-pro-photographers/"><u>[New] Compile of Premier iPhone Camera Apps for Pro Photographers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-innovative-methods-for-enhancing-testimonial-video-authenticity/"><u>[New] In 2024, Innovative Methods for Enhancing Testimonial Video Authenticity</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-master-the-art-of-professional-webcam-filming/"><u>[New] Master the Art of Professional Webcam Filming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-masterclass-in-cross-platform-content-sharing-instagram-plus-tiktok/"><u>[New] Masterclass in Cross-Platform Content Sharing Instagram + TikTok</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-steps-to-identify-your-dream-livestream-platform-for-2024/"><u>[New] Steps to Identify Your Dream Livestream Platform for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-gifs-that-speak-volumes-unveiling-6-critical-strategies-for-memetic-design/"><u>[Updated] 2024 Approved GIFs That Speak Volumes Unveiling 6 Critical Strategies for Memetic Design</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-decoding-the-art-of-enhanced-perception-for-2024/"><u>[Updated] Decoding the Art of Enhanced Perception for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-optimal-vr-headset-choice-embracing-the-freedom-of-mobile-or-the-tethered-experience-in-2024/"><u>[Updated] Optimal VR Headset Choice Embracing the Freedom of Mobile Or The Tethered Experience, In 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-quick-and-easy-mac-screen-captures-utilizing-keyboard-shortcuts/"><u>[Updated] Quick and Easy Mac Screen Captures Utilizing Keyboard Shortcuts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-spark-to-the-future-djis-next-gen-challenge-from-mavic-air/"><u>[Updated] Spark to the Future DJI's Next-Gen Challenge From Mavic Air</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-zest-up-social-feeds-create-meme-adobe-style/"><u>[Updated] Zest Up Social Feeds Create Meme Adobe-Style</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-lava-yuva-3-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Lava Yuva 3 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-poco-c65-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Poco C65 FRP</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-xiaomi-14-pro-frp-by-drfone-android/"><u>Full Guide to Bypass Xiaomi 14 Pro FRP</u></a></li>
 </ul></div>
 
