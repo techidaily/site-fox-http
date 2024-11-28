@@ -1,7 +1,7 @@
 ---
 title: "[New] Premier Movie Sneak Peeks Ensemble"
-date: 2024-11-02T20:54:40.309Z
-updated: 2024-11-08T03:32:51.594Z
+date: 2024-11-16T16:08:27.382Z
+updated: 2024-11-18T16:06:53.286Z
 tags: 
   - screen-recording
   - ai video
@@ -43,13 +43,6 @@ Hello guys, and welcome to another excellent and exciting article. Today we will
 
 ## Part 1\. 10 best movie trailers so far
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. The Dark Knight (2008)
 
 **Director:** Christopher Nolan.
@@ -61,10 +54,10 @@ This story begins with a Joker's destruction in the city of Gotham. Becoming the
 The trailer of this one from our recommendations is full of thriller, suspense, drama, and fighting. It begins with some film blast scenes and then shows thrilling fight and chasing scenes between the Joker and the Batman. Moreover, this trailer's ending scene left great suspense as it shows Batman jumping over a car, and its glass gets broken out.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Braveheart (1995)
@@ -97,6 +90,13 @@ This movie's plot is unique and amazing as it is a biographical film that revolv
 
 The trailer of this one is quite different from all the others we have discussed above as it contains great drama and emotional scenes with a great thriller. It starts from the scenes of the White House, where we can see our protagonist Cecil working in it. Then it shows some emotional scenes of what he and his family suffered from the events in the US. In the end, it shows the name of the leading actors in a very interesting and unique way, making the audience watch it the must.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. The Last Samurai (2003)
 
 **Director:** Edward Zwick.
@@ -127,6 +127,19 @@ This story begins with the missing of the daughter of Keller Dover and her daugh
 
 The trailer of this one in our listings also has excellent suspense and thriller. It shows some scenes from the begging of the film at the start and then shows some scenes of Keller Dover's daughter and her friend missing. After that, there are many fighting, investigating, and dramatic scenes. Moreover, its ending theme is full of thriller, action, and suspense will indeed engage the audience to watch it.
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. War Horse (2011)
 
 **Director:** Steven Spielberg.
@@ -136,6 +149,19 @@ The trailer of this one in our listings also has excellent suspense and thriller
 The storyline of this movie revolves around a young boy named Albert, who has a horse named Joey, which he loves the most. But the whole story changes as Joey is bought by the British horse soldiers during World War I, and Albert chases him with the hope that he will get his friend back again. However, he did not know it would take him near the battlefield.
 
 The trailer of this film is full of thriller, action, love, and suspense. At first, it shows how and when Albert and his horse friend Joey met and became good friends in a few scenes. Then it shows some very emotional scenes like when Joey is getting sold to the British horse soldiers and many more. Moreover, in the end, it shows a scene in which Joey is standing hoping to meet his friend Albert back and the camera is closer to his face, which leaves excellent suspense and will be very emotional for the audience.
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. American Beauty (1999)
 
@@ -157,13 +183,6 @@ The plot of this one revolves around a young cub of a lion named Simba, who has 
 
 The trailer of this last one in our listings is exciting and thrilling as it is full of suspense, adventure, and drama. Moreover, it also contains some great comedy scenes. It contains some emotional scenes from the film at the start. Some adventurous scenes in the middle and end have some thrilling and suspenseful scenes that will indeed engage the audience to watch.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. How to make your own trailer?
 
 We will discuss what if you get great inspiration from this article and want to make a trailer of the next level like these of any of your short films or video efficiently and effectively. The answer is yes. Using [Filmora's](https://tools.techidaily.com/wondershare/filmora/download/) highly advanced new features, you can do editing to any extent, from simple to professional ones, very quickly. Let us show you some great features you can use in your video trailers to make them cinematic and professional.
@@ -180,13 +199,6 @@ As all of us know, masking and blending are those professional effects in video 
 
 AI Portrait is the most important feature when we talk about cinematic trailers. As you can also see in the above trailers, there is a great use of this feature in them and you guys are lucky that it’s available in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which makes it too easy for you to use. Using this feature in Filmora, you can remove your video trailer's background and add significant effects to them in one click from a library with approximately 70 effects. Moreover, you can add AR Stickers to your trailers to make them quite attractive to the viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 So, in the end, the final words for this article are that all the trailers we discuss today are the best among themselves. Their proof is the success of their films, and that's the main thing we all should learn from today's article is that the trailers are the essential things for a movie to be successful. So that's why they need to be professional editing. Because if your trailer is the best one, it will indeed engage a large audience to watch your film. However, we also know that not everyone is too professional in it. Still, using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), even any beginner can edit his videos and trailers professionally with less effort. Thanks for reading.
@@ -194,13 +206,6 @@ So, in the end, the final words for this article are that all the trailers we di
 </article
 1. [Mask and Blend](#part2-1)
 2. [AI Portrait](#part2-2)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1\. 10 best movie trailers so far
 
@@ -214,13 +219,6 @@ This story begins with a Joker's destruction in the city of Gotham. Becoming the
 
 The trailer of this one from our recommendations is full of thriller, suspense, drama, and fighting. It begins with some film blast scenes and then shows thrilling fight and chasing scenes between the Joker and the Batman. Moreover, this trailer's ending scene left great suspense as it shows Batman jumping over a car, and its glass gets broken out.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Braveheart (1995)
 
 **Director:** Mel Gibson.
@@ -261,6 +259,13 @@ This story begins with a combat advisor named Nathan Algren, who is employed to 
 
 The trailer of this film is very thrilling as it includes the fighting scenes throughout the film and a few romantic scenes, which shows that this film will be full of action, drama, and thriller and have a little romance. Its ending scene is also very suspenseful and thrilling.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. The Fighter (2010)
 
 **Director:** David O. Russell.
@@ -280,6 +285,13 @@ The trailer of this movie is full of action, drama, fighting, thriller, suspense
 This story begins with the missing of the daughter of Keller Dover and her daughter's friend. But the actual storyline begins when Keller Dover decides to find his daughter himself as the police are taking too much time to find her. After this decision, he may be closer to his daughter but more comparable to the danger.
 
 The trailer of this one in our listings also has excellent suspense and thriller. It shows some scenes from the begging of the film at the start and then shows some scenes of Keller Dover's daughter and her friend missing. After that, there are many fighting, investigating, and dramatic scenes. Moreover, its ending theme is full of thriller, action, and suspense will indeed engage the audience to watch it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. War Horse (2011)
 
@@ -311,6 +323,19 @@ The plot of this one revolves around a young cub of a lion named Simba, who has 
 
 The trailer of this last one in our listings is exciting and thrilling as it is full of suspense, adventure, and drama. Moreover, it also contains some great comedy scenes. It contains some emotional scenes from the film at the start. Some adventurous scenes in the middle and end have some thrilling and suspenseful scenes that will indeed engage the audience to watch.
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. How to make your own trailer?
 
 We will discuss what if you get great inspiration from this article and want to make a trailer of the next level like these of any of your short films or video efficiently and effectively. The answer is yes. Using [Filmora's](https://tools.techidaily.com/wondershare/filmora/download/) highly advanced new features, you can do editing to any extent, from simple to professional ones, very quickly. Let us show you some great features you can use in your video trailers to make them cinematic and professional.
@@ -318,13 +343,6 @@ We will discuss what if you get great inspiration from this article and want to 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### [Mask and Blend](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -335,10 +353,10 @@ As all of us know, masking and blending are those professional effects in video 
 AI Portrait is the most important feature when we talk about cinematic trailers. As you can also see in the above trailers, there is a great use of this feature in them and you guys are lucky that it’s available in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which makes it too easy for you to use. Using this feature in Filmora, you can remove your video trailer's background and add significant effects to them in one click from a library with approximately 70 effects. Moreover, you can add AR Stickers to your trailers to make them quite attractive to the viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -369,22 +387,18 @@ So, in the end, the final words for this article are that all the trailers we di
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-unrivaled-portable-play-gba-on-your-phone/"><u>[New] 2024 Approved Unrivaled Portable Play GBA on Your Phone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-advanced-tips-for-recording-google-voice-dialogues/"><u>[New] Advanced Tips for Recording Google Voice Dialogues</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/mplify-youtube-performance-rapid-video-rendering-guide-for-2024/"><u>[New] Amplify YouTube Performance - Rapid Video Rendering Guide for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-enhancing-immersive-video-editing-techniques-for-360-in-premiere-for-2024/"><u>[New] Enhancing Immersive Video Editing Techniques for 360° in Premiere for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-visual-velocity-time-lapse-photography-with-samsung-gear-for-2024/"><u>[New] Visual Velocity Time-Lapse Photography with Samsung Gear for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-boost-channels-to-partner-status-in-under-90-days-start-now/"><u>[Updated] 2024 Approved Boost Channels to Partner Status in Under 90 Days, Start Now</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-ultimate-list-low-cost-high-definition-cameras/"><u>[Updated] 2024 Approved Ultimate List Low-Cost, High Definition Cameras</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-revised-question-series-to-connect-with-podcast-audience/"><u>[Updated] In 2024, Revised Question Series to Connect with Podcast Audience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-tips-for-a-seamless-experience-accessing-youtube-video-comments/"><u>[Updated] In 2024, Tips for a Seamless Experience Accessing YouTube Video Comments</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-ultimate-price-guide-for-cloud-storage-services/"><u>[Updated] Ultimate Price Guide for Cloud Storage Services</u></a></li>
-<li><a href="https://techtrends.techidaily.com/correcting-the-glitch-reappearance-of-a-vanished-wi-n-fi-signal/"><u>Correcting the Glitch: Reappearance of a Vanished Wi-N-Fi Signal</u></a></li>
-<li><a href="https://fox-that.techidaily.com/disabling-unwanted-chimes-keep-your-ipad-quiet-when-your-iphone-receives-a-call/"><u>Disabling Unwanted Chimes: Keep Your iPad Quiet When Your iPhone Receives a Call</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-instant-guide-obtaining-safe-free-vlc-media-player-on-a-mac/"><u>In 2024, Instant Guide Obtaining Safe, Free VLC Media Player on a Mac</u></a></li>
-<li><a href="https://fox-http.techidaily.com/innovative-editions-filmmaker-writers-on-windows-for-2024/"><u>Innovative Editions Filmmaker' Writers on WIndows for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/masterful-methods-for-keeping-track-of-messenger-communications/"><u>Masterful Methods for Keeping Track of Messenger Communications</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/no-more-quiet-pcs-fast-fixes-to-bring-back-the-audio-on-any-device/"><u>No More Quiet PCs: Fast Fixes to Bring Back the Audio on Any Device</u></a></li>
-<li><a href="https://fox-http.techidaily.com/ultimate-examination-unveiling-the-360-camera-wonders/"><u>Ultimate Examination Unveiling the 360 Camera Wonders</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-detailed-steps-for-a-flawless-ps3-gameplay-recording-process-for-2024/"><u>[New] Detailed Steps for a Flawless PS3 Gameplay Recording Process for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-enhance-film-scenes-with-soundtracks-in-premiere-pro-for-2024/"><u>[New] Enhance Film Scenes With Soundtracks in Premiere Pro for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-sharing-tunes-instagram-copyright-edicts/"><u>[New] Sharing Tunes Instagram Copyright Edicts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-the-artisans-choice-a-curated-list-of-the-8-premier-drawing-apps-for-iphones/"><u>[New] The Artisan’s Choice A Curated List of the 8 Premier Drawing Apps for iPhones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-a-deep-dive-into-streamlining-your-google-podcast-process/"><u>[Updated] A Deep Dive Into Streamlining Your Google Podcast Process</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-night-avenger-black-vs-day-defender-silver/"><u>[Updated] Night Avenger (Black) VS Day Defender (Silver)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-8-choice-of-cameras-for-excellent-video-feeds/"><u>[Updated] Ultimate 8 Choice of Cameras for Excellent Video Feeds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveiling-innovative-cloud-storage-options-in-2s024-for-2024/"><u>[Updated] Unveiling Innovative Cloud Storage Options in 2S024 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-leading-10-clock-apps-to-time-your-wedding-ceremony/"><u>2024 Approved The Leading 10 Clock Apps to Time Your Wedding Ceremony</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/crafty-tricks-for-extracting-network-info-in-windows-ps/"><u>Crafty Tricks for Extracting Network Info in Windows PS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ags-that-elevate-your-channels-visibility-and-value-for-2024/"><u>Hashtags that Elevate Your Channels' Visibility & Value for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-k70-pro-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi K70 Pro to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721448710927-trouble-with-iphone-cloud-syncing-discover-9-solutions/"><u>Trouble with iPhone Cloud Syncing? Discover 9 Solutions</u></a></li>
 </ul></div>
 

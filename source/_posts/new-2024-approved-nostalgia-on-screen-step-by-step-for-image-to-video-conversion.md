@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Nostalgia on Screen  Step-by-Step for Image to Video Conversion\""
-date: 2024-11-06T19:18:40.034Z
-updated: 2024-11-07T22:07:32.800Z
+date: 2024-11-15T16:46:57.230Z
+updated: 2024-11-18T16:19:46.356Z
 tags: 
   - screen-recording
   - ai video
@@ -83,13 +83,6 @@ To convert your old photos into stunning videos, you can take the assistance of 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
 
 #### 1\.  Import your digitized photos
@@ -97,19 +90,6 @@ To learn how to come up with an impressive video collage using Filmora, just fol
 To start with, you can just launch Filmora on your system and import your photos to the application. Simply click on the “Import” button from the toolbar to insert selective pictures or an entire folder. This will open a browser window, letting you locate and load the photos of your choice.
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. Create a timeline for your photos
 
@@ -122,6 +102,13 @@ Once you have imported your photos, you can include them in the timeline. To do 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -136,10 +123,10 @@ To add text to your videos, just go to the “Titles” option here. This will l
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
@@ -151,13 +138,6 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
@@ -189,9 +169,29 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -218,19 +218,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-vibrant-visual-photo-assemblies-for-joyful-living/"><u>[New] In 2024, Vibrant Visual Photo Assemblies for Joyful Living</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-sierras-complete-access-to-cloud-documentationdrive/"><u>[Updated] 2024 Approved Sierra's Complete Access to Cloud Documentation/Drive</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-twisting-the-norm-your-instagram-video-transformation/"><u>[Updated] In 2024, Twisting the Norm Your Instagram Video Transformation</u></a></li>
-<li><a href="https://games-able.techidaily.com/advanced-mobile-play-controller-enhanced-gaming/"><u>Advanced Mobile Play: Controller-Enhanced Gaming</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/download-the-paper-dashboard-admin-templates-effortless-bootstrap-design-by-creative-tim-free/"><u>Download the Paper Dashboard Admin Templates - Effortless Bootstrap Design by Creative Tim (Free)</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-samsung-galaxy-a34-5g-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Samsung Galaxy A34 5G</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-ace-the-green-screen-scene-with-these-tips/"><u>In 2024, Ace the Green Screen Scene with These Tips</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-easy-start-8-great-beginner-friendly-filming-cameras/"><u>In 2024, Easy Start 8 Great Beginner-Friendly Filming Cameras</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-motorola-moto-g84-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Motorola Moto G84 5G</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-tecno-pova-6-pro-5g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Tecno Pova 6 Pro 5G to Mac? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-transforming-photos-remove-background-with-ease/"><u>In 2024, Transforming Photos Remove Background with Ease</u></a></li>
-<li><a href="https://fox-http.techidaily.com/macs-premier-video-to-mp4-converters-guide-for-2024/"><u>Mac's Premier Video to MP4 Converters Guide for 2024</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/1713954227686-new-2024-approved-whatre-the-best-alternatives-to-pexels/"><u>New 2024 Approved Whatre the Best Alternatives to Pexels?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/removing-obstacles-a-guide-to-pristine-visual-backgrounds-in-canva/"><u>Removing Obstacles A Guide to Pristine Visual Backgrounds in Canva</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-driving-traffic-with-creative-fb-video-marketing-hacks-for-2024/"><u>[New] Driving Traffic with Creative FB Video Marketing Hacks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-step-up-your-gameplay-with-a-top-ranked-no-fee-voice-transformation-tool/"><u>[New] In 2024, Step Up Your Gameplay with a Top-Ranked No-Fee Voice Transformation Tool</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unveiling-the-dynamics-an-in-depth-look-at-luminances-hdr-for-2024/"><u>[New] Unveiling the Dynamics An In-Depth Look at Luminance's HDR for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-comparative-analysis-of-the-metaverse-and-multimeva-worlds-detailed-guide-for-2024/"><u>[Updated] Comparative Analysis of the Metaverse & Multimeva Worlds (Detailed Guide) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dawn-evaluation-non-conformist-thoughts-for-2024/"><u>[Updated] Dawn Evaluation Non-Conformist Thoughts for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-change-your-voice-on-instagram/"><u>[Updated] How to Change Your Voice on Instagram?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-preferred-mkv-player-choices-on-macos/"><u>[Updated] Preferred MKV Player Choices on macOS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/avoid-the-fake-out-maintaining-authenticity-in-likes-for-2024/"><u>Avoid the Fake-Out Maintaining Authenticity in Likes for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exclusive-guide-unbeatable-laptop-offers-during-the-2024-amazon-prime-day-event-shop-smart/"><u>Exclusive Guide: Unbeatable Laptop Offers During the 2024 Amazon Prime Day Event - Shop Smart</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mechanized-sky-dwellers-classes-for-2024/"><u>Mechanized Sky-Dwellers' Classes for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/mkv-to-mp4-obs/"><u>MKV to MP4への変換 - OBS録画ファイルを簡単に変換するガイド</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-nokia-130-music-by-fonelab-android-recover-data/"><u>Recover lost data from Nokia 130 Music</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgrade-acer-display-settings-on-pc/"><u>Upgrade Acer Display Settings on PC</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Visions to Reality  VR's Historical Journey\""
-date: 2024-11-04T00:09:47.696Z
-updated: 2024-11-07T19:54:31.857Z
+date: 2024-11-14T16:20:13.739Z
+updated: 2024-11-18T16:53:17.905Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,10 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in which individuals can watch a holographic recording of virtual stories including touch and smell. This amazing vision of the future would actually turn into what we think of as virtual-reality today. While it's difficult to introduce touch and smell elements into the average virtual-reality experience, these are visions that creators have in mind for the very near future of virtual-reality experiences. It's amazing to think that 85+ years ago, people were already thinking about creating simulation experiences using technology. We still think of these types of plans as we look towards the future of VR. With rapidly changing technology however, these improvements to the VR simulation experience may be far closer than decades away.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 1960s
@@ -56,10 +56,10 @@ In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in wh
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 1990s
@@ -71,10 +71,10 @@ VR headsets begin to make their way into a few arcade games for simulations and 
 Oculus VR represents the latest revolution in VR technology. When Facebook officially acquired the Oculus VR system, this showed that virtual-reality was becoming a huge concern for many of the world's top developers. Although the Oculus Rift was formed out of a kickstarter campaign in 2012, the deal in 2014 represented a huge boost in their funding and confidence. Later in 2015, Oculus began to acquire other companies like Surreal Vision and built partnerships with Samsung to develop the Samsung gear VR. As one of the leading companies in VR development, Oculus has fully functioning VR systems for consumers to purchase and use at home. With support for a wide range of applications and further applications being developed for specific use with their VR systems, this was a huge leap forward for VR. After gaining international attention with the demand after the Facebook deal, this would propel many other developers into creating their own VR development firms. Oculus in a way started a brand-new VR renaissance with a call to create immersive and simulated experiences for the average consumer. Previous VR headsets were very technical and inaccessible for the average computer user, but with plug-and-play compatibility and a wide host of supported applications, Oculus gave the average consumer hope that they can enjoy VR again.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 2016 and beyond
@@ -86,10 +86,10 @@ The future of VR looks very bright and with so many new devices in development i
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -117,18 +117,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-optimizing-content-sharing-from-twitters-to-snaps/"><u>[New] 2024 Approved Optimizing Content Sharing From Twitters to Snaps</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-source-guide-4-top-skype-ringtones/"><u>[New] 2024 Approved The Ultimate Source Guide 4 Top Skype Ringtones</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-unbeatable-freebie-subtitle-services-our-top-picks-for-2024/"><u>[New] Unbeatable Freebie Subtitle Services Our Top Picks for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-navigating-vimeos-share-options/"><u>[Updated] 2024 Approved Navigating Vimeo's Share Options</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-filmopedia-answer-to-inquiries/"><u>[Updated] FilmoPedia Answer to Inquiries</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-velocity-victories-olympics-year-2022/"><u>[Updated] Velocity Victories Olympics, Year 2022</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/booking-an-unforgettable-apple-vision-pro-demo-learn-the-latest-improvements-and-reservation-hacks-expert-advice/"><u>Booking an Unforgettable Apple Vision Pro Demo? Learn the Latest Improvements and Reservation Hacks | Expert Advice</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/how-to-sing-your-own-song-with-an-iphone-ringtone/"><u>How to Sing Your Own Song with an iPhone Ringtone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Realme GT Neo 5? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-merge-speeches-and-music-into-slides-sequences/"><u>In 2024, Merge Speeches and Music Into Slides Sequences</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-ultimate-writings-distinguished-by-genre-based-categories/"><u>In 2024, Ultimate Writings Distinguished by Genre-Based Categories</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/openai-countermeasure-against-gpt-generated-deceptions/"><u>OpenAI Countermeasure Against GPT-Generated Deceptions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-insiders-handbook-to-windows-11-video-mastery/"><u>The Insider's Handbook to Windows 11 Video Mastery</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/1715860552024-new-capturing-screens-with-internal-recorder-on-mate-1020-and-p-series-p20-p10-smartphones/"><u>[New] Capturing Screens with Internal Recorder on Mate 10/20 & P Series (P20, P10) Smartphones.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-comprehensive-techniques-for-moving-media-from-iphones/"><u>[New] Comprehensive Techniques for Moving Media From iPhones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-economic-planning-for-your-upcoming-music-video/"><u>[New] Economic Planning for Your Upcoming Music Video</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-flip-clips-android-reversal-technique/"><u>[New] Flip Clips Android Reversal Technique</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-strategizing-your-data-space-pre-eminent-cloud-services/"><u>[New] In 2024, Strategizing Your Data Space Pre-Eminent Cloud Services</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-techniques-for-steadying-your-motion-sensitive-gopro-for-2024/"><u>[New] Techniques for Steadying Your Motion-Sensitive GoPro for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-audio-mastery-top-strategies-for-win10-users/"><u>[Updated] 2024 Approved Audio Mastery Top Strategies for Win10 Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-beyond-basic-editing-innovative-use-of-luts-for-photography-for-2024/"><u>[Updated] Beyond Basic Editing Innovative Use of LUTs for Photography for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-heroic-showdown-gopro-writes-new-footage-rule-with-hero5-and-hero4/"><u>[Updated] In 2024, HEROic Showdown GoPro' Writes New Footage Rule with Hero5 and Hero4</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-vanguard-maker-guild-sights-sonics-and-memories-for-2024/"><u>[Updated] Vanguard Maker Guild Sights, Sonics & Memories for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-video-vibrance-10-tips-for-dynamic-color-manipulation/"><u>[Updated] Video Vibrance 10 Tips for Dynamic Color Manipulation</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/apc-back-ups-pro-1-va-power-surge-protection-unveiled-abundant-ports-hot-swappable-cells-explained/"><u>APC Back-UPS Pro 1# VA Power Surge Protection Unveiled - Abundant Ports, Hot Swappable Cells Explained</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-remove-signature-background-in-seconds/"><u>In 2024, How to Remove Signature Background in Seconds</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-oppo-k11x-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Oppo K11x online without jailbreak</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-teaching-with-video-effective-editing-methods/"><u>In 2024, Teaching with Video Effective Editing Methods</u></a></li>
+<li><a href="https://win-tips.techidaily.com/losung-fur-nicht-erkannte-xbox-360-hdd-auf-deinem-pc/"><u>Lösung Für Nicht Erkannte Xbox 360-HDD Auf Deinem PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/pro-capture-not-just-point-and-shoot-mastering-the-hero5-black/"><u>Pro Capture, Not Just Point-and-Shoot Mastering the Hero5 Black</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/securing-the-element-hide-taskview-in-win-11-ui/"><u>Securing the Element: Hide TaskView in Win 11 UI</u></a></li>
+<li><a href="https://tools.techidaily.com/wondershare/pdf/download/"><u>Smart PDFElement - PDF Editor</u></a></li>
 </ul></div>
 

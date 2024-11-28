@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfect Pairing  Sound & Imagery in Media Production for 2024\""
-date: 2024-11-06T00:35:44.087Z
-updated: 2024-11-08T02:30:15.627Z
+date: 2024-11-13T17:06:33.581Z
+updated: 2024-11-18T18:04:07.566Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,10 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -67,13 +67,6 @@ A good example of this would be narrating a story on top of some still images an
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
@@ -92,10 +85,10 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Narration is a great storytelling device
@@ -107,10 +100,10 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Always use a good mic
@@ -118,6 +111,13 @@ It can also help make a connection with your audience because you can be relatin
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
@@ -159,17 +159,19 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-swiftsoundphone-apps-top-10-for-rapid-music/"><u>[New] 2024 Approved SwiftSoundphone Apps Top 10 for Rapid Music</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-how-to-use-luts-in-adobe-photoshop-cc-for-2024/"><u>[New] How to Use LUTs in Adobe PhotoShop CC for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-inside-triller-an-oasis-in-the-sea-of-standard-video-platforms/"><u>[New] In 2024, Inside Triller An Oasis in the Sea of Standard Video Platforms</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-optimal-solution-for-actions-screening/"><u>[New] Optimal Solution for Actions Screening</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-spinning-interest-into-action-writing-podcast-intros/"><u>[Updated] Spinning Interest Into Action Writing Podcast Intros</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/hidden-insights-20-often-missed-techniques-for-the-ultimate-nintendo-switch-experience/"><u>Hidden Insights: 20 Often-Missed Techniques for the Ultimate Nintendo Switch Experience</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-embrace-serenity-the-10-best-online-yoga-masters-today/"><u>In 2024, Embrace Serenity The 10 Best Online Yoga Masters Today</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-expanding-your-reach-a-complete-guide-to-popularizing-youtube-shorts/"><u>In 2024, Expanding Your Reach A Complete Guide to Popularizing YouTube Shorts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-soundscapes-infusing-online-photographic-art/"><u>In 2024, Soundscapes Infusing Online Photographic Art</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/introduction-to-aether-an-exploration-of-its-essence-and-entry-methods/"><u>Introduction to Aether - An Exploration of Its Essence and Entry Methods</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-video-editing-software-proven-tools-for-stunning-visual-effects/"><u>Top Video Editing Software: Proven Tools for Stunning Visual Effects</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/zdnets-analysis-of-apples-cutting-edge-ipad-pro-a-unique-device-that-challenges-traditional-computers/"><u>ZDNet's Analysis of Apple's Cutting-Edge iPad Pro – A Unique Device That Challenges Traditional Computers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-frosty-frontiers-winter-games-apex-moments/"><u>[New] 2024 Approved Frosty Frontiers Winter Games Apex Moments</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-motion-graphics-101-key-principles-and-methods/"><u>[New] 2024 Approved Motion Graphics 101 Key Principles & Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovative-investigation-vll-on-app-standards/"><u>[New] Innovative Investigation VLL on App Standards</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-quest-for-immersion-reviewing-benqs-ultra-hd-sw320-for-2024/"><u>[New] The Quest for Immersion Reviewing BenQ's Ultra HD SW320 for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-optimal-ppt-presentation-capture-methods/"><u>[Updated] 2024 Approved Optimal PPT Presentation Capture Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-step-by-step-path-to-smm-victory/"><u>[Updated] 2024 Approved Step-by-Step Path to SMM Victory</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-decoding-hashtags-role-in-elevating-your-youtube-gaming-experience/"><u>[Updated] In 2024, Decoding Hashtags' Role in Elevating Your YouTube Gaming Experience</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-oneclickfreeze-easy-screen-recording-quit/"><u>[Updated] In 2024, OneClickFreeze Easy Screen Recording Quit</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-prime-selection-optimal-free-and-paid-bd-players-for-windows-macos/"><u>[Updated] In 2024, Prime Selection Optimal Free & Paid BD Players for Windows, macOS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cinema-in-your-palm-three-cost-effective-techniques-to-blend-beats-and-videos-on-iphone-for-2024/"><u>Cinema in Your Palm – Three Cost-Effective Techniques to Blend Beats and Videos on iPhone for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-overview-of-the-oneplus-nord-n1/"><u>Comprehensive Overview of the OnePlus Nord N1</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevating-your-digital-presence-best-vocal-tweakers-for-vtubers/"><u>In 2024, Elevating Your Digital Presence Best Vocal Tweakers for VTubers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-enthralling-type-mobility-setups/"><u>In 2024, Enthralling Type Mobility Setups</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-in-video-narrations-a-step-by-step-guide-for-2024/"><u>Mastering In-Video Narrations A Step-by-Step Guide for 2024</u></a></li>
 </ul></div>
 

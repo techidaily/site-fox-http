@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  High-Capacity SD Card for Sony A7S Series\""
-date: 2024-11-02T17:48:50.929Z
-updated: 2024-11-07T21:27:14.640Z
+date: 2024-11-17T16:09:11.511Z
+updated: 2024-11-18T18:02:33.210Z
 tags: 
   - screen-recording
   - ai video
@@ -73,10 +73,10 @@ thumbnail: https://thmb.techidaily.com/255abe49d787e06c0ed6c6f504e1d68fdfd70d280
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best Memory Cards for Sony A7S II
@@ -120,10 +120,16 @@ thumbnail: https://thmb.techidaily.com/255abe49d787e06c0ed6c6f504e1d68fdfd70d280
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -151,19 +157,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-mov-mastery-on-windows-11-discover-the-best-recording-methods-from-our-six-step-guide/"><u>[New] 2024 Approved .MOV Mastery on Windows 11 - Discover the Best Recording Methods From Our Six-Step Guide</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-swift-shutter-speed-iphone-tricks-for-blur-magic/"><u>[New] 2024 Approved Swift Shutter Speed IPhone Tricks for Blur Magic</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-fundamentals-of-successful-instagram-video-promotion-planning/"><u>[New] 2024 Approved The Fundamentals of Successful Instagram Video Promotion Planning</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-evaluating-video-space-on-a-64gb-card/"><u>[New] Evaluating Video Space on a 64GB Card</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-rise-of-autofocus-aided-hdr-photography/"><u>[New] The Rise of Autofocus Aided HDR Photography</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-the-top-artisans-in-sound-and-video-craftsminas-online-for-2024/"><u>[New] The Top Artisans in Sound and Video Craftsminas Online for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-merry-media-archive-inspector/"><u>[Updated] In 2024, Merry Media Archive Inspector</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-precision-cinematography-closing-in-on-details/"><u>[Updated] Precision Cinematography Closing in on Details</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-superior-hd-visual-capture-systems-for-2024/"><u>[Updated] Superior HD Visual Capture Systems for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-enigma-of-stardew-valley-unearthed-on-ginger-island/"><u>2024 Approved The Enigma of Stardew Valley, Unearthed on Ginger Island</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ssing-the-benefits-with-creative-commons-licenses/"><u>Harnessing the Benefits with Creative Commons Licenses</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-boosting-engagement-tactics-for-great-instagram-reels/"><u>In 2024, Boosting Engagement Tactics for Great Instagram Reels</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/set-up-conditional-data-backups-triggered-by-selected-occurrences/"><u>Set Up Conditional Data Backups Triggered by Selected Occurrences</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unbeatable-free-livestream-solutions-reviewed-across-all-platforms-for-2024/"><u>Unbeatable Free Livestream Solutions Reviewed Across All Platforms for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-comprehensible-walkthrough-finding-your-youtube-remarks-for-2024/"><u>[New] A Comprehensible Walkthrough Finding Your YouTube Remarks for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-cease-automatic-footage-collection-qt/"><u>[New] Cease Automatic Footage Collection QT</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-exhaustive-evaluation-the-new-360-camera-for-2024/"><u>[New] Exhaustive Evaluation The New 360 Camera for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-smudge-solution-blurring-visions-in-video-content/"><u>[New] In 2024, The Smudge Solution Blurring Visions in Video Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-leading-caller-id-changers-with-magical-features/"><u>[Updated] 2024 Approved Leading Caller ID Changers with Magical Features</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-finest-picks-top-8-web-sites-with-rich-3d-and-gold-lined-texts/"><u>[Updated] 2024 Approved The Finest Picks Top 8 Web Sites with Rich 3D & Gold-Lined Texts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-top-picks-for-online-classical-tone-downloads/"><u>[Updated] 2024 Approved Top Picks for Online Classical Tone Downloads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-starter-gear-for-gopro-cameras/"><u>[Updated] 2024 Approved Top Starter Gear for GoPro Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-cutting-edge-techniques-for-video-production-in-windows-photos-for-2024/"><u>[Updated] Cutting-Edge Techniques for Video Production in Windows Photos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-exquisite-scenery-tips-for-live-shows/"><u>[Updated] Exquisite Scenery Tips for Live Shows</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-professional-fb-ad-videos-made-simple-free-kit-included/"><u>[Updated] Professional FB Ad Videos Made Simple – Free Kit Included</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-tier-psd-artistry-tweaks-for-2024/"><u>[Updated] Top-Tier PSD Artistry Tweaks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveiling-the-secrets-to-profitable-brands-partnerships-on-youtube/"><u>[Updated] Unveiling the Secrets to Profitable Brands Partnerships on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-blueprint-to-youtube-success-top-tips-for-outstanding-shorts/"><u>[Updated] Your Blueprint to Youtube Success Top Tips for Outstanding Shorts</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/choosing-your-tech-companion-ipad-pro-or-macbook-air-deciding-the-superior-device-for-individual-needs/"><u>Choosing Your Tech Companion: IPad Pro or MacBook Air - Deciding the Superior Device for Individual Needs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-essential-windows-video-editing-software-for-professional-use/"><u>In 2024, Essential Windows Video Editing Software for Professional Use</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-best-mobile-editors-for-professional-gopro-videos-for-2024/"><u>The Best Mobile Editors for Professional GoPro Videos for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-and-solving-high-disk-usage-caused-by-microsoft-compatibility-telemetry-on-windows-11-pcs/"><u>Troubleshooting and Solving High Disk Usage Caused by Microsoft Compatibility Telemetry on Windows 11 PCs</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-for-libgdkwin32-20-missing-dll-files/"><u>Troubleshooting Tips for 'Libgdk_win32-2.0' Missing DLL Files</u></a></li>
 </ul></div>
 

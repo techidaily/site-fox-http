@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Strategies for Complementing Core Shots with B-Roll\""
-date: 2024-11-03T21:52:18.414Z
-updated: 2024-11-07T19:08:42.277Z
+date: 2024-11-17T17:05:10.804Z
+updated: 2024-11-18T16:58:02.845Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
@@ -60,30 +60,37 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -97,13 +104,6 @@ Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" tha
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
@@ -143,19 +143,19 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-expert-tips-perfecting-npc-closures-in-roblox-games/"><u>[New] 2024 Approved Expert Tips Perfecting NPC Closures in Roblox Games</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-instant-luxury-iphones-extended-shutter-mastery/"><u>[New] In 2024, Instant Luxury IPhone's Extended Shutter Mastery</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-prime-commercial-sky-storage-choices/"><u>[New] In 2024, Prime Commercial Sky-Storage Choices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-unveiling-secrets-to-adding-seconds-to-youtube-clips/"><u>[New] In 2024, Unveiling Secrets to Adding Seconds to YouTube Clips</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-churn-memetic-content-for-gif-hub/"><u>[Updated] 2024 Approved Churn Memetic Content for GIF Hub</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/amplify-your-world-customizing-speaker-settings-for-optimal-volume-on-windows-10/"><u>Amplify Your World: Customizing Speaker Settings for Optimal Volume on Windows 10</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/crafting-facebook-slideshow-an-instagram-style-storytelling-guide-for-2024/"><u>Crafting Facebook SlideShow An Instagram-Style Storytelling Guide for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-z-flip-5-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy Z Flip 5 Phone Hassle-Free</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/making-a-difference-structuring-video-content-with-chapters/"><u>Making a Difference Structuring Video Content with Chapters</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/navigating-the-search-for-master-video-artists-for-2024/"><u>Navigating the Search for Master Video Artists for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/smart-tactics-to-jump-over-online-classroom-screens/"><u>Smart Tactics to Jump Over Online Classroom Screens</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>What is Geo-Blocking and How to Bypass it On Apple iPhone 13? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-vivo-v30-pro-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Vivo V30 Pro Has Black Screen of Death? | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/winning-game-recording-guide-for-w11-users-for-2024/"><u>Winning Game Recording Guide for W11 Users for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-constructing-cinema-stories/"><u>[New] 2024 Approved Constructing Cinema Stories</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-pursuing-perfection-in-lengthy-iphone-photography/"><u>[New] 2024 Approved Pursuing Perfection in Lengthy iPhone Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-a-step-by-step-guide-to-using-polarr-for-stunning-images-for-2024/"><u>[New] A Step-by-Step Guide to Using Polarr for Stunning Images for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-conference-call-to-youtube-stream-how-to-broadcast-google-meet-for-2024/"><u>[New] From Conference Call to YouTube Stream - How To Broadcast Google Meet for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-best-action-camera-mics-to-capture-movement/"><u>[New] In 2024, Best Action Camera Mics to Capture Movement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-copyright-and-sharing-guide/"><u>[New] Instagram's Copyright & Sharing Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-streamlining-post-processing-with-effective-use-of-luts-in-pscc/"><u>[New] Streamlining Post-Processing with Effective Use of LUTs in PSCC</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-crafting-cinematic-experiences-with-magix-video-pro-x/"><u>[Updated] Crafting Cinematic Experiences with Magix Video Pro X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-expert-advice-enhancing-control-over-snapchat-video-speed-for-2024/"><u>[Updated] Expert Advice Enhancing Control Over Snapchat Video Speed for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ace-guide-to-constructing-virtual-classroom-headlines/"><u>Ace Guide to Constructing Virtual Classroom Headlines</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beyond-average-the-nokia-n72-revealed-a-standout-device-for-value-seekers/"><u>Beyond Average - The Nokia N7.2 Revealed: A Standout Device for Value Seekers</u></a></li>
+<li><a href="https://network-issues.techidaily.com/guide-to-reactivate-unseen-graphics-card-in-pc/"><u>Guide to Reactivate Unseen Graphics Card in PC</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-add-and-change-thumbnails-of-twitter-videos-for-2024/"><u>How to Add and Change Thumbnails of Twitter Videos for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-hardware-review-channel-your-source-for-cutting-edge-pcs-and-devices/"><u>Tom's Hardware Review Channel: Your Source for Cutting-Edge PCs and Devices</u></a></li>
 </ul></div>
 

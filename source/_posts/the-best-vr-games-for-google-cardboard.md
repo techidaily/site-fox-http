@@ -1,7 +1,7 @@
 ---
 title: "The Best VR Games for Google Cardboard"
-date: 2024-08-28T17:37:01.214Z
-updated: 2024-08-29T17:37:01.214Z
+date: 2024-11-15T16:44:29.287Z
+updated: 2024-11-18T17:40:36.721Z
 tags: 
   - screen-recording
   - ai video
@@ -34,15 +34,19 @@ Chair in a Room is a horror game for the Google Cardboard. You play a lawyer who
 
 If you want a good scare, then this is the VR game that you should play. You will feel your heart pounding as you progress through the game. It really feels like it was made for VR and not just a port. On the downside, you need a fast smartphone and good headphones to enjoy the game. It was designed for the Nexus 5 and above, and devices with lower specs might have trouble running the game.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2. BombSquad VR for Cardboard
 
 BombSquad VR for Cardboard is an arcade game where players must avoid getting hit by bombs, and at the same time capture flags. Up to eight players can play at the same time. To play the game, you need a gamepad or another Android device to act as a controller. While it costs $2.99, you also get the BombSquad Pro that allows you to play the non-VR version of the game. The game features networked multiplayer mode, advanced ragdoll face-plant physics, lots of explosions, pirates, barbarians, ninja, and chefs.
 
 It is a fun game that you can play with your friends. If you enjoy the normal BombSquad game, then you will definitely love the VR version. However, just like the other VR games, it requires a lot of power. There are some players that find the game too jumpy and glitch. They can’t hold a position.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## 3
 
 BAMF VR
@@ -52,8 +56,18 @@ BAMF VR is a simple game that only requires you to push a single button. The obj
 BAMF VR is one of the best VR games for the Google Cardboard. While it is simple, it has imaginative puzzles. There are no downsides to the game; except players want more levels because it is easy to beat the game.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4. Sisters
 
 VR is the best medium for horror games. You just need to seat back and look around as supernatural stuff happen around you. It is best to play with headphones to fully enjoy the experience.
@@ -63,8 +77,18 @@ It has simple look based controls that will allow players to pick up and play th
 If you want to be scared, then go play Sisters. It is best to prank your friends who think that VR games are not that scary. However, there are reports that it keeps on crashing on low-end Android phones.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5. Waa! VR
 
 The little astronaut is back, and now he explores a VR world. The objective of the game is to destroy incoming asteroids by shooting them with homing missiles. No controllers are required. It features 360 free look, and you just need to focus to select the target.
@@ -93,8 +117,12 @@ Waa! is a VR game that kids will enjoy. The gameplay is simple and just right fo
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -118,4 +146,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-transitioning-from-rgb-to-srgb/"><u>[New] 2024 Approved Transitioning From Rgb to Srgb</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-ustream-examination-other-options-compared/"><u>[New] 2024 Approved Ustream Examination Other Options Compared</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-explore-largest-collection-of-free-vector-graphics-portals/"><u>[Updated] 2024 Approved Explore Largest Collection of Free Vector Graphics Portals</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-capturing-contentment-top-streaming-techniques/"><u>[Updated] In 2024, Capturing Contentment Top Streaming Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-steps-to-prevent-windows-11-photos-app-failures/"><u>[Updated] In 2024, Steps to Prevent Windows 11 Photos App Failures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-complete-manual-for-using-speech-recognition-in-google-documents/"><u>[Updated] In 2024, The Complete Manual for Using Speech Recognition in Google Documents</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-in-depth-guide-to-streaming-and-recording-webcasts-professionally/"><u>[Updated] In-Depth Guide to Streaming and Recording Webcasts Professionally</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-guide-to-choosing-a-professional-video-editor-filmora-or-democracy-creator-for-2024/"><u>[Updated] The Ultimate Guide to Choosing a Professional Video Editor (Filmora or Democracy Creator) for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/eliminating-flickering-phenomenon-in-hp-displays/"><u>Eliminating Flickering Phenomenon in HP Displays</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-superior-software-for-beat-alteration-tech/"><u>In 2024, Superior Software for Beat Alteration Tech</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigating-the-maze-of-facebook-story-networking/"><u>Navigating the Maze of Facebook Story Networking</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/top-12-free-animation-software-picks-of-2024-best-3d-programs-for-aspiring-animators/"><u>Top 12 Free Animation Software Picks of 2024: Best 3D Programs for Aspiring Animators</u></a></li>
+</ul></div>
 

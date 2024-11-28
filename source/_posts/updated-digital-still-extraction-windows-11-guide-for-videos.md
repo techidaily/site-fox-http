@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Digital Still Extraction  Windows 11 Guide for Videos\""
-date: 2024-11-02T17:43:41.578Z
-updated: 2024-11-07T19:34:28.531Z
+date: 2024-11-14T16:18:14.795Z
+updated: 2024-11-18T16:31:32.462Z
 tags: 
   - screen-recording
   - ai video
@@ -64,10 +64,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
@@ -80,16 +80,16 @@ We are explaining the solutions here –
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -104,20 +104,20 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -151,24 +151,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-decoding-youtubes-payment-scheme/"><u>[New] 2024 Approved Decoding YouTube's Payment Scheme</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-enhanced-color-and-contrast-why-hdr-outshines-sdr/"><u>[New] 2024 Approved Enhanced Color and Contrast Why HDR Outshines SDR</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-configure-measure-and-optimize-the-ultimate-guide-to-fb-instream-ads/"><u>[New] Configure, Measure & Optimize The Ultimate Guide to FB Instream Ads</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-step-towards-stunning-visuals-using-video-enhancer-22/"><u>[New] In 2024, Step Towards Stunning Visuals - Using Video Enhancer 2.2</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-explaining-video-trims-the-logic-of-trimming/"><u>[Updated] 2024 Approved Explaining Video Trims The Logic of Trimming</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-essential-propeller-choices-mastering-flight-excellence-for-2024/"><u>[Updated] Essential Propeller Choices Mastering Flight Excellence for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-essential-tutorial-from-gif-art-to-sticky-fun-on-social-media/"><u>[Updated] In 2024, The Essential Tutorial From GIF Art to Sticky Fun on Social Media</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unleashing-brand-potential-with-free-youtube-marketing-templates/"><u>[Updated] In 2024, Unleashing Brand Potential with FREE YouTube Marketing Templates</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-top-10-action-cameras-for-surfing-2023-update-for-2024/"><u>[Updated] Top 10 Action Cameras for Surfing -2023 Update for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-visual-narrative-the-art-of-scriptwriting-for-2024/"><u>[Updated] Visual Narrative The Art of Scriptwriting for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-your-music-library-top-picks-from-8-exceptional-free-android-downloader-apps/"><u>2024 Approved Elevate Your Music Library - Top Picks From 8 Exceptional Free Android Downloader Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-power-play-the-most-popular-female-youtube-personalities/"><u>2024 Approved Power Play The Most Popular Female YouTube Personalities</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-unveiling-the-hidden-pathways-to-earning-on-youtube/"><u>2024 Approved Unveiling the Hidden Pathways to Earning on YouTube</u></a></li>
-<li><a href="https://techidaily.com/boost-your-online-presence-with-cookiebot-technology/"><u>Boost Your Online Presence with Cookiebot Technology</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-much-footage-does-instagram-allow-in-2024/"><u>How Much Footage Does Instagram Allow, In 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-powerful-strategies-for-optimizing-gratuitous-timer-use/"><u>In 2024, Powerful Strategies for Optimizing Gratuitous Timer Use</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Oppo Reno 8T | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unlock-the-power-of-montage-in-digital-media-for-2024/"><u>Unlock the Power of Montage in Digital Media for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-shattering-synthetic-statistics-on-youtube/"><u>[New] 2024 Approved Shattering Synthetic Statistics on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-xperience-photoshoot-iphone-x-classic-clicks/"><u>[New] In 2024, Xperience Photoshoot IPhone X Classic Clicks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-the-art-of-scriptwriting-for-viral-youtube-content/"><u>[New] Mastering the Art of Scriptwriting for Viral YouTube Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transform-your-channels-with-any-of-the-top-11-budget-friendly-naming-solutions/"><u>[New] Transform Your Channels With Any of the Top 11 Budget-Friendly Naming Solutions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-asserting-ownership-on-social-platforms-instagrams-watermarking-secrets-for-2024/"><u>[Updated] Asserting Ownership on Social Platforms Instagram's Watermarking Secrets for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-boost-tiktok-bio-presence-perfectly-pairing-it-with-linktree-for-2024/"><u>[Updated] Boost TikTok Bio Presence Perfectly Pairing It with Linktree for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-magixs-masterpiece-an-in-depth-look-at-video-pro-x/"><u>[Updated] Magix's Masterpiece An In-Depth Look at Video Pro X</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-undo-livestream-progress-with-twitch-tricks/"><u>[Updated] Undo Livestream Progress with Twitch Tricks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/guide-to-capturing-google-voice-chats/"><u>Guide to Capturing Google Voice Chats</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-google-podcast-mastery-from-creation-to-publication/"><u>In 2024, Google Podcast Mastery From Creation to Publication</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-masterful-sound-setup-ultimate-tips-and-gear-list/"><u>In 2024, Masterful Sound Setup Ultimate Tips & Gear List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ultimate-frames-per-second-for-languid-visuals/"><u>In 2024, Ultimate Frames Per Second for Languid Visuals</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/revamping-the-dell-smartbus-controller-essential-firmware-update-guide/"><u>Revamping the Dell SmartBus Controller: Essential Firmware Update Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-guide-to-premium-hd-screen-capture-gear/"><u>Ultimate Guide to Premium HD Screen Capture Gear</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-the-challenge-of-artificial-intelligence-ai-alignment/"><u>Understanding the Challenge of Artificial Intelligence (AI) Alignment</u></a></li>
 </ul></div>
 
