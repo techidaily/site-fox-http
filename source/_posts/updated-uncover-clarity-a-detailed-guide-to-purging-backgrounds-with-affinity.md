@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Uncover Clarity  A Detailed Guide to Purging Backgrounds with Affinity\""
-date: 2024-11-11T16:03:46.701Z
-updated: 2024-11-18T18:24:12.678Z
+date: 2024-11-22T16:10:32.456Z
+updated: 2024-11-27T19:34:04.291Z
 tags: 
   - screen-recording
   - ai video
@@ -27,9 +27,17 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Remove Affinity Photo to Remove Image's Background
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Erase a White Background in Affinity Designer
 
@@ -46,10 +54,7 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
@@ -57,10 +62,7 @@ Step3 To make a selection around your subject, first enable the **"Snap To Edges
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
@@ -112,19 +114,6 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -140,13 +129,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -183,10 +165,7 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -223,18 +202,17 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-gopro-hero5-a-comprehensive-footage-study-for-2024/"><u>[New] GoPro Hero5 A Comprehensive Footage Study for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elite-collective-photo-music-plus-visual-creation-fusion-for-2024/"><u>[Updated] Elite Collective Photo, Music + Visual Creation Fusion for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-essential-tips-acquiring-unparalleled-photos-for-free/"><u>2024 Approved Essential Tips Acquiring Unparalleled Photos for Free</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-expert-picks-for-mp4-audio-gear/"><u>2024 Approved Expert Picks for MP4 Audio Gear</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-turnout-videos-backwards-easily-on-android/"><u>2024 Approved Turnout Videos Backwards Easily on Android</u></a></li>
-<li><a href="https://fox-http.techidaily.com/a-comprehensive-guide-standing-out-in-reddit-discussions-for-2024/"><u>A Comprehensive Guide Standing Out in Reddit Discussions for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/augmented-reality-and-vr-navigating-2023s-content-on-android/"><u>Augmented Reality & VR Navigating 2023'S Content on Android</u></a></li>
-<li><a href="https://fox-http.techidaily.com/disappear-red-eye-effect-on-iphone-images-at-no-charge-for-2024/"><u>Disappear Red Eye Effect on iPhone Images at No Charge for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/discovering-hidden-gems-top-rated-free-macos-transcription-apps/"><u>Discovering Hidden Gems Top-Rated Free macOS Transcription Apps</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/finding-the-perfect-pitch-discover-no-cost-voice-alteration-apps-for-2024/"><u>Finding the Perfect Pitch Discover No-Cost Voice Alteration Apps for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-samsung-galaxy-a05mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Samsung Galaxy A05Mirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-motorola-moto-g-stylus-5g-2023-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Motorola Moto G Stylus 5G (2023) Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-the-world-of-digital-sound-capture-a-deep-dive/"><u>In 2024, Navigating the World of Digital Sound Capture A Deep Dive</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-explore-the-best-dvd-players-for-your-portable-laptop-for-2024/"><u>[New] Explore the Best DVD Players for Your Portable Laptop for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-edgeresolve-pixelperfect-booster-windowsmacos/"><u>[New] In 2024, EdgeResolve PixelPerfect Booster (Windows/MacOS)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-high-quality-avi-media-reader-mobile-and-desktop/"><u>[Updated] In 2024, High-Quality Avi Media Reader Mobile & Desktop</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-yuneec-typhoon-h-deep-dive-aerial-expert-review-for-2024/"><u>[Updated] Yuneec Typhoon H Deep Dive Aerial Expert Review for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-masterful-character-animation-groups/"><u>2024 Approved Masterful Character Animation Groups</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-honor-90-lite-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Honor 90 Lite to iPhone | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/diagnosing-and-repairing-problems-with-your-paradox-launcher/"><u>Diagnosing and Repairing Problems with Your Paradox Launcher</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-7-plus-to-ipad-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 7 Plus to iPad? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-samsung-galaxy-z-fold-5-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Samsung Galaxy Z Fold 5 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-samsung-galaxy-s23-tactical-edition-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Samsung Galaxy S23 Tactical Edition.</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/top-12-free-animation-tools-for-windows-and-macos-for-2024/"><u>Top 12 Free Animation Tools for Windows and macOS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/what-you-should-expect-to-make-as-a-podcaster/"><u>What You Should Expect to Make as a Podcaster</u></a></li>
 </ul></div>
 

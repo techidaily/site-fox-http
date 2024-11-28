@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Curving Images Effortlessly in Photo Editing\""
-date: 2024-11-12T16:20:38.536Z
-updated: 2024-11-18T16:54:20.120Z
+date: 2024-11-21T02:12:26.389Z
+updated: 2024-11-28T00:37:11.975Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -51,6 +55,10 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
@@ -59,9 +67,17 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
@@ -74,10 +90,7 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -114,20 +127,14 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-cinematic-magic-a-filmmakers-guide-to-light/"><u>2024 Approved Crafting Cinematic Magic A Filmmaker's Guide to Light</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-deep-dive-into-a-lone-review-of-3d-printing-in-3dr/"><u>2024 Approved Deep Dive Into a Lone Review of 3D Printing in '3DR'</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-leading-websites-for-acoustic-phone-alerts/"><u>2024 Approved Leading Websites for Acoustic Phone Alerts</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-pixelpathway-pioneer-review/"><u>2024 Approved PixelPathway Pioneer Review</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-smartphones-ultimate-guide-to-image-editing-and-annotation/"><u>2024 Approved Smartphones' Ultimate Guide to Image Editing & Annotation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/a-complete-guide-to-soundtracks-instagrams-legalities-explained-for-2024/"><u>A Complete Guide To Soundtracks Instagram’s Legalities Explained for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Nokia XR21? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/best-windows-phone-apps-for-your-cinematic-journey/"><u>Best Windows Phone Apps for Your Cinematic Journey</u></a></li>
-<li><a href="https://fox-http.techidaily.com/digital-artists-dreamland-ultimate-afx-template-set-for-2024/"><u>Digital Artist's Dreamland Ultimate AFX Template Set for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/easy-methods-for-dimming-audio-tracks-in-adobe-premiere/"><u>Easy Methods for Dimming Audio Tracks in Adobe Premiere</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-vivo-v27e-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Vivo V27e to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-nokia-c210-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Nokia C210 Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-making-it-big-on-youtube-your-strategy-playbook/"><u>In 2024, Making It Big on YouTube Your Strategy Playbook</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastery-of-minimizing-cpu-load-on-computers/"><u>Mastery of Minimizing CPU Load on Computers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-crafting-engaging-asmr-content-for-2024/"><u>The Ultimate Guide to Crafting Engaging ASMR Content for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-from-ground-to-heavens-a-mobile-panorama-journey/"><u>[New] From Ground to Heavens A Mobile Panorama Journey</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-the-art-of-tweeting-tiktoks/"><u>[New] In 2024, Mastering the Art of Tweeting TikToks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-create-unique-audio-trailers-at-zero-expense/"><u>[Updated] In 2024, Create Unique Audio Trailers at Zero Expense</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-superior-choice-of-8-free-uhd-software-for-pc-and-macos-for-2024/"><u>[Updated] Superior Choice of 8 Free UHD Software for PC & MacOS for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/dispelling-hidden-lcd-glitches/"><u>Dispelling Hidden LCD Glitches</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-asus-rog-phone-7-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Asus ROG Phone 7 to Another | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-does-youtube-offer-regular-viewers-money/"><u>In 2024, Does YouTube Offer Regular Viewers Money?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-effortless-creative-ending-videos-at-zero-price/"><u>In 2024, Effortless Creative Ending Videos at Zero Price</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-gt-5-pro-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Realme GT 5 Pro Pattern Lock if Forgotten? 6 Ways</u></a></li>
 </ul></div>
 

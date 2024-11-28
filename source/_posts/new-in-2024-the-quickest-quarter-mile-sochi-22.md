@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Quickest Quarter Mile - Sochi '22\""
-date: 2024-11-12T16:01:22.940Z
-updated: 2024-11-18T16:31:34.916Z
+date: 2024-11-23T23:28:33.831Z
+updated: 2024-11-28T04:39:57.478Z
 tags: 
   - screen-recording
   - ai video
@@ -30,16 +30,7 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -50,22 +41,13 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
@@ -91,13 +73,6 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -111,6 +86,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -131,10 +110,7 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -148,16 +124,7 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -183,21 +150,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-blades-visual-journey-from-standard-to-stunning-4k/"><u>[New] Blade's Visual Journey From Standard to Stunning 4K</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-enhancing-your-video-experience-a-guide-to-using-logitech-webcam/"><u>[Updated] In 2024, Enhancing Your Video Experience - A Guide to Using Logitech Webcam</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-clearing-imagery-the-canva-method-for-clean-bounds/"><u>2024 Approved Clearing Imagery The Canva Method for Clean Bounds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-innovative-10-plugin-upgrades-for-fcp-users/"><u>2024 Approved Innovative 10 Plugin Upgrades for FCP Users</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-simplify-passport-photography-with-these-top-10-low-cost-solutions/"><u>2024 Approved Simplify Passport Photography with These Top 10 Low-Cost Solutions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-kinemaster-way-to-enthralling-transitions/"><u>2024 Approved The Kinemaster Way to Enthralling Transitions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-winning-brands-over-strategies-for-effective-youtube-product-sponsorship/"><u>2024 Approved Winning Brands Over Strategies for Effective YouTube Product Sponsorship</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/behind-the-scenes-samsungs-s8-and-4k-technology/"><u>Behind the Scenes Samsung's S8 and 4K Technology</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/copie-gratuite-de-clones-de-cles-usb-gueriette-ultime-pour-la-duplication-des-donnees/"><u>Copie Gratuite De Clones De Clés USB : Guériette Ultime Pour La Duplication Des Données</u></a></li>
-<li><a href="https://fox-http.techidaily.com/diy-instagram-alert-tunes-a-step-by-step-guide/"><u>DIY Instagram Alert Tunes A Step-by-Step Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-advanced-gaming-edge-with-new-amd-setup-ryzen-7000-and-radeon-rx-7000-graphics-score-two-free-games-skips-ryzen-9000-line/"><u>Get Advanced Gaming Edge with New AMD Setup: Ryzen 7000 & Radeon RX 7000 Graphics – Score Two Free Games, Skips Ryzen 9000 Line</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-your-hands-on-the-latest-sound-blaster-audigy-fx-driver-updates-now/"><u>Get Your Hands on the Latest Sound Blaster Audigy FX Driver Updates Now!</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-installation-hurdles-successful-launch-of-cod-black-ops-cold-war-on-windows-machines/"><u>Overcoming Installation Hurdles: Successful Launch of Cod: Black Ops Cold War on Windows Machines</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-xiaomi-mix-fold-3-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Xiaomi Mix Fold 3 FRP Bypass</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-digital-video-capturing-demystified-systematic-guide-for-2024/"><u>[New] Digital Video Capturing Demystified Systematic Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-quick-steps-to-find-youtube-comment-feed/"><u>[New] In 2024, Quick Steps to Find YouTube Comment Feed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-mount-tech-for-smooth-sensor-motion/"><u>[New] Innovative Mount Tech for Smooth Sensor Motion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-artistic-arrangement-adopting-the-best-photo-frame-apps/"><u>[Updated] 2024 Approved Artistic Arrangement Adopting the Best Photo Frame Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-betting-basement-bookmarks/"><u>[Updated] 2024 Approved BETTING BASEMENT BOOKMARKS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-abletons-precision-in-sound-reduction-for-2024/"><u>[Updated] Ableton's Precision in Sound Reduction for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-audio-docking-systems-for-immersive-experience/"><u>[Updated] Audio Docking Systems for Immersive Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-christian-ringtone-guide-selection-tips/"><u>[Updated] In 2024, Christian Ringtone Guide – Selection Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creative-content-concepts-for-vlogs/"><u>[Updated] In 2024, Creative Content Concepts for Vlogs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-simple-tale-creation-guide-for-2024/"><u>[Updated] Simple Tale Creation Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-tips-for-increasing-the-usefulness-of-gopros-battery/"><u>[Updated] Tips for Increasing the Usefulness of GoPro's Battery</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-stepwise-blend-integrating-obs-and-zoom/"><u>2024 Approved Stepwise Blend Integrating OBS and Zoom</u></a></li>
+<li><a href="https://win-best.techidaily.com/1728496373609-usb-windows-11/"><u>如何使用USB快闪存儲器初始化 Windows 11系统——深入分析两种技术</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-realme-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Realme</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-oppo-a1x-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-a-comical-voyage-analyzing-the-goofy-escapade/"><u>In 2024, A Comical Voyage Analyzing 'The Goofy Escapade'</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-creating-compelling-hauls-techniques-for-an-engaging-viewing-experience/"><u>In 2024, Creating Compelling Hauls Techniques for an Engaging Viewing Experience</u></a></li>
+<li><a href="https://blog-min.techidaily.com/the-essential-guide-to-decluttering-your-online-presence-discover-the-importance/"><u>The Essential Guide to Decluttering Your Online Presence – Discover the Importance</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transform-your-diy-skills-unveiling-the-power-of-gpt-4s-artificial-intelligence-innovation/"><u>Transform Your DIY Skills - Unveiling the Power of GPT-4's Artificial Intelligence Innovation</u></a></li>
 </ul></div>
 

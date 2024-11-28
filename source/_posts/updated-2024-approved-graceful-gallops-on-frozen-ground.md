@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Graceful Gallops on Frozen Ground\""
-date: 2024-11-16T16:54:25.021Z
-updated: 2024-11-18T17:50:22.923Z
+date: 2024-11-23T23:44:11.939Z
+updated: 2024-11-27T17:40:44.152Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
@@ -43,13 +47,25 @@ Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United Stat
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
@@ -62,10 +78,7 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
@@ -88,38 +101,17 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -144,19 +136,24 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-leading-10-high-resolution-monitors-with-built-in-video-editing/"><u>[New] 2024 Approved Leading 10 High-Resolution Monitors with Built-In Video Editing</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-snapseed-101-easy-steps-for-image-transformation/"><u>[Updated] In 2024, Snapseed 101 Easy Steps for Image Transformation</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-adding-youtube-music-to-video/"><u>2024 Approved Adding YouTube Music To Video</u></a></li>
-<li><a href="https://fox-http.techidaily.com/effortlessly-combine-skype-and-zoom-for-productivity-for-2024/"><u>Effortlessly Combine Skype and Zoom for Productivity for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/elevating-your-audioshifting-game-with-premiere-pro/"><u>Elevating Your Audioshifting Game with Premiere Pro</u></a></li>
-<li><a href="https://fox-http.techidaily.com/elite-selection-of-steadicams-for-drones-in-videography-for-2024/"><u>Elite Selection of Steadicams for Drones in Videography for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/enhance-your-chromebooks-speech-top-5-web-based-alterations-for-2024/"><u>Enhance Your Chromebook’s Speech Top 5 Web-Based Alterations for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/enhance-your-iphone-footage-from-speed-to-extended-muted-visuals/"><u>Enhance Your iPhone Footage From Speed to Extended, Muted Visuals</u></a></li>
-<li><a href="https://fox-http.techidaily.com/expansive-movement-assessment-2023-for-2024/"><u>Expansive Movement Assessment 2023 for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-lava-blaze-pro-5g-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Lava Blaze Pro 5G Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/navigating-the-best-virtual-academies-10-choices-for-remote-learning-success/"><u>Navigating the Best Virtual Academies: 10 Choices for Remote Learning Success</u></a></li>
-<li><a href="https://techidaily.com/resolving-windows-10-installation-issue-fix-error-code-80/"><u>Resolving Windows 10 Installation Issue - Fix Error Code 80 #</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-key-differences-between-public-private-and-personal-ai-solutions/"><u>The Key Differences Between Public, Private & Personal AI Solutions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-7-browser-plugins-enhancing-ai-conversations/"><u>Top 7 Browser Plugins Enhancing AI Conversations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-how-to-live-stream-with-onestream-online-and-app/"><u>[New] 2024 Approved How To Live Stream With OneStream - Online & App</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-in-depth-assessment-photo-editing-tool-for-creatives/"><u>[New] 2024 Approved In-Depth Assessment Photo Editing Tool for Creatives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elevating-professional-presentations-applying-effective-filters-on-zoom/"><u>[New] Elevating Professional Presentations Applying Effective Filters on Zoom</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-hour-high-viewers-the-best-of-youtube-now/"><u>[New] Hour-High Viewers The Best of YouTube Now</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-repairing-a-stand-alone-headphone-for-2024/"><u>[New] Repairing a Stand-Alone Headphone for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-selecting-peak-frame-rate-for-exceptional-slow-motion-video-for-2024/"><u>[New] Selecting Peak Frame Rate for Exceptional Slow Motion Video for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-sound-enriched-photography-web-presence/"><u>[New] Sound-Enriched Photography Web Presence</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-10-innovative-ai-based-podcast-name-generators/"><u>[New] Top 10 Innovative AI-Based Podcast Name Generators</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-capturing-moments-with-full-screen-movies-on-iphones/"><u>[Updated] Capturing Moments with Full-Screen Movies on iPhones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-generate-stellar-podcast-title-ideas/"><u>[Updated] How to Generate Stellar Podcast Title Ideas</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-revelation-of-effortless-background-elimination-in-photopea/"><u>[Updated] Revelation of Effortless Background Elimination in Photopea</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-ensuring-correct-ad-revenue-a-comprehensive-guide-to-yt-channel-earnings/"><u>2024 Approved Ensuring Correct Ad Revenue A Comprehensive Guide to YT Channel Earnings</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-create-my-pokemon-overworld-maps-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>How Can I Create My Pokemon Overworld Maps On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-make-a-mark-as-an-hdr-photography-pro-with-lightroom/"><u>In 2024, How to Make a Mark as an HDR Photography Pro with Lightroom</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-definitive-guide-for-quick-srt-to-txt-con/"><u>In 2024, The Definitive Guide for Quick SRT to TXT Con</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-art-of-fast-forwarding-safely-expedite-your-spotify-experience-for-2024/"><u>The Art of Fast-Forwarding Safely Expedite Your Spotify Experience for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-rated-gamers-mouse-pads/"><u>Top-Rated Gamers' Mouse Pads</u></a></li>
+<li><a href="https://games-able.techidaily.com/unbox-pimaxs-vision-ahead-of-time-with-slip-ups/"><u>Unbox Pimax's Vision: Ahead of Time with Slip-Ups</u></a></li>
 </ul></div>
 

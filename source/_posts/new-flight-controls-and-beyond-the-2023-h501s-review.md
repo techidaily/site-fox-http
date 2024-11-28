@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Flight Controls and Beyond  The 2023 H501S Review\""
-date: 2024-08-23T18:12:23.852Z
-updated: 2024-08-24T18:12:23.852Z
+date: 2024-11-26T02:12:02.840Z
+updated: 2024-11-28T06:47:51.276Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/1a81b2424f69fff5b71451b0842af4d68db51d144
 
 [Check at Amazon](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa
 )
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pros and Cons
 
@@ -108,17 +112,29 @@ thumbnail: https://thmb.techidaily.com/1a81b2424f69fff5b71451b0842af4d68db51d144
 
 ![hubsan h501S x4 controller](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The Hubsan H501S X4 controller is designed with 4.3 LCD screen and it helps users to enjoy FPV camera operation with ease. This LCD screen can display all telemetry data for flights. It works on 5.8 GHz range to send video signals into MicroSD card whereas the controller itself works on 2.4 GHz frequency range.
 
 #### 6. Brushless Motors
 
 ![hubsan h501s x4 brushless motor](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-motor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Here is one interesting thing to know about Hubsan H501S, that is its brushless motor design. This motor is powerful enough with durable design so that users can enjoy uninterrupted flights for longer run.
 
 #### 7. Camera
 
 ![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you are in search of a drone with great camera setup then you will be impressed with Hubsan X4 results. It captures stills with 1080p resolution and live videos need 5.8 GHz frequency from controller and you can view them directly on 4.3” built in screen of controller unit. All photos and videos are directly saved into MicroSD card.
 
@@ -127,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/1a81b2424f69fff5b71451b0842af4d68db51d144
  Wide range of impressive features have been covered in Hubsan H501S X4 review above so that buyers can make best decision about whether it fits their needs or not. Are you a beginner in the drone world? Then you may need to learn few tactics before arranging your first flight. This specially designed drone unit can also be a good choice for gift to someone you really love. Update your opinion so that we can have discussions about what drones are suitable for your general needs. Also, prefer to bookmark our page so that you can easily go through regular updates about drones and their flying tips. Have a great time with your new drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -151,8 +171,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-complete-walkthrough-powerdirector-24-edition/"><u>[New] 2024 Approved Complete Walkthrough PowerDirector '24 Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-giggle-guild-imgur-memomaker-for-2024/"><u>[New] Giggle Guild Imgur MemoMaker for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-pixelshalfed-dissection/"><u>[New] In 2024, PixelsHalfed Dissection</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-standout-storytelling-in-multifaceted-cinemascape/"><u>[Updated] 2024 Approved Standout Storytelling in Multifaceted Cinemascape</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-from-analog-to-digital-srt-conversion-into-modern-audio-standards-for-2024/"><u>[Updated] From Analog to Digital SRT Conversion Into Modern Audio Standards for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-srt-insights-essential-facts-unveiled/"><u>[Updated] Ultimate SRT Insights Essential Facts Unveiled</u></a></li>
+<li><a href="https://games-able.techidaily.com/amplify-gameplay-navigating-the-world-of-fps-in-android-games/"><u>Amplify Gameplay: Navigating the World of FPS in Android Games</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/expert-strategies-for-managing-facebook-lives-in-two-screens/"><u>Expert Strategies for Managing Facebook Lives in Two Screens</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/how-to-get-your-iphone-11-videos-running-smoothly-again-essential-solutions-for-persistent-video-problems/"><u>How to Get Your iPhone 11 Videos Running Smoothly Again: Essential Solutions for Persistent Video Problems</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nokia-c32-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nokia C32 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/quip-quarterly-event-oriented-joke-anthology/"><u>Quip Quarterly Event-Oriented Joke Anthology</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-honor-x9b-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Honor X9b Phone Hassle-Free</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->

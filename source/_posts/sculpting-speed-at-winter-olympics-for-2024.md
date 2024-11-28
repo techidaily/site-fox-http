@@ -1,7 +1,7 @@
 ---
 title: "Sculpting Speed at Winter Olympics for 2024"
-date: 2024-11-12T17:21:55.299Z
-updated: 2024-11-18T17:24:05.584Z
+date: 2024-11-23T05:36:43.369Z
+updated: 2024-11-27T21:46:47.929Z
 tags: 
   - screen-recording
   - ai video
@@ -39,9 +39,17 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
@@ -55,18 +63,15 @@ Even though Nathan Chen finished first for men's short program of the team event
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -89,10 +94,7 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
@@ -101,19 +103,6 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
@@ -121,10 +110,7 @@ Step 5: Select individual or multiple slides and add Transitions, Effects, Title
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -150,18 +136,14 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-harnessing-testimonials-for-genuine-brand-connection/"><u>[New] Harnessing Testimonials for Genuine Brand Connection</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-tune-up-guide-new-gadgets-reviewed/"><u>[Updated] 2024 Approved Tune-Up Guide New Gadgets Reviewed</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-master-the-art-of-audible-social-media-posts-without/"><u>[Updated] Master the Art of Audible Social Media Posts (Without)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-effortless-text-insertion-on-visuals-explained/"><u>2024 Approved Effortless Text Insertion on Visuals Explained</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-essential-iphones-dive-into-these-top-5-podcast-tools/"><u>2024 Approved Essential iPhones Dive Into These Top 5 Podcast Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-gopro-karma-demystified-a-comprehensive-look/"><u>2024 Approved GoPro Karma Demystified A Comprehensive Look</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Vivo Y100i Power 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/a-streamlined-approach-to-using-azures-transcription-technology-for-2024/"><u>A Streamlined Approach to Using Azure's Transcription Technology for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/blitz-games-leading-lightning-fast-titles-for-laptopsphones/"><u>Blitz Games Leading Lightning-Fast Titles for Laptops/Phones</u></a></li>
-<li><a href="https://fox-http.techidaily.com/cash-up-fast-a-newbies-guide-to-the-13-best-reddit-money-hacks-for-2024/"><u>Cash Up Fast A Newbie's Guide to the 13 Best Reddit Money Hacks for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/top-mac-frame-freezes-collection-limit-156-chars-for-2024/"><u>Top Mac Frame Freezes Collection (Limit 156 Chars) for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlocking-exceptional-presidents-day-offers-over-60-at-leading-retailers-like-amazon-walmart-and-more-comprehensive-deals-digest/"><u>Unlocking Exceptional Presidents' Day Offers Over 60% at Leading Retailers Like Amazon, Walmart and More | Comprehensive Deals Digest</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unstuck-and-unveiled-tiktok-videos-sans-stickers/"><u>Unstuck and Unveiled TikTok Videos Sans Stickers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-first-steps-launching-a-youtube-channel-for-profit/"><u>[New] 2024 Approved First Steps Launching a YouTube Channel for Profit</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-exploring-virtual-realities-shortcomings-for-2024/"><u>[New] Exploring Virtual Realities' Shortcomings for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-5-iphone-x87-photoshoot-background-swappers-for-2024/"><u>[New] Ultimate 5 iPhone X/8/7 Photoshoot Background Swappers for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-under-100-investments-in-action-cameras-top-selections/"><u>[New] Under $100 Investments in Action Cameras – Top Selections</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-leading-ai-photographic-composer/"><u>[Updated] Leading AI Photographic Composer</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-8-plus-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-screen-protectors-that-enhance-vr-filming/"><u>In 2024, Screen Protectors That Enhance VR Filming</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transform-your-videos-using-video-enhancer-v22-for-2024/"><u>Transform Your Videos Using Video Enhancer V2.2 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-the-virtual-realms-of-meta-and-omni/"><u>Unveiling the Virtual Realms of Meta and Omni</u></a></li>
 </ul></div>
 

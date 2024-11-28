@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Windows 11 Photos Enhancement Techniques  Soundtracks + Filter Layers\""
-date: 2024-08-23T18:14:47.021Z
-updated: 2024-08-24T18:14:47.021Z
+date: 2024-11-21T07:03:53.985Z
+updated: 2024-11-27T22:00:13.262Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -45,13 +49,25 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -65,25 +81,22 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 **Step 5**: Hit the ‘Done’ button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -107,4 +120,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unlocking-studio-secrets-extensive-xvideoreview/"><u>[New] 2024 Approved Unlocking Studio Secrets Extensive XVideoReview</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-webcam-setup-for-quick-recordings-on-chromebooks-for-2024/"><u>[New] Webcam Setup for Quick Recordings on Chromebooks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-get-premium-minecraft-channel-graphics/"><u>[Updated] 2024 Approved Get Premium Minecraft Channel Graphics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-what-lies-beyond-the-boundaries-of-vlc/"><u>[Updated] 2024 Approved What Lies Beyond the Boundaries of VLC?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-audio-options-dilemma-podcasts-against-youtube/"><u>[Updated] Audio Options Dilemma Podcasts Against YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-flawless-offline-viewing-your-guide-to-mobile-video-downloads-for-idevices-for-2024/"><u>[Updated] Flawless Offline Viewing Your Guide to Mobile Video Downloads for iDevices for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-a-compreayers-guide-to-growth-updating-youtube-metadata/"><u>[Updated] In 2024, A Compreayer's Guide to Growth Updating YouTube Metadata</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-top-360-live-streaming-cameras-for-youtube-and-facebook/"><u>[Updated] In 2024, Top 360 Live Streaming Cameras for YouTube and Facebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unlock-funimates-downloading-magic/"><u>[Updated] In 2024, Unlock Funimate's Downloading Magic</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabled-iphone-7-how-to-unlock-a-disabled-iphone-7-drfone-by-drfone-ios/"><u>Disabled iPhone 7 How to Unlock a Disabled iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fresh-off-the-server-newest-versions-of-hp-universal-printer-drivers-for-windows-users/"><u>Fresh Off the Server: Newest Versions of HP Universal Printer Drivers for Windows Users</u></a></li>
+<li><a href="https://driver-error.techidaily.com/get-the-latest-netgear-a6210-driver-software-for-windows-8-or-7-free-download-option/"><u>Get the Latest NetGear A6210 Driver Software for Windows 8 or 7 - Free Download Option</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-honor-90-lite-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Honor 90 Lite and Browser | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/revolutionize-zoom-videos-with-key-conversion-methods-for-2024/"><u>Revolutionize Zoom Videos with Key Conversion Methods for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/shop-acers-porsche-design-notebook-today-for-a-limited-time-bargain-save-up-to-800-now-available-at-just-600-insider-deal-via-zdnet/"><u>Shop Acer's Porsche Design Notebook Today for a Limited-Time Bargain: Save up to $800, Now Available at Just $600 - Insider Deal via ZDNet!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/why-virtual-reality-lack-of-content-for-2024/"><u>Why Virtual Reality Lack of Content for 2024</u></a></li>
+</ul></div>
 

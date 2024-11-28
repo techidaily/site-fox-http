@@ -1,7 +1,7 @@
 ---
 title: "[Updated] What Lies Beyond Your Public Social Profile on FB"
-date: 2024-08-23T18:14:42.328Z
-updated: 2024-08-24T18:14:42.328Z
+date: 2024-11-22T03:42:27.011Z
+updated: 2024-11-28T03:41:35.243Z
 tags: 
   - screen-recording
   - ai video
@@ -34,13 +34,14 @@ So, what information does the Off-Facebook Previews capture? According to Facebo
 * A record of all apps and websites where you use your Facebook credentials to log in. Typically, the information comes from companies offering Facebook Login as one of their single sign-on (SSO) methods.
 * Your donation and content viewing activity from companies that use Facebook API in their websites and apps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part2: Should I Leave Off Facebook Activity be on or off?
 
 As you can see, Off Facebook Previews collects lots of your sensitive information from its clients. Therefore, you must manage how much you share with other companies when not using the social media platform directly. The following sections help you understand how you can protect your data better.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### 1\. How to switch it off?
 
 Follow these steps to disable Off Facebook Previews in your account.
@@ -51,40 +52,36 @@ Follow these steps to disable Off Facebook Previews in your account.
 ![off facebook previews](https://images.wondershare.com/filmora/article-images/2022/09/off-facebook-previews-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 * Then, choose **Settings and Privacy** from the drop-down menu, followed by **Settings** from the resultant menu.
 
 ![settings and privacy](https://images.wondershare.com/filmora/article-images/2022/09/off-facebook-previews-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 * Tap the **Your Facebook Information** and then **Off-Facebook activity** to redirect to the **Off-Facebook Previews** settings page.
 
 ![off facebook previews](https://images.wondershare.com/filmora/article-images/2022/09/off-facebook-previews-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 * Select the **Disconnect Future Activity** option and move the slider left to prevent Facebook from receiving any information on your off-Facebook activities.
 
 ![disconnect future activity](https://images.wondershare.com/filmora/article-images/2022/09/off-facebook-previews-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Finalize the process by pressing **Confirm** on the next page.
 
 ![confirm](https://images.wondershare.com/filmora/article-images/2022/09/off-facebook-previews-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. How can the feature help to protect your privacy?
 
 ![protect privacy](https://images.wondershare.com/filmora/article-images/2022/09/off-facebook-previews-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Following its recent legal troubles concerning user data safety, Facebook has the following protocols to protect your off Facebook previews information:
 
@@ -93,6 +90,10 @@ Following its recent legal troubles concerning user data safety, Facebook has th
 * Furthermore, any organization using Facebook's business tools must clearly state this information with their clients before activating their subscription. Failure to do so can lead to immediate service discontinuation or legal liability in extreme cases.
 * Moreover, the company allows you to manage your Off-Facebook activity directly from your profile. For example, you can use the Clear Previous activity option to erase all previous data or use the Disconnect Future activity function to prevent further data collection.
 * Finally, the company openly shares a record of the information it receives from its clients through the **Recent Activity** Please refer to the **What is Off-Facebook Preview** section to discover what user information the company shares in your recent activity report.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs
 
@@ -146,4 +147,18 @@ No. Facebook is a cross-platform program, meaning the changes apply to all devic
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-melody-mixin-adding-tracks-to-snapchat-vids/"><u>[New] In 2024, Melody Mixin' Adding Tracks to Snapchat Vids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-pioneering-video-editing-techniques-for-windows-10-aficionados/"><u>[New] In 2024, Pioneering Video Editing Techniques for Windows 10 Aficionados</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-secrets-behind-successful-hd-videos-on-social-networks/"><u>[New] In 2024, The Secrets Behind Successful HD Videos on Social Networks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-troubleshooting-steps-for-windows-10-photos-freeze-for-2024/"><u>[New] Troubleshooting Steps for Windows 10 Photos Freeze for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-virtual-worlds-reimagined-the-most-spectacular-sci-fi-films-of-the-metaverse-era-for-2024/"><u>[New] Virtual Worlds Reimagined The Most Spectacular Sci-Fi Films of the Metaverse Era for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-techniques-to-realize-time-bending-scenes/"><u>[Updated] In 2024, Techniques to Realize Time-Bending Scenes</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/explore-these-4-amazing-free-digital-calendar-solutions/"><u>Explore These 4 Amazing Free Digital Calendar Solutions</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-oppo-find-x6-pro-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Oppo Find X6 Pro FRP Locks</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-motorola-razr-40-ultrafrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Motorola Razr 40 UltraFRP Lock</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/smartphone-compatible-vr-top-10-devices-for-2024/"><u>Smartphone-Compatible VR Top 10 Devices for 2024</u></a></li>
+</ul></div>
 

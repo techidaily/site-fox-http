@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cut to Perfection  Innovative Video Edits on Windows 11 Photos\""
-date: 2024-11-12T16:04:18.224Z
-updated: 2024-11-18T16:10:48.836Z
+date: 2024-11-23T00:26:15.683Z
+updated: 2024-11-27T16:06:37.597Z
 tags: 
   - screen-recording
   - ai video
@@ -50,23 +50,22 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
@@ -81,13 +80,6 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
@@ -95,16 +87,7 @@ Here comes the step by step guide to trim video in VLC –
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -114,10 +97,7 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -147,20 +127,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-best-mac-microphone-software-a-detailed-look-at-the-five-top-picks/"><u>[New] 2024 Approved Best Mac Microphone Software A Detailed Look at the Five Top Picks</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-speedy-vimeo-videos-at-a-glance/"><u>[New] 2024 Approved Speedy Vimeo Videos at a Glance</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-elevate-your-artistry-unveiling-timelapse-magic-with-gopro/"><u>[Updated] Elevate Your Artistry Unveiling Timelapse Magic with GoPro</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-the-art-of-viral-marketing-mastering-instagram-fame-through-9-key-tips-for-2024/"><u>[Updated] The Art of Viral Marketing Mastering Instagram Fame Through 9 Key Tips for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-building-an-online-empire-through-effective-marketing/"><u>2024 Approved Building an Online Empire Through Effective Marketing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-from-concept-to-completion-selecting-best-vector-editors/"><u>2024 Approved From Concept to Completion Selecting Best Vector Editors</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-inshot-pc-editing-made-easy/"><u>2024 Approved Mastering Inshot PC Editing Made Easy</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-shining-spots-on-screen-top-video-lights-strategies/"><u>2024 Approved Shining Spots on Screen Top Video Lights Strategies</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-guide-top-10-mac-friendly-artist-tools-free/"><u>2024 Approved Ultimate Guide Top 10 Mac-Friendly Artist Tools (Free)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/crafting-gentle-volume-declines-using-logic-pro-for-2024/"><u>Crafting Gentle Volume Declines Using Logic Pro for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/deciphering-the-advantages-of-using-sns-hdr-over-others-for-2024/"><u>Deciphering the Advantages of Using SNS HDR Over Others for 2024</u></a></li>
-<li><a href="https://win-guides.techidaily.com/effective-strategies-and-insights-for-acing-job-interviews-with-massmails-expert-solutions/"><u>Effective Strategies & Insights for Acing Job Interviews with MassMail's Expert Solutions</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/how-to-make-every-meme-shine-on-9gag-for-2024/"><u>How to Make Every Meme Shine on 9GAG for 2024</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-the-best-mac-video-editing-programs-for-beginners-and-pros/"><u>New In 2024, The Best Mac Video Editing Programs for Beginners and Pros</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-strengths-of-the-linksys-ea9500-in-depth-review-of-cutting-edge-networking-tech/"><u>Unveiling the Strengths of the Linksys EA9500: In-Depth Review of Cutting-Edge Networking Tech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-sci-fis-virtual-cosmos-the-most-innovative-movies-of-the-metaverse-era/"><u>[New] 2024 Approved Sci-Fi's Virtual Cosmos The Most Innovative Movies of the Metaverse Era</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-8-ultimate-free-3d-players-perfect-for-pcmac-users-out-there/"><u>[New] In 2024, 8 Ultimate Free 3D Players Perfect for PC/Mac Users Out There</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-pinnacle-guide-to-choosing-top-after-effects-plugins/"><u>[New] The Pinnacle Guide to Choosing Top After Effects Plugins</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-picks-superior-iphone-tone-creators-for-2024/"><u>[New] Top Picks Superior iPhone Tone Creators for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-5-best-slow-motion-cameras/"><u>[Updated] 2024 Approved 5 Best Slow Motion Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-antique-cinematography-in-the-digital-realm/"><u>[Updated] 2024 Approved Antique Cinematography in the Digital Realm</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-gopros-latest-camera-face-off/"><u>[Updated] 2024 Approved GoPro's Latest Camera Face-Off</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-perfect-propeller-synergy-for-awe-inspiring-fpv-flights-for-2024/"><u>[Updated] Perfect Propeller Synergy for Awe-Inspiring FPV Flights for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-recording-titans-duel/"><u>[Updated] Recording Titans Duel</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-iphone-6-plus-activation-lock-with-a-professional-tool-by-drfone-ios-unlock-ios-unlock/"><u>Bypass iPhone 6 Plus activation lock with a professional tool</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fix-your-back-4-blood-installation-issues-on-pcs-windows-11-10-and-7/"><u>Fix Your Back 4 Blood Installation Issues on PCs (Windows 11, 10, and 7)</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-epson-wf-ds30-ready-compatible-drivers-for-windows-1187-users/"><u>Get Your Epson WF-DS30 Ready: Compatible Drivers for Windows 11/8/7 Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-jest-journal-chronicles-of-timely-laughter/"><u>In 2024, Jest Journal Chronicles of Timely Laughter</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/step-by-step-tips-on-reducing-wind-interference-in-high-definition-gopro-captures/"><u>Step-by-Step Tips on Reducing Wind Interference in High-Definition GoPro Captures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/subnautica-enthusiasts-resolved-no-more-crashes-in-pc-version-of-below-zero/"><u>Subnautica Enthusiasts - [RESOLVED] No More Crashes in PC Version of Below Zero!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ultimate-solution-step-by-step-tutorial-for-downloading-and-updating-rndis-drivers-in-windows/"><u>Ultimate Solution: Step-by-Step Tutorial for Downloading & Updating RNDIS Drivers in Windows</u></a></li>
 </ul></div>
 

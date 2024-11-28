@@ -1,7 +1,7 @@
 ---
 title: "Seamless Integration of Titles on Videos Using Windows Photos"
-date: 2024-11-14T16:50:24.686Z
-updated: 2024-11-18T17:13:31.626Z
+date: 2024-11-24T00:05:44.584Z
+updated: 2024-11-28T05:54:11.739Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
@@ -55,6 +59,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
@@ -68,16 +76,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -86,38 +85,25 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -144,18 +130,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-use-android-phones-in-watching-vr-or-360-videos/"><u>[New] How to Use Android Phones in Watching VR or 360 Videos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-streamlining-your-screen-share-experience-with-meet/"><u>[New] In 2024, Streamlining Your Screen Share Experience with Meet</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-unified-iptv-streaming-framework-for-2024/"><u>[New] Unified IPTV Streaming Framework for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-video-editing-software-showdown-bandicam-vs-camtasia/"><u>[Updated] Video Editing Software Showdown Bandicam vs Camtasia</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-realme-12-pro-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Realme 12 Pro 5G Activity | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-how-much-video-can-64gb128gb-hold/"><u>2024 Approved How Much Video Can 64GB/128GB Hold?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-editors-approach-to-declining-audio-tracks-gradually/"><u>2024 Approved The Editor's Approach to Declining Audio Tracks Gradually</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-top-notch-graphic-retouches/"><u>2024 Approved Top-Notch Graphic Retouches</u></a></li>
-<li><a href="https://fox-http.techidaily.com/cybernetic-wonders-discovering-sci-fi-metaverse-marvels-on-screen/"><u>Cybernetic Wonders Discovering Sci-Fi Metaverse Marvels on Screen</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-redmi-note-13-pro-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Redmi Note 13 Pro 5G to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1722901513634-macos-15-sequoia-is-coming-find-out-the-announcement-date-enhancements-and-latest-updates/"><u>MacOS 15 Sequoia Is Coming: Find Out the Announcement Date, Enhancements & Latest Updates</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mp4-player-guide-top-selections-for-2024/"><u>MP4 Player Guide Top Selections for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-fixing-lego-star-wars-the-skywalker-sagas-pc-crash-issues-in-early-2024/"><u>Resolved: Fixing Lego Star Wars: The Skywalker Saga's PC Crash Issues in Early 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-compatibility-score-which-phones-work-with-gear-vr/"><u>[New] 2024 Approved Compatibility Score Which Phones Work with Gear VR?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-curate-chuckling-cartoons-for-2024/"><u>[New] Curate Chuckling Cartoons for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-ranked-hd-screen-capturing-tools/"><u>[New] In 2024, Top-Ranked HD Screen Capturing Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-quick-connectivity-iphone-images-to-windows/"><u>[New] Quick Connectivity IPhone Images to Windows</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-5-hd-cameras-for-game-watching/"><u>[New] Top 5 HD Cameras for Game Watching</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-top-5-essential-android-photo-editing-software/"><u>[New] Unveiling Top 5 Essential Android Photo Editing Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-cutting-edge-editors-elevating-online-videos/"><u>[Updated] 2024 Approved Cutting-Edge Editors Elevating Online Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-next-level-android-for-3d-video-enthusiasts/"><u>[Updated] 2024 Approved Next-Level Android for 3D Video Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-6-cheap-4k-projectors/"><u>[Updated] Best 6 Cheap 4K Projectors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-swiftness-at-a-click-managing-youtubes-video-speed-settings/"><u>2024 Approved Swiftness at a Click Managing YouTube's Video Speed Settings</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-vivo-y55s-5g-2023-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Vivo Y55s 5G (2023) Black and White | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/securing-permission-from-windows-10s-trustedinstaller-a-comprehensive-guide/"><u>Securing Permission From Windows 10'S TrustedInstaller: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-media-player-replacements-for-vlc-for-2024/"><u>The Ultimate Guide to Media Player Replacements for VLC for 2024</u></a></li>
 </ul></div>
 

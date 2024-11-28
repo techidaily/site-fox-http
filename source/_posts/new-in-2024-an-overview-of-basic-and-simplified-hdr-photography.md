@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, An Overview of Basic and Simplified HDR Photography"
-date: 2024-08-23T18:13:00.655Z
-updated: 2024-08-24T18:13:00.655Z
+date: 2024-11-26T21:25:46.525Z
+updated: 2024-11-27T17:12:46.656Z
 tags: 
   - screen-recording
   - ai video
@@ -99,10 +99,6 @@ As expected, you can find it pretty tedious to import and merge each HDR bracket
 
 Although we've mainly focused on brackets and photos in this post, it's important to note that easyHDR also works with single images. Instead of having three separate bracketed exposures, LDR (Low Dynamic Range) enhancement allows you to generate exposures from a single JPEG or RAW photo.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## Bonus Tips: The Best Way to Edit HDR videos on your Desktop
 
 Like HDR images, HDR videos offer more comprehensive displays in dark and bright surroundings. In short, these videos allow more colourful and detailed highlight representations. Unfortunately, not all HDR editing programs can merge bracketed exposures effortlessly to produce outstanding results. And those that do can cost you an arm and a leg.
@@ -115,6 +111,10 @@ With that in mind, we recommend [Wondershare Filmora 11](https://tools.techidail
 
 ![easy hdr alternative load video](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Run [Wondershare Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your Mac/Win computer and start a new project. After creating a project, click Import Media to upload the video to edit and move it to the storyboard.
 
 ##### Step2Add a blending mode effect
@@ -126,8 +126,9 @@ Next, select the video and choose White as the color overlay. To do that, open t
 ![easy hdr alternative add exclusion blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 After that, it's time to change the Blending Mode of the color overlay. To do that, right-click the color track and choose Edit Properties. Then tap Composition and then select Exclusion on the Blending Mode drop-down menu.
 
 ##### Step3Apply the B&W Film color effect
@@ -147,8 +148,9 @@ After creating the video, import it on Filmora 11 and delete the white color ove
 Don't stop there. Open the Effects tab and add the Lomo effect to your video. Also, search and add the Luma Sharp effect. Remember that you can retouch these effects accordingly under the Effect tab. And lastly, export the new HDR video. That's it!
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Final Words
 
 There you have it. Easy HDR is arguably the most-beginner friendly program to edit your photos on desktops. Although it doesn't feature much, the available editing features should be enough to help you create incredible HDR images. And don't forget to use Wondershare Filmora 11 to apply a cool HDR effect to your footage. Give it a try!
@@ -201,9 +203,6 @@ Cons
 * It doesn't have advanced HDR post-processing tools.
 * No HDR feature for editing.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. Detailed Review for Easy HDR
 
 Before diving deeper into the detailed Easy HDR features, it's important to note that the program has a demo version. You can use this version to practice and study the vital components of easyHDR. But be guided that the demo version exports images with a watermark. In addition, users can't save HDRi in TIFF format. Let's get in!
@@ -246,13 +245,18 @@ Run [Wondershare Filmora 11](https://tools.techidaily.com/wondershare/filmora/do
 
 ![easy hdr alternative add white sample color](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Next, select the video and choose White as the color overlay. To do that, open the Sample color options and move the While color on the top timeline.
 
 ![easy hdr alternative add exclusion blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 After that, it's time to change the Blending Mode of the color overlay. To do that, right-click the color track and choose Edit Properties. Then tap Composition and then select Exclusion on the Blending Mode drop-down menu.
 
 ##### Step3Apply the B&W Film color effect
@@ -260,8 +264,9 @@ After that, it's time to change the Blending Mode of the color overlay. To do th
 ![easy hdr alternative add bw film effect](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Now tap the Effect tab and search for the B&W Film effect. This film effect should be free to use whether using a paid or free account. After downloading it, add the effect overlay to the video track and export the video.
 
 ##### Step4Import the uploaded video
@@ -269,15 +274,13 @@ Now tap the Effect tab and search for the B&W Film effect. This film effect shou
 ![easy hdr alternative set overlay blending mode](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 After creating the video, import it on Filmora 11 and delete the white color overlay and W&B Film effects. Now add the imported video on the first track, then search and apply a Square Blur effect. Also, change the Blending Mode of the footage to Overlay. Meanwhile, click the Effect tab and adjust the Size slider accordingly. For example, you can choose 10.
 
 ![easy hdr alternative add luma sharp effect](https://images.wondershare.com/filmora/article-images/2022/08/easy-hdr-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 Don't stop there. Open the Effects tab and add the Lomo effect to your video. Also, search and add the Luma Sharp effect. Remember that you can retouch these effects accordingly under the Effect tab. And lastly, export the new HDR video. That's it!
 
 ### Final Words
@@ -310,4 +313,21 @@ There you have it. Easy HDR is arguably the most-beginner friendly program to ed
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-connect-and-entertain-stream-xbox-games-on-the-worlds-stage-facebook-for-2024/"><u>[New] Connect & Entertain Stream Xbox Games on the World's Stage - Facebook for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-jest-sculptor-undead-funnybots-for-2024/"><u>[New] Jest Sculptor Undead Funnybots for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-secrets-of-successful-unboxing-reels-a-compreenasium-guide-for-2024/"><u>[New] Secrets of Successful Unboxing Reels A Compreenasium Guide for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-through-quantum-hdr-expertise/"><u>[Updated] Navigating Through Quantum HDR Expertise</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-your-files-easily-simplified-steps-for-pc-file-movement/"><u>[Updated] Your Files, Easily Simplified Steps for PC File Movement</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/avoid-payment-secure-your-free-fcp-copy/"><u>Avoid Payment Secure Your Free FCP Copy</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/diy-repair-tips-for-instagram-stories-that-just-wont-load-or-upload/"><u>DIY Repair Tips for Instagram Stories That Just Won't Load or Upload</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/gratis-business-presentation-boosting-plugins-and-templates/"><u>Gratis Business Presentation Boosting Plugins & Templates</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-you-are-not-connected-to-any-networks-on-windows/"><u>How to Fix You Are Not Connected to Any Networks on Windows</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/how-to-upgrade-or-install-the-macos-sierra-for-2024/"><u>How to Upgrade or Install the macOs Sierra for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-12-pro-drfone-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-expert-filmmakers-speedy-setup-secrets-for-diy-projects/"><u>In 2024, Expert Filmmaker's Speedy Setup Secrets for DIY Projects</u></a></li>
+<li><a href="https://common-error.techidaily.com/say-goodbye-to-lagging-videos-in-kodi-expert-tips-on-eliminating-buffer-issues/"><u>Say Goodbye to Lagging Videos in Kodi – Expert Tips on Eliminating Buffer Issues</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-image-sharing-blueprint-for-youtube-enthusiasts-for-2024/"><u>The Ultimate Image Sharing Blueprint for YouTube Enthusiasts for 2024</u></a></li>
+</ul></div>
 

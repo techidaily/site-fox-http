@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Palette's Journey  Learning the Science of Colors for 2024\""
-date: 2024-11-15T18:08:26.751Z
-updated: 2024-11-18T18:01:14.632Z
+date: 2024-11-27T03:49:48.176Z
+updated: 2024-11-28T02:06:10.389Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
@@ -34,10 +38,7 @@ Color theory consists of many elements that could fill a library on its own but 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Color Wheel
@@ -48,18 +49,15 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -82,31 +80,13 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -143,22 +123,24 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-avoiding-pitfalls-common-mistakes-in-instagram-filmmaking/"><u>[Updated] Avoiding Pitfalls Common Mistakes in Instagram Filmmaking</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-capturing-quality-lens-recommendations-for-content-makers/"><u>2024 Approved Capturing Quality Lens Recommendations for Content Makers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-chip-harmony-editors-reap-the-benefits-of-syncopated-precision/"><u>2024 Approved Chip Harmony Editors Reap the Benefits of Syncopated Precision</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-essential-guide-windows-movie-maker-in-animation-production/"><u>2024 Approved Essential Guide Windows Movie Maker in Animation Production</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-in-depth-exploration-of-final-cut-pros-powerful-tools-and-features/"><u>2024 Approved In-Depth Exploration of Final Cut Pro’s Powerful Tools and Features</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-snapchats-highlight-an-in-depth-look/"><u>2024 Approved Snapchat's Highlight An In-Depth Look</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-top-6-hdmi-21-screens-detailed-feature-rundown/"><u>2024 Approved Top 6 HDMI 2.1 Screens Detailed Feature Rundown</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-trailblazers-in-vr-eyewear-design/"><u>2024 Approved Trailblazers in VR Eyewear Design</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-oppo-reno-10-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Oppo Reno 10 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/best-choices-twitter-video-conversion-software/"><u>Best Choices Twitter Video Conversion Software</u></a></li>
-<li><a href="https://fox-http.techidaily.com/capturing-clarity-perfecting-image-description-via-text-in-pcmac-for-2024/"><u>Capturing Clarity Perfecting Image Description via Text in PC/Mac for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/discover-the-ultimate-selection-of-17-no-cost-screen-capture-applications-for-any-device/"><u>Discover the Ultimate Selection of 17 No-Cost Screen Capture Applications for Any Device!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-seamless-web-navigation-with-the-lenovo-tab-m10-hd-2020-a-cost-effective-tablet-reviewed-here/"><u>Experience Seamless Web Navigation with the Lenovo Tab M10 HD (2020) - A Cost-Effective Tablet Reviewed Here</u></a></li>
-<li><a href="https://win-answers.techidaily.com/getting-past-the-initial-hurdle-fixing-stardew-valleys-launch-challenges/"><u>Getting Past the Initial Hurdle: Fixing Stardew Valley's Launch Challenges</u></a></li>
-<li><a href="https://extra-information.techidaily.com/harness-the-sun-and-bulbs-for-stellar-iphone-photos/"><u>Harness the Sun and Bulbs for Stellar Iphone Photos</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-laserjet-p2n35-driver-troubleshooting-in-windows-easy-fixes-and-solutions-unveiled/"><u>HP LaserJet P2n35 Driver Troubleshooting in Windows - Easy Fixes and Solutions Unveiled</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/palette-playbook-the-filmmakers-guide-to-grading-for-2024/"><u>Palette Playbook The Filmmaker's Guide to Grading for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-crafting-content-that-captivates-easy-to-try-videos/"><u>[New] 2024 Approved Crafting Content That Captivates Easy-to-Try Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-standout-80s-aesthetics-for-video-editing-pros/"><u>[New] 2024 Approved Standout '80S Aesthetics for Video Editing Pros</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-podcasters-guide-to-premium-recorders/"><u>[New] In 2024, Podcaster's Guide to Premium Recorders</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-tech-vanguard-apoyser-vs-other-top-screen-capture-tools/"><u>[New] In 2024, Tech Vanguard Apoyser vs Other Top Screen Capture Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-survival-in-mc-top-house-ideas-and-plans/"><u>[Updated] 2024 Approved Survival in MC Top House Ideas & Plans</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-behind-the-numbers-carryminatis-youtube-wealth-for-2024/"><u>[Updated] Behind the Numbers CarryMinati’s YouTube Wealth for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-apex-audio-streamer-androids-choice/"><u>[Updated] In 2024, Apex Audio Streamer, Android's Choice</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-smart-guide-for-spawning-share-worthy-memes-in-9gag/"><u>[Updated] In 2024, The Smart Guide for Spawning Share-Worthy Memes in 9GAG</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-master-list-of-best-mp4-players-for-2024/"><u>[Updated] Master List of Best MP4 Players for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-streamlined-mac-imagery-unveiling-the-top-5-quick-and-effective-methods/"><u>[Updated] Streamlined Mac Imagery Unveiling the Top 5 Quick & Effective Methods</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-hybridmix-pro-for-dual-os/"><u>2024 Approved HybridMix Pro for Dual OS</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to Check Distance and Radius on Google Maps For your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-fix-gmail-sync-issues/"><u>How to Fix Gmail Sync Issues</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-select-a-premium-360-camera-today-for-2024/"><u>How to Select a Premium 360 Camera Today for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevate-your-visual-presentations-implementing-title-overlays-in-windows-photos/"><u>In 2024, Elevate Your Visual Presentations Implementing Title Overlays in Windows Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-pro-video-editing-compatible-software-across-windows-systems/"><u>In 2024, Pro Video Editing Compatible Software Across Windows Systems</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-proven-methods-for-twitter-brand-awareness/"><u>In 2024, Proven Methods for Twitter Brand Awareness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-e-commerce-for-televisions-ranking-the-6-best-online-stores-to-shop-from/"><u>Navigating E-Commerce for Televisions: Ranking The 6 Best Online Stores to Shop From</u></a></li>
+<li><a href="https://fox-http.techidaily.com/novices-guide-to-prime-gopro-extras/"><u>Novice's Guide to Prime GoPro Extras</u></a></li>
 </ul></div>
 
