@@ -1,7 +1,7 @@
 ---
 title: "\"The Plating Palette  Techniques for Food Cinematography for 2024\""
-date: 2024-08-23T18:04:49.500Z
-updated: 2024-08-24T18:04:49.500Z
+date: 2024-11-30T17:10:57.573Z
+updated: 2024-12-07T17:18:53.455Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ Short recipe videos are currently a popular trend on both YouTube and Instagram.
 
 If you would like to create some of these food videos yourself, this article will help you shoot the most appealing food videos possible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5 Tips for Shooting Food Videos
 
 #### 1\. Light
@@ -46,6 +50,10 @@ Audio is one of the main components that sets [food videography](https://www.jus
 
 ![audio](https://images.wondershare.com/filmora/article-images/sync-audio.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Try to Tell a Story
 
 What seems like an insignificant change can be monumental. When crafting recipe videos, you want to try telling a story.
@@ -57,6 +65,10 @@ Telling a story will help to pull watchers into your video so they watch through
 If you don’t start pulling them in, such as by telling a story, in the first twenty seconds, they probably won’t continue watching.
 
 ![food](https://images.wondershare.com/filmora/article-images/food-sell-a-story.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. Video Editing
 
@@ -100,6 +112,10 @@ As for the shooting itself, you can feel free to experiment with lenses that off
 
 ![lens](https://images.wondershare.com/filmora/article-images/fujinon-mk18-55mm-t2.9-lens.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Tripod
 
 Another thing you’ll want when shooting with a camera is a tripod. A tripod is necessary because it holds the camera steady, as well as allows you to be present in the video if desired.
@@ -109,8 +125,9 @@ You can find a cheap tripod at many chain stores to get you started, although yo
 ![tripod](https://images.wondershare.com/filmora/article-images/gitzo-mountaineer-series-2-carbon-fiber-tripod.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 This basic guide should give you a solid start in creating top-of-the-line food videography for your social media accounts.
@@ -119,14 +136,8 @@ If you find your first video isn’t as amazing as you’d thought it would be, 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win-pro.png)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac-pro.png)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -150,4 +161,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-navigating-the-path-to-an-official-instagram-business-page/"><u>[Updated] 2024 Approved Navigating the Path to an Official Instagram Business Page</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-racing-hearts-22-short-track-triumph/"><u>[Updated] 2024 Approved Racing Hearts '22 Short-Track Triumph</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-swift-shots-on-iphone-time-lapse-recording-guide/"><u>[Updated] 2024 Approved Swift Shots on iPhone Time-Lapse Recording Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-mastering-pip-chromes-full-screen-multi-tasking-guide/"><u>[Updated] In 2024, Mastering PIP Chrome's Full-Screen Multi-Tasking Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-giroptic-complete-immersion/"><u>[Updated] In-Depth Giroptic Complete Immersion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-on-air-in-minutes-easy-steps-to-start-a-live-stream/"><u>[Updated] On Air in Minutes Easy Steps to Start a Live Stream</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-to-written-world-superior-convert-tools-online/"><u>[Updated] YouTube to Written World Superior Convert Tools Online</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-samsung-galaxy-a15-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Samsung Galaxy A15 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-tips-correcting-the-problem-of-failed-opengl-context-initialization-with-qsurfaceformat/"><u>Expert Tips: Correcting the Problem of Failed OpenGL Context Initialization with QSurfaceFormat</u></a></li>
+<li><a href="https://techidaily.com/get-your-latest-asus-device-support-download-tailored-drivers-for-windows-10-and-7/"><u>Get Your Latest ASUS Device Support: Download Tailored Drivers for Windows 10 & 7</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-dissecting-gopros-max-and-hero-11-video-capabilities/"><u>In 2024, Dissecting GoPro's Max and Hero 11 Video Capabilities</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-price-tag-shooting-your-next-music-video/"><u>In 2024, Price Tag Shooting Your Next Music Video</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/inside-toms-electronics-lab-expert-hardware-evaluations-unveiled/"><u>Inside Tom's Electronics Lab - Expert Hardware Evaluations Unveiled</u></a></li>
+<li><a href="https://extra-support.techidaily.com/integrating-secondary-shots-tips-and-tricks-for-2024/"><u>Integrating Secondary Shots Tips and Tricks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/laptop-video-edits-going-off-inshot-for-2024/"><u>Laptop Video Edits Going Off-Inshot for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-mystery-a-step-by-step-guide-to-overcoming-twitch-error-4nk/"><u>Solving the Mystery: A Step-by-Step Guide to Overcoming Twitch Error 4Nk</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transitioning-away-from-newest-sierra-version-back-to-1010-for-2024/"><u>Transitioning Away From Newest Sierra Version Back to 10.10 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/windows-11-update-deep-dive/"><u>Windows 11 Update Deep Dive</u></a></li>
+</ul></div>
 

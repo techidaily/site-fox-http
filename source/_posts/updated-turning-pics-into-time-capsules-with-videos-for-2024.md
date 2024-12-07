@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turning Pics Into Time Capsules With Videos for 2024"
-date: 2024-11-23T03:53:02.114Z
-updated: 2024-11-27T22:59:01.602Z
+date: 2024-11-30T16:53:43.834Z
+updated: 2024-12-07T17:15:11.915Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ Therefore, it is highly recommended to digitize photos to make them lasting. In 
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4 Smart Ways to Digitize Your Memorable Old Photos
 
@@ -84,7 +88,7 @@ To convert your old photos into stunning videos, you can take the assistance of 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
@@ -95,25 +99,21 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -128,12 +128,16 @@ To add text to your videos, just go to the “Titles” option here. This will l
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Export your video
 
@@ -171,10 +175,6 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
@@ -204,16 +204,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-revolutionizing-healthcare-marketing-via-social-networks/"><u>[Updated] 2024 Approved Revolutionizing Healthcare Marketing via Social Networks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-ffmpeg-analysis-maintaining-audio-format-integrity/"><u>[Updated] FFmpeg Analysis Maintaining Audio Format Integrity</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-sierras-icloud-drive-essentials-for-seamless-workflows/"><u>[Updated] In 2024, Sierra’s iCloud Drive Essentials for Seamless Workflows</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-eyedome-recorder-chromeos-screen-snapshots/"><u>2024 Approved EyeDome Recorder ChromeOS Screen Snapshots</u></a></li>
-<li><a href="https://win-blog.techidaily.com/achieve-uninterrupted-gameplay-advanced-fixes-for-among-us-crashes-in-the-new-year-of-2024/"><u>Achieve Uninterrupted Gameplay: Advanced Fixes for Among Us Crashes in the New Year of 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/do-you-know-what-pace-is-ideal-for-your-personal-pc/"><u>Do You Know What Pace Is Ideal for Your Personal PC?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-enable-dark-mode-on-facebook/"><u>How to Enable Dark Mode on Facebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-simplify-information-storage-via-mematic/"><u>In 2024, Simplify Information Storage via Mematic</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-ticking-time-away-with-obs-creating-a-countdown-timer/"><u>In 2024, Ticking Time Away with OBS Creating a Countdown Timer</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-best-of-the-best-5-free-wmv-video-editors-reviewed/"><u>New In 2024, Best of the Best 5 Free WMV Video Editors Reviewed</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/overcoming-pdh-not-found-windows-error-expert-solutions-and-fixes/"><u>Overcoming 'Pdh Not Found' Windows Error: Expert Solutions and Fixes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-cultivating-inquisitive-interview-habits/"><u>[New] 2024 Approved Cultivating Inquisitive Interview Habits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-elite-gear-high-performance-unmatched-style/"><u>[New] 2024 Approved Elite Gear High Performance, Unmatched Style</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-draw-eyes-to-your-subject-iphone-photo-tips-with-leading-lines-for-2024/"><u>[New] Draw Eyes to Your Subject IPhone Photo Tips with Leading Lines for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-how-to-boost-youtube-video-spacing/"><u>[New] How to Boost YouTube Video Spacing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elite-tech-enhancement-with-top-srt-tweaks/"><u>[New] In 2024, Elite Tech Enhancement with Top SRT Tweaks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-sharpening-screen-views-for-improved-virtual-interactions/"><u>[Updated] 2024 Approved Sharpening Screen Views for Improved Virtual Interactions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-phone-pics-to-professional-videos-selecting-the-top-9-enhancers/"><u>[Updated] In 2024, From Phone Pics to Professional Videos Selecting the Top 9 Enhancers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-essence-of-color-in-photography-top-11-tutorials/"><u>[Updated] In 2024, The Essence of Color in Photography (Top 11 Tutorials)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-professional-videographers-choice-for-screen-recordings-for-2024/"><u>[Updated] Professional Videographer's Choice for Screen Recordings for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-ultimate-10-video-editors-webcams-reimagined/"><u>2024 Approved Ultimate 10 Video Editors Webcams Reimagined</u></a></li>
+<li><a href="https://windows11.techidaily.com/advanced-techniques-in-windows-photo-editing/"><u>Advanced Techniques in Windows Photo Editing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/bypass-windows-update-freeze-quick-fixes-to-restart-the-process/"><u>Bypass Windows Update Freeze: Quick Fixes to Restart the Process</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/decision-time-which-is-better-a-head-to-head-analysis-of-apple-watch-s9-and-fitbit-charge-6/"><u>Decision Time! Which Is Better? A Head-to-Head Analysis of Apple Watch S9 & Fitbit Charge 6</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-htc-u23-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to HTC U23 Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-which-streaming-application-leads-the-race-wirecast-or-obs/"><u>In 2024, Which Streaming Application Leads the Race, Wirecast or OBS?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mould-laughter-inducing-images-giphy-style-for-2024/"><u>Mould Laughter-Inducing Images, Giphy Style for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Infinix Hot 40i | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Evolution Continues  IPhone X's Photographic Advancements\""
-date: 2024-11-24T00:21:28.572Z
-updated: 2024-11-27T16:07:03.209Z
+date: 2024-12-04T16:36:03.854Z
+updated: 2024-12-07T16:02:07.836Z
 tags: 
   - screen-recording
   - ai video
@@ -39,16 +39,12 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
 
@@ -57,7 +53,11 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -88,11 +88,11 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,18 +127,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-superior-pcmacos-users-choice-best-8-uhd-video-player/"><u>[New] In 2024, Superior PC/MacOS Users' Choice Best 8 UHD Video Player</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-getting-the-most-out-of-pc-hdr-videos/"><u>[Updated] Getting the Most Out of PC HDR Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-launching-into-the-world-of-vlogging-for-2024/"><u>[Updated] Launching Into the World of Vlogging for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-spectacular-visuals-the-power-of-tiktok-effects/"><u>[Updated] Spectacular Visuals The Power of TikTok Effects</u></a></li>
-<li><a href="https://fox-info.techidaily.com/best-text-animation-presets/"><u>Best Text Animation Presets</u></a></li>
-<li><a href="https://win-dash.techidaily.com/enhance-your-printing-experience-with-newest-epson-wf-2940-drivers-download-now-windows-compatibility-7811t/"><u>Enhance Your Printing Experience with Newest Epson WF-2940 Drivers - Download Now (Windows Compatibility: 7/8.1/1T)</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-vivo-s17e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-vivo-y02t-lock-screen-password-by-drfone-android/"><u>How To Change Vivo Y02T Lock Screen Password?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-year-updated-lg-360-full-review-insights-for-2024/"><u>New Year, Updated LG 360 Full Review Insights for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ost-popular-6-free-and-quick-youtube-video-repositories-for-2024/"><u>The Most Popular 6 Free & Quick YouTube Video Repositories for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ont-picks-to-elevate-your-youtube-thumbnail-impact/"><u>Top Font Picks to Elevate Your YouTube Thumbnail Impact</u></a></li>
-<li><a href="https://fox-http.techidaily.com/top-tricks-for-smooth-auditory-paths/"><u>Top Tricks for Smooth Auditory Paths</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-xiaomi-redmi-note-12-pro-4g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Xiaomi Redmi Note 12 Pro 4G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhance-your-content-strategy-discover-the-power-of-social-blade-and-youtube-data/"><u>[New] Enhance Your Content Strategy - Discover the Power of Social Blade and YouTube Data</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-who-takes-the-crown-in-free-video-playback-vlc-vs-mpc/"><u>[New] In 2024, Who Takes the Crown in Free Video Playback? VLC Vs. MPC</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-the-dark-we-trust-iphone-photography/"><u>[New] In the Dark We Trust, iPhone Photography</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-xbox-gamers-guide-4-proven-screen-recording-methods/"><u>[Updated] 2024 Approved Xbox Gamers' Guide 4 Proven Screen Recording Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-a-step-further-elite-video-editing-hacks-for-tiktok/"><u>[Updated] A Step Further Elite Video Editing Hacks for TikTok</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-acer-display-drivers-step-by-step-guide/"><u>Download Acer Display Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-a-beginners-blueprint-for-iphone-reflection-photography/"><u>In 2024, A Beginner's Blueprint for iPhone Reflection Photography</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Tecno Spark Go (2024)? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-nokia-c22-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Nokia C22 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-illusions-manipulating-past-and-future-events/"><u>In 2024, Illusions Manipulating Past & Future Events</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-windows-10-audio-tips-essential-recording-methods/"><u>In 2024, Windows 10 Audio Tips Essential Recording Methods</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/selecting-superior-free-online-srt-translation-services-tips-and-tricks/"><u>Selecting Superior Free Online SRT Translation Services Tips & Tricks</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/ways-to-stop-parent-tracking-your-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Ways to stop parent tracking your Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
 </ul></div>
 

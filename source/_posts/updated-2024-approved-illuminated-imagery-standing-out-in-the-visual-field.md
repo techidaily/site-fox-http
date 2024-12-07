@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Illuminated Imagery  Standing Out in the Visual Field\""
-date: 2024-11-26T17:51:56.517Z
-updated: 2024-11-28T03:42:27.536Z
+date: 2024-12-04T16:59:50.348Z
+updated: 2024-12-07T16:23:18.066Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
@@ -64,7 +64,7 @@ The key light is the main light that illuminates the subject. You can place it i
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
@@ -81,12 +81,16 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
@@ -103,19 +107,15 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Summary
 
@@ -151,21 +151,20 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-harnessing-the-power-of-iphones-shutter-speed-for-movement/"><u>[New] 2024 Approved Harnessing the Power of iPhone's Shutter Speed for Movement</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-unveiling-the-secrets-of-smooth-telegram-web-use/"><u>[New] 2024 Approved Unveiling the Secrets of Smooth Telegram Web Use</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-key-takeaways-on-youtube-tv-an-overview-of-its-advantages/"><u>[New] In 2024, Key Takeaways on YouTube TV An Overview of Its Advantages</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-revamp-photos-essential-color-correction-steps/"><u>[New] In 2024, Revamp Photos Essential Color Correction Steps</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-inshot-editing-mastery-in-video-transitions/"><u>[Updated] Inshot Editing Mastery in Video Transitions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-step-by-step-guide-to-installing-streamlabs-in-obs-mac-for-2024/"><u>[Updated] Step-by-Step Guide to Installing Streamlabs in OBS (Mac) for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-superior-systems-best-of-the-desk-lineup/"><u>[Updated] Superior Systems Best of the Desk Lineup</u></a></li>
-<li><a href="https://facebook.techidaily.com/apples-focus-on-innovation-over-metaverse-entry/"><u>Apple's Focus on Innovation Over Metaverse Entry</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-secrets-of-retrieving-wireless-network-key-in-windows-11-easily/"><u>Discover the Secrets of Retrieving Wireless Network Key in Windows 11 Easily</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/evaluating-the-authenticity-of-temu-essential-insights-prior-to-your-initial-purchase-techradar/"><u>Evaluating the Authenticity of Temu - Essential Insights Prior to Your Initial Purchase | TechRadar</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-11-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 11 Without Losing Data? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-boosting-speed-for-periscope-live-video/"><u>In 2024, Boosting Speed for Periscope Live Video</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-cash-up-fast-a-newbies-guide-to-the-13-best-reddit-money-hacks/"><u>In 2024, Cash Up Fast A Newbie's Guide to the 13 Best Reddit Money Hacks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-unlocking-creativity-top-10-insider-canva-tricks/"><u>In 2024, Unlocking Creativity Top 10 Insider Canva Tricks</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolved-the-complete-fix-for-amd-radeon-wattman-restoration-glitches/"><u>Resolved! The Complete Fix for AMD Radeon Wattman Restoration Glitches</u></a></li>
-<li><a href="https://howto.techidaily.com/xiaomi-redmi-note-13-pro-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi Note 13 Pro 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-expert-breakdown-of-adobe-cloud-plus-alternative-methods/"><u>[New] 2024 Approved Expert Breakdown of Adobe Cloud, Plus Alternative Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-expert-tips-for-maximizing-vscos-potential/"><u>[New] Expert Tips for Maximizing VSCO's Potential</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-mastering-iphoneipad-premium-podcast-recording-tips/"><u>[New] In 2024, Mastering iPhone/iPad Premium Podcast Recording Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-youtube-srt-extracts-a-triad-approach/"><u>[New] Mastering YouTube SRT Extracts A Triad Approach</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-vampire-vignette-virtuoso/"><u>[New] Vampire Vignette Virtuoso</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-evaluating-costs-for-youtube-ad-campaigns/"><u>[Updated] 2024 Approved Evaluating Costs for YouTube Ad Campaigns</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-renaming-your-podcast-leading-ai-generators-explored/"><u>[Updated] 2024 Approved Renaming Your Podcast Leading AI Generators Explored</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-boost-virtual-engagement-select-top-10-recorder-software/"><u>[Updated] Boost Virtual Engagement Select Top 10 Recorder Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-formulating-flashy-podcast-announcements/"><u>[Updated] Formulating Flashy Podcast Announcements</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-2024-guide-to-auditory-freedom-through-pazera-extraction/"><u>[Updated] The 2024 Guide to Auditory Freedom Through Pazera Extraction</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341714014-experience-green-technology-with-teamgroups-eco-vulcan-the-ddr5-6000-c30-2x16gb-memory-kit-reviewed/"><u>Experience Green Technology with TeamGroup's Eco Vulcan - The DDR5-6000 C30, 2X16GB Memory Kit Reviewed</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-honor-play-7t-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Honor Play 7T Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-oppo-reno-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-enhancing-webcasts-with-dynamic-background-transitions/"><u>In 2024, Enhancing Webcasts with Dynamic Background Transitions</u></a></li>
+<li><a href="https://howto.techidaily.com/realme-c67-4g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme C67 4G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
 </ul></div>
 

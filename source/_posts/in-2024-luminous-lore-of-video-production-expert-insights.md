@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Luminous Lore of Video Production  Expert Insights\""
-date: 2024-08-23T18:03:37.341Z
-updated: 2024-08-24T18:03:37.341Z
+date: 2024-12-06T16:26:19.900Z
+updated: 2024-12-07T17:10:12.642Z
 tags: 
   - screen-recording
   - ai video
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/73087a990223851f6a7c5417d3512a4d93ddbbb6c
 Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -48,6 +52,10 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
@@ -68,9 +76,17 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -91,6 +107,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -124,8 +144,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-pros-list-top-5-timelapse-software/"><u>[New] 2024 Approved Pro's List Top 5 Timelapse Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-a-nostalgic-journey-through-time-with-stop-motion-classics/"><u>[New] In 2024, A Nostalgic Journey Through Time with Stop-Motion Classics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-optimize-viewing-the-finest-html5-video-solutions/"><u>[New] In 2024, Optimize Viewing The Finest HTML5 Video Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-selection-choosing-excellent-free-srt-translators-for-2024/"><u>[New] Ultimate Selection Choosing Excellent FREE SRT Translators for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-choice-collection-high-quality-virtual-reality-titles-for-cardboard/"><u>[Updated] In 2024, Choice Collection High-Quality Virtual Reality Titles for Cardboard</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-win10-screen-grabber-top-tier-video-recorder/"><u>[Updated] In 2024, Win10 Screen Grabber - Top-Tier Video Recorder</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-prime-channel-themes-igniting-viewer-motivation-for-2024/"><u>[Updated] Prime Channel Themes Igniting Viewer Motivation for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-comprehensive-list-of-cam-accessories-for-2024/"><u>[Updated] The Comprehensive List of Cam Accessories for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/clear-video-ultimate-guide-to-good-cams-mics/"><u>Clear Video Ultimate Guide to Good Cams' Mics</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-installation-of-arduino-nano-driver-on-your-pc-with-windows-operating-system/"><u>Effortless Installation of Arduino Nano Driver on Your PC with Windows Operating System</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-turn-on-chatgpts-new-beta-web-browsing-and-plugins-features/"><u>How to Turn on ChatGPT's New Beta Web Browsing and Plugins Features</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-realme-gt-3-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Realme GT 3? Try These Fixes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-reimagining-commerce-through-immersive-technology/"><u>In 2024, Reimagining Commerce Through Immersive Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-pillar-why-facebook-is-indispensable/"><u>Social Media's Pillar: Why Facebook Is Indispensable</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-review-of-sns-hdr-vs-top-hdr-applications/"><u>The Ultimate Review of SNS HDR Vs. Top HDR Applications</u></a></li>
+<li><a href="https://common-error.techidaily.com/unstick-your-file-explorer-on-windows-11-quick-resolution-steps/"><u>Unstick Your File Explorer on Windows 11 - Quick Resolution Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-the-hidden-gems-that-challenge-vlc/"><u>Unveiling the Hidden Gems That Challenge VLC</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->

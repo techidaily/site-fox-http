@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering Windows 11  Photo & Video Import Magic\""
-date: 2024-11-24T23:57:33.222Z
-updated: 2024-11-27T18:59:08.383Z
+date: 2024-12-02T17:18:11.660Z
+updated: 2024-12-07T16:16:50.079Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,14 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
@@ -56,15 +64,15 @@ Now that your phone is recognized, you should see the camera or phone pop up alo
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 4: Import
 
 Your computer will tell you how many pictures and photos were found. You can either review, organize and group these items, or you can choose to import all the new items in one go.
 
 The great thing about reviewing the photos and videos before importing them onto your computer is that you can choose folders for different files, name those folders and ensure that you are only importing files that are not on your system already.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Start Importing in Photos App
 
@@ -81,7 +89,7 @@ Within the app, it is easy to see your photos and videos as they are organized b
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Troubleshooting the Phone to PC Connection
@@ -102,14 +110,6 @@ Connect the camera to your phone and then follow the above steps to import your 
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
@@ -117,7 +117,7 @@ If you own a Windows 10 desktop or laptop, it is very easy to connect a smartpho
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -145,21 +145,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-optimal-memory-support-for-sony-alpha-7sii/"><u>[New] 2024 Approved Optimal Memory Support for Sony Alpha 7SII</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-art-of-surrendering-to-the-spectacle-posting-immersive-videos-on-facebook/"><u>[New] In 2024, The Art of Surrendering to the Spectacle Posting Immersive Videos on Facebook</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-navigate-through-the-best-of-iphones-virtual-reality-games/"><u>[New] Navigate Through The Best of iPhone's Virtual Reality Games</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-ultimate-list-of-livestream-streaming-strategies/"><u>[New] The Ultimate List of Livestream Streaming Strategies</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-dji-sky-artistry-experiment-with-color-filters-at-zero-cost/"><u>[Updated] 2024 Approved DJI Sky Artistry - Experiment with Color Filters at Zero Cost</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-instant-transformation-gifs-becoming-stickers-across-discord-whatsapp-and-more-for-2024/"><u>[Updated] Instant Transformation Gifs Becoming Stickers Across Discord, WhatsApp & More for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-whatsapp-video-integration-for-twitter-content/"><u>[Updated] WhatsApp Video Integration for Twitter Content</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/boost-your-teams-efficiency-with-copilot-in-microsoft-teams-a-complete-walkthrough/"><u>Boost Your Team's Efficiency with Copilot in Microsoft Teams - A Complete Walkthrough</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-stolen-iphone-15-in-different-conditionsin-by-drfone-ios/"><u>How To Unlock Stolen iPhone 15 In Different Conditionsin</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-tecno-spark-10-4g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Tecno Spark 10 4G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-setting-up-your-zone-for-top-notch-oculus-vr-experience/"><u>In 2024, Setting Up Your Zone for Top-Notch Oculus VR Experience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/luminaries-crafting-spectaculous-vr-journeys/"><u>Luminaries Crafting Spectaculous VR Journeys</u></a></li>
-<li><a href="https://fox-http.techidaily.com/perfect-portraits-changing-picture-sizes-on-ios-for-2024/"><u>Perfect Portraits Changing Picture Sizes on iOS for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/punpixel-patterner/"><u>PunPixel Patterner</u></a></li>
-<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-on-iphone-14-by-drfone-ios/"><u>Unlock Apple ID without Phone Number On iPhone 14</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unlock-full-screen-browsing-potential-in-safari-for-apple/"><u>[New] 2024 Approved Unlock Full-Screen Browsing Potential in Safari for Apple</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-essential-steps-in-using-streamlabs-obs-successfully-for-2024/"><u>[New] Essential Steps in Using Streamlabs OBS Successfully for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-audio-mix-mastery-the-essence-of-crossfade/"><u>[New] In 2024, Audio Mix Mastery The Essence of Crossfade</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-behind-the-lens-mastery-5-essential-cinematographic-insights/"><u>[New] In 2024, Behind the Lens Mastery 5 Essential Cinematographic Insights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-ultimate-free-guide-to-accessing-youtube-video-texts/"><u>[New] In 2024, The Ultimate FREE Guide to Accessing YouTube Video Texts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-investing-in-the-right-keyboard-for-low-cost-maximum-output/"><u>[New] Investing in the Right Keyboard for Low Cost, Maximum Output</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-best-compact-cameras-for-1000-or-less-4k/"><u>[Updated] 2024 Approved Best Compact Cameras for $1000 or Less (4K)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unlock-creative-potential-advanced-zooming-on-snapchat/"><u>[Updated] Unlock Creative Potential Advanced Zooming on Snapchat</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-step-by-step-guide-mastering-creative-effects-in-online-zoom-sessions/"><u>2024 Approved Step-by-Step Guide Mastering Creative Effects in Online Zoom Sessions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-ultimate-hack-swiftly-delete-your-youtube-comments/"><u>2024 Approved The Ultimate Hack Swiftly Delete Your YouTube Comments</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-process-for-implementing-the-most-recent-drivers-on-your-intel-centrino-advanced-n-card-6230u/"><u>Easy Process for Implementing the Most Recent Drivers on Your Intel Centrino Advanced-N Card (6230U)</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-oneplus-nord-3-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset OnePlus Nord 3 5G in 3 Efficient Ways | Dr.fone</u></a></li>
 </ul></div>
 
