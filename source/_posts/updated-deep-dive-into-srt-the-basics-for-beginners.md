@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Deep Dive Into SRT  The Basics for Beginners\""
-date: 2024-12-06T16:00:57.602Z
-updated: 2024-12-07T16:08:14.654Z
+date: 2024-12-06T18:14:46.746Z
+updated: 2024-12-13T17:37:30.968Z
 tags: 
   - screen-recording
   - ai video
@@ -39,10 +39,6 @@ In this post, we will discuss everything about the SRT file format. From what it
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is SRT and how does an SRT file work
 
 | **File Extension**    | .srt                                                           |
@@ -69,6 +65,10 @@ Having understood what an SRT file is, let's take a look at some top reasons why
 
 And the amazing thing about this kind of file is that you don't need to always edit it or generate additional files irrespective of the platform you're looking to use it on.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. User friendly
 
 SRT files save users from unwanted hassles if they're looking to edit or update the file. Perhaps you noticed a slight error in the subtitle text, you can easily fix the problem from the SRT file without using any advanced software. All you just need is a basic text editor like Notepad to enter the changes required.
@@ -84,10 +84,6 @@ The fact that SRT is highly compatible with almost every platform makes it a goo
 ### 5\. Improve SEO ability
 
 As stated earlier, due to the fact SRT files can be indexed and crawled by Google, it helps improve their video SEO. When a user searches a particular keyword online, the keywords in the phrases of your subtitles will be analyzed by Google, and if it matches, it'll increase the chances of your video being in Google first page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to make SRT file?
 
@@ -109,19 +105,23 @@ Step5 Repeat step 3 & 4 until you've completed the Transcript. Make sure you che
 
 ![check no errors in spellings](https://images.wondershare.com/filmora/article-images/2022/07/how-to-make-srt-file-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step6 To Save your file in .srt format, click on **‘File’** \> **Save**. Under ‘Save As’ enter the name of your file and change the file extension to .srt and hit the Save button to complete the process.
 
 ![click on file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-make-srt-file-2.jpg)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** if you're on Mac, make sure you Uncheck the ‘Hide Extension’ and If no extension is provided, use “.txt” checkboxes.
 
 You've successfully created an SRT file. It's as simple as that!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to open an SRT file?
 
@@ -143,17 +143,21 @@ Step2 Move the uploaded SRT file to the Timeline and right-click on it. Then cho
 
 ![choose advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Now take advantage of the Filmora software advanced editing to edit the SRT file.
 
 ![use filmora to edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Once you're done with editing the SRT file, move the cursor to the timeline and right-click on the ‘SRT’ > select ‘Export Subtitle File’ from the pop-up list that appears to upload the edited SRT file to your PC storage.
 
 ![select subtitle file](https://images.wondershare.com/filmora/article-images/2022/07/open-and-edit-srt-file-with-filmora-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: Hot FAQs on SRT files
 
@@ -164,6 +168,10 @@ SRT and VTT are quite similar. However, VTT has more editing options compared to
 ### 2\. Are SRT files closed captions?
 
 Yes, SRT files are raw closed caption files.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. How do I use SRT files for YouTube?
 
@@ -206,7 +214,11 @@ Here is an SRT format example;
 ![an example of srt file](https://images.wondershare.com/filmora/article-images/2022/07/an-example-of-srt-file.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why should I use SRT files?
@@ -216,6 +228,10 @@ Having understood what an SRT file is, let's take a look at some top reasons why
 ### 1\. Compatibility with media players
 
 And the amazing thing about this kind of file is that you don't need to always edit it or generate additional files irrespective of the platform you're looking to use it on.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. User friendly
 
@@ -241,6 +257,10 @@ Step1 Launch TextEdit if you're using a Mac or Notepad if you're using Windows a
 
 ![launch textedit](https://images.wondershare.com/filmora/article-images/2022/07/everything-you-should-know-about-srt-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Now, type 1 to indicate the beginning of the first caption sequence. Then click on ‘Enter’ on your Keyboard.
 
 Enter of the following formats as the beginning and ending timecode; hours:minutes:seconds,milliseconds – -> hours:minutes:seconds,milliseconds
@@ -258,10 +278,6 @@ Step6 To Save your file in .srt format, click on **‘File’** \> **Save**. Und
 ![click on file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-make-srt-file-2.jpg)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** if you're on Mac, make sure you Uncheck the ‘Hide Extension’ and If no extension is provided, use “.txt” checkboxes.
 
@@ -297,17 +313,9 @@ Step4 Once you're done with editing the SRT file, move the cursor to the timelin
 
 ## Part 5: Hot FAQs on SRT files
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Which Is Better, SRT or VTT?
 
 SRT and VTT are quite similar. However, VTT has more editing options compared to SRT making it easier to play on most video players. Plus, it contains metadata and other advanced options compared to SRT. The only notable downside about VTT, when compared to SRT, is that it can't be played on social media platforms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Are SRT files closed captions?
 
@@ -321,17 +329,9 @@ The process of adding SRT to your YouTube video is pretty straightforward. Just 
 
 ![select subtitles](https://images.wondershare.com/filmora/article-images/2022/07/how-to-use-srt-file-on-youtube-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Select the Video that you want to add SRT to. Then click ‘Add Language’ and select the language you wrote your Subtitle.
 
 ![click add language](https://images.wondershare.com/filmora/article-images/2022/07/how-to-use-srt-file-on-youtube-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Click Add under the Subtitle section and upload your SRT file through the pop-up that appears on your screen.
 
@@ -367,16 +367,15 @@ That being said, if you plan on using SRT for your videos you can employ the sim
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-viewers-delight-discovering-top-6-engaging-content-formats/"><u>[New] In 2024, Viewer's Delight Discovering Top 6 Engaging Content Formats</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-standout-6-platforms-empowering-biz-marketing/"><u>[New] Standout 6 Platforms Empowering Biz Marketing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-smooth-cinematography-ideal-stabilizer-tools-for-vloggers/"><u>[Updated] In 2024, Smooth Cinematography Ideal Stabilizer Tools for Vloggers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-efficient-way-to-grab-all-episodes-on-your-idevice/"><u>[Updated] In 2024, The Efficient Way to Grab All Episodes on Your iDevice</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-encyclopedia-of-touch-based-gesture-analytics/"><u>[Updated] In 2024, The Encyclopedia of Touch-Based Gesture Analytics</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/converting-high-definition-footage-transform-your-1080p-videos-into-optimized-720p-formats/"><u>Converting High-Definition Footage: Transform Your 1080P Videos Into Optimized 720P Formats</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/exploring-the-world-of-animated-image-design/"><u>Exploring the World of Animated Image Design</u></a></li>
-<li><a href="https://win-dash.techidaily.com/install-intel-uhd-graphics-drivers-on-windows-10-or-11-free-software-and-driver-updates/"><u>Install Intel UHD Graphics Drivers on Windows 10 or 11: Free Software and Driver Updates</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726029491769-powerpointgif/"><u>PowerPointから簡単にGIFへの変換ガイド</u></a></li>
-<li><a href="https://win-popular.techidaily.com/step-by-step-tutorial-cloning-your-windows-server-2e08r2-hard-disk-efficiently/"><u>Step-by-Step Tutorial: Cloning Your Windows Server 2E08(R2) Hard Disk Efficiently</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/toms-tech-review-in-depth-hardware-analyses/"><u>Tom's Tech Review: In-Depth Hardware Analyses</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-elevate-your-visual-storytelling-with-top-montage-mobile-aids/"><u>[New] 2024 Approved Elevate Your Visual Storytelling with Top Montage Mobile Aids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-hues-in-harmony-applying-color-principles/"><u>[Updated] 2024 Approved Hues in Harmony Applying Color Principles</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-core-framework-principles-for-engaging-online-promotions/"><u>[Updated] In 2024, Core Framework Principles for Engaging Online Promotions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-perfect-precision-the-best-39-video-trimming-tools-from-google-play/"><u>[Updated] Perfect Precision The Best 39 Video-Trimming Tools From Google Play</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/disabling-iphone-notifications-a-guide-to-opting-out-of-emergency-and-amber-alerts/"><u>Disabling iPhone Notifications: A Guide to Opting Out of Emergency & Amber Alerts</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-composite-skies-a-drone-video-editors-strategic-guide/"><u>In 2024, Composite Skies A Drone Video Editor’s Strategic Guide</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-audiovisual-beat-engineering-taking-audio-separates-for-creative-endeavors/"><u>New Audiovisual Beat Engineering Taking Audio Separates for Creative Endeavors</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/personalized-chatbots-crafting-with-advanced-gpt-tools/"><u>Personalized ChatBots: Crafting with Advanced GPT Tools</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/preempting-perilous-pathways-top-7-cyber-predictions/"><u>Preempting Perilous Pathways: Top 7 Cyber Predictions</u></a></li>
 </ul></div>
 

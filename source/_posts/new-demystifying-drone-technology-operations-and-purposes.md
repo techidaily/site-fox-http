@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Demystifying Drone Technology  Operations and Purposes\""
-date: 2024-08-16T09:28:48.173Z
-updated: 2024-08-17T09:28:48.173Z
+date: 2024-12-09T16:35:46.975Z
+updated: 2024-12-13T18:13:39.039Z
 tags: 
   - screen-recording
   - ai video
@@ -39,8 +39,9 @@ thumbnail: https://thmb.techidaily.com/a49d5779dbd8d3bcb3bf8423c93f4ef941ba145d1
 ![history of drones](https://images.wondershare.com/filmora/article-images/history-of-drones.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Does a Drone Work?
 
  The working procedure of a drone may appear simple to most of you but the device is actually carrying a complex technology inside. Before we discuss the concept of drones' working you must know the fact that differentiate between drones and its ancestors- helicopters. The former one can fly independently whereas later needs pilot for directions.
@@ -48,37 +49,22 @@ thumbnail: https://thmb.techidaily.com/a49d5779dbd8d3bcb3bf8423c93f4ef941ba145d1
  Actually it is a specially designed multi propeller system inside a drone that makes this device highly independent and also assists in reduction of failures. One important thing to note about this multi propeller system is that even if any motor inside this device stops working; it will keep on flying as it gets support from propellers that are working in group. Drones that possess large number of motors inside are able to gain more control over their elevation and hence can carry more loads during flight. These propellers get their power from a dedicated source and most of these devices contain removable batteries so that it can stay in air for long run. The flight time can be extended with use of powerful batteries in design.
 
 ![how does drones work](https://images.wondershare.com/filmora/article-images/how-does-drone-work.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How does it fly?
 
  Controller plays an important role in drone flying mechanism. This device is used by experts for controlling every movement of drone, ranging from its launching, navigation abilities and even up to landing. Market is flooded with variety of controllers these days and developers often use to do various experiments to create drones with impressive features.
 
  Major task of a controller is to establish proper communication channel between remote unit and the radio waves. Most of the drones use to work on 2.4 GHz frequency range and many of these controls take help from Wi-Fi networks for making active decisions regarding movements. Many features of a smartphone and drone are same as like both carry GPS, Wi-Fi and many other common sensor units. These onboard sensors help drone to stay in air for long run and make right decisions about its height, direction and other important movements. The landing process is also controlled by propeller system inside and the sensors make decisions about its speed, altitude and motor rotation etc. A drone works like an intelligent air unit that can cover large distance when used with powerful batteries and can bring the hidden information for you like a spy. This is the main reason behind it popularity in military applications.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## Popular consumer done manufactures 2017
 
  1\. [DJI Innovations >>](http://www.dji.com/)
 
 ![dji drone logo](https://images.wondershare.com/filmora/article-images/dji-logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2\. [Yuneec >>](http://www.yuneec.com/products )
 
@@ -88,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/a49d5779dbd8d3bcb3bf8423c93f4ef941ba145d1
 
 ![parrot drone logo](https://images.wondershare.com/filmora/article-images/parrot-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4\. [3D Robotics >>](http://3drobotics.com/ )
 
 ![3d robotics drone logo](https://images.wondershare.com/filmora/article-images/3d-robotics-logo.jpg)
@@ -96,25 +86,28 @@ thumbnail: https://thmb.techidaily.com/a49d5779dbd8d3bcb3bf8423c93f4ef941ba145d1
 
 ![hubsan drone logo](https://images.wondershare.com/filmora/article-images/hubsan-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  6\. [Syma Toy >>](http://www.symatoys.com/ )
 
 ![syma toy drone logo](https://images.wondershare.com/filmora/article-images/syma-toy-logo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
  7\. [Autel Robotics >>](https://www.autelrobotics.com )
 
 ![Autel logo](https://images.wondershare.com/filmora/article-images/autel-robotics-logo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  8\. [Xiro >>](http://xirodrone.com/ )
 
 ![xiro drone logo](https://images.wondershare.com/filmora/article-images/xiro-logo.png)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  9\. [Vantage >>](https://vantagerobotics.com/ )
@@ -124,9 +117,6 @@ thumbnail: https://thmb.techidaily.com/a49d5779dbd8d3bcb3bf8423c93f4ef941ba145d1
  10\. [Horizon Hobby >>](http://www.horizonhobby.com/category/multirotor )
 
 ![Horizon Hobby logo](https://images.wondershare.com/filmora/article-images/horizon-hobby-logo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Summary
 
@@ -157,4 +147,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-staying-grounded-in-vr-worlds/"><u>[New] 2024 Approved Staying Grounded in VR Worlds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-economical-wide-angle-camcorders-for-visual-storytelling/"><u>[New] Economical Wide Angle Camcorders for Visual Storytelling</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-best-microphones-ranked-perfect-companions-for-4k-cinematography/"><u>[New] In 2024, Best Microphones Ranked Perfect Companions for 4K Cinematography</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-mastering-circular-and-spherical-artistry-building-block-by-block/"><u>[New] In 2024, Mastering Circular & Spherical Artistry Building Block by Block</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-instantly-hide-faces-with-picscanner-tricks/"><u>[New] Instantly Hide Faces with PicScanner Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-perfect-photos-on-iphone-illumination-secrets-for-2024/"><u>[New] Perfect Photos on IPhone Illumination Secrets for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-premier-10-subtitle-editing-software-online/"><u>[New] Premier 10 Subtitle Editing Software Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-selecting-the-right-flight-stabilizer-drones-edition/"><u>[New] Selecting the Right Flight Stabilizer Drones Edition</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-from-console-to-screen-efficient-recording-strategies-for-2024/"><u>[Updated] From Console to Screen Efficient Recording Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-add-link-to-facebook-story-for-free/"><u>[Updated] How to Add Link to Facebook Story for Free?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-key-tactics-for-testimonial-videos/"><u>[Updated] Key Tactics for Testimonial Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-revolution-of-perception-in-augmented-realms-for-2024/"><u>[Updated] The Revolution of Perception in Augmented Realms for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-great-growers-guide-the-best-farmer-games/"><u>2024 Approved The Great Growers' Guide The Best Farmer Games</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/overcoming-format-required-first-how-to-prepare-your-hard-drive/"><u>Overcoming 'Format Required First': How To Prepare Your Hard Drive</u></a></li>
+<li><a href="https://extra-support.techidaily.com/path-to-professionalism-morphvox-transformation-guide-for-2024/"><u>Path to Professionalism MorphVOX Transformation Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oney-making-techniques-for-short-videos/"><u>Top Money-Making Techniques for Short Videos</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-testers-choice-the-ultimate-non-vizio-non-jbl-soundbar-experience-revealed-on-zdnet/"><u>Top-Tester's Choice: The Ultimate Non-Vizio, Non-JBL Soundbar Experience Revealed on ZDNet</u></a></li>
+</ul></div>
 

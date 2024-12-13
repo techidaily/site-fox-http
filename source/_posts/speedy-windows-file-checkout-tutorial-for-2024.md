@@ -1,7 +1,7 @@
 ---
 title: "Speedy Windows File Checkout Tutorial for 2024"
-date: 2024-08-16T09:28:22.423Z
-updated: 2024-08-17T09:28:22.423Z
+date: 2024-12-07T16:08:53.346Z
+updated: 2024-12-13T18:04:19.460Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ Step1 Open Microsoft Store and search for QuickLook. Make sure you select the op
 
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
 
 Step3 After successfully installing QuickLook, head to File Explorer and select any file you want to preview. Press the “Space” bar on your keyboard to view the file.
@@ -40,9 +44,6 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Part 2: Get the App on GitHub
 
 If you can’t find QuickLook on Microsoft Store for one reason or another, download the program from GitHub. It’s an open-source community where millions of software developers converge to distribute and share their work. Here, you can download and install multiple desktop programs and plugins for free. However, you must be a registered member to contribute any content.
@@ -52,27 +53,30 @@ So, without wasting time, let’s go through the steps to download the QuickLook
 Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and then navigate to Releases. Click the latest version.
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
@@ -82,9 +86,6 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: Frequently Asked Questions
 
 #### 1\. Which digital file formats are compatible with QuickLook?
@@ -100,8 +101,9 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 This guidepost is another testament that your PC has massive hidden abilities. With QuickLook for Windows, you can preview any document, image, or media file with a single click. And don’t forget to install the QuickLook plugins from GitHub to unlock the program’s full potential.
@@ -134,4 +136,26 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>[New] Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-navigating-through-gopros-time-lapse-potential/"><u>[New] In 2024, Navigating Through GoPro's Time-Lapse Potential</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-scrutinizing-wirecast-plus-similar-tools/"><u>[New] Scrutinizing WireCast + Similar Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-securing-elite-photos-online-with-no-expense-incurred-for-2024/"><u>[New] Securing Elite Photos Online With No Expense Incurred for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-corpse-comic-connoisseur-for-2024/"><u>[Updated] Corpse Comic Connoisseur for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-5-low-cost-drones-maximum-performance-on-a-shoestring/"><u>[Updated] In 2024, 5 Low-Cost Drones Maximum Performance on a Shoestring</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-maximize-your-window-usage-top-30-unknown-tips-and-tricks-for-windows-11/"><u>[Updated] In 2024, Maximize Your Window Usage Top 30 Unknown Tips and Tricks for Windows 11</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-tips-for-uninterrupted-obs-video-playback/"><u>[Updated] In 2024, Tips for Uninterrupted OBS Video Playback</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-kid-proof-camcorders-the-top-11-beginner-friendly-choices/"><u>[Updated] Kid-Proof Camcorders The Top 11 Beginner-Friendly Choices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ultimate-guide-unbiased-freepaid-blu-ray-vids-on-pcmac-for-2024/"><u>[Updated] Ultimate Guide Unbiased Free/Paid Blu-Ray Vids on PC/Mac for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-zip-to-srt-transformation-explained-simply/"><u>[Updated] Zip to Srt Transformation Explained Simply</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-secure-your-screen-content-mastering-the-ezvide-technique/"><u>2024 Approved Secure Your Screen Content - Mastering the EZvide Technique</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-evolution-identifying-affected-professions/"><u>AI Evolution: Identifying Affected Professions?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/immersive-horizon-the-rise-of-virtual-reality-for-2024/"><u>Immersive Horizon The Rise of Virtual Reality for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-optimizing-video-playback-with-pip-on-safari-devices/"><u>In 2024, Optimizing Video Playback with PIP on Safari Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-sage-scripts-for-soundplays/"><u>In 2024, Sage Scripts for Soundplays</u></a></li>
+<li><a href="https://win-blog.techidaily.com/life-is-strange-true-colors-game-stuttering-solved-essential-fixes-for-a-smooth-gaming-experience/"><u>Life Is Strange: True Colors Game Stuttering Solved? Essential Fixes for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/material-selection-for-centrifugal-pumps-is-influenced-by-fluid-properties-operating-conditions-and-the-intended-applications-specific-needs/"><u>Material Selection for Centrifugal Pumps Is Influenced by Fluid Properties, Operating Conditions, and the Intended Application's Specific Needs.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/subtle-sonic-reduction-in-the-world-of-audio-editing-for-2024/"><u>Subtle Sonic Reduction in the World of Audio Editing for 2024</u></a></li>
+</ul></div>
 

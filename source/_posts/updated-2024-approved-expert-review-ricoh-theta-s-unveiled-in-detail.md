@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Expert Review  Ricoh Theta S Unveiled in Detail\""
-date: 2024-12-05T17:33:15.728Z
-updated: 2024-12-07T17:02:21.729Z
+date: 2024-12-06T16:22:51.128Z
+updated: 2024-12-13T16:00:24.565Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Large numbers of people are talking about Ricoh these days so it becomes essenti
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1 Complete Review of Ricoh Theta S
 
 **Brief Introduction about Ricoh Theta S**
@@ -51,6 +55,10 @@ Ricoh has recently launched its most awaited spherical camera unit in form of Th
 
 ![Ricoh Theta S - Details](https://images.wondershare.com/filmora/article-images/ricoh-theta-s-design.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Theta S is going to serve like a push button to the growing world of spherical imaging where one can grab the whole 360 degree scene from any location and later it is possible to use zoom and pan features over these photos. All captured photographs can be easily viewed upon Mac, PC, Android as well as iOS devices by simply installing Theta apps developed by Ricoh itself. You will be glad to know that Ricoh theta comes with 4GB memory support that is enough to collect unlimited memories everyday. In order to transfer your photos to other devices you can use Wi-Fi connectivity directly. If we talk about the size of this spherical imaging device then it is measured to be 1.65 x 5.08 x 9 inches with a total weight of 20 pounds; no doubt to say that this tinny device can be held on tours easily.
 
 **How to use**
@@ -58,7 +66,7 @@ Theta S is going to serve like a push button to the growing world of spherical i
 ![Ricoh Theta S - How to use](https://images.wondershare.com/filmora/article-images/ricoh-theta-S-details.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This Theta S camera unit can be easily used by beginners as well as professional photographers because of its incredibly interactive features. Simply turn on your camera by pressing the button provided and release the shutter; as it used to cover spherical images so you are advised to hold camera till the time it captures scene around you. The Wi-Fi facility as well as the self-timer feature is very handy so you need not to worry about anything. It can be directly connected to Android as well as iOS devices with available wireless network and one can change the settings of device as per need. It is possible to enjoy live previews of captured photographs but this facility is not available for videos; however, it is possible to transfer everything to PC via USB or HDMI port so that direct streaming can be enjoyed.
@@ -67,19 +75,11 @@ This Theta S camera unit can be easily used by beginners as well as professional
 
 ![Ricoh Theta S for Party](https://images.wondershare.com/filmora/article-images/ricoh-theta-s-for-party.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This device is ideal to use for gatherings, functions such as weddings, birthday parties and dinner halls as it can capture the colorful events with finest details. You can also attach this camera unit to a drone and let it fly in the air so that everything can be captured in an outstanding way; it will result quality images in all situations.
 
 **Image and Video Quality**
 
 ![Ricoh Theta S image quality](https://images.wondershare.com/filmora/article-images/ricoh-theta-s-image-quality.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The picture quality is simply outstanding and is rated to be much better than all mid-range Smartphone. It captures colors in very dynamic and decent manner with more numbers if pixels in every frame. This device is known for its ability to capture the 1080p type footage with 30fps quality and the resulting images are easy to edit with the latest applications.
 
@@ -88,7 +88,7 @@ The picture quality is simply outstanding and is rated to be much better than al
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2 Pros and Cons at a glance
@@ -103,6 +103,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Great still image quality                                                              |                                                                       |
 | Cloud service for image sharing                                                        |                                                                       |
 | Remote control (via App)                                                               |                                                                       |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
 
@@ -119,10 +123,6 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Aspect Ratio**         | 4:3 (Leading to much improved view)                       | **Tripod Mount**      | YES                                                                                                                                                                   |
 | **Image Resolution**     | 5376 x 2688 (14.5 MP, Other), 2048 x 1024 (2.1 MP, Other) | **Video resolution**  | 1920x1080 (30p) 1280x720 (15p)                                                                                                                                        |
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
 
@@ -157,18 +157,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-smooth-transitions-the-ultimate-guide-for-audio-editors/"><u>[New] 2024 Approved Smooth Transitions The Ultimate Guide for Audio Editors</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-best-global-music-stream-service/"><u>[New] Best Global Music Stream Service</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-harnessing-the-power-camera-techniques-in-ios-11-for-2024/"><u>[New] Harnessing the Power Camera Techniques in iOS 11 for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-ticklishtunes-your-guide-to-amusing-ringtone-downloads/"><u>[New] In 2024, TicklishTunes Your Guide to Amusing Ringtone Downloads</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-optimizing-googles-automatic-speech-recognition-features/"><u>[New] Optimizing Google's Automatic Speech Recognition Features</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-best-cheap-action-cameras-to-purchase-for-under-100/"><u>[New] The Best Cheap Action Cameras to Purchase for Under $100</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-decoding-slug-lines-for-effective-writing/"><u>[Updated] In 2024, Decoding Slug Lines for Effective Writing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-massive-popularity-in-stock-imagery-tales-of-success-for-2024/"><u>[Updated] Massive Popularity in Stock Imagery Tales of Success for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-winning-strategies-elevating-win11-zoom-experience/"><u>[Updated] Winning Strategies Elevating Win11 Zoom Experience</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/detailed-analysis-performance-metrics-of-toms-computer-components/"><u>Detailed Analysis: Performance Metrics of Tom's Computer Components</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-tecno-pova-6-pro-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Tecno Pova 6 Pro 5G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Xiaomi 13T Pro | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-step-by-step-process-to-configure-almost-any-preference-in-gmail/"><u>The Step-by-Step Process to Configure Almost Any Preference in Gmail</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-pulse-of-persuasion-adding-dynamic-text-to-insta-stories/"><u>[New] 2024 Approved Pulse of Persuasion Adding Dynamic Text to Insta Stories</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-tycoon-titans-the-12-game-series-for-budding-business-masters/"><u>[New] 2024 Approved Tycoon Titans The #12 Game Series for Budding Business Masters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ssential-info-on-crafting-engaging-yt-shorts-for-2024/"><u>[New] Essential Info on Crafting Engaging YT Shorts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ixing-the-problem-hidden-thumbnails-in-youtube-shorts-for-2024/"><u>[New] Fixing the Problem Hidden Thumbnails in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-budget-friendly-pc-screen-capture-software/"><u>[Updated] In 2024, Budget-Friendly PC Screen Capture Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-simplifying-cinematography-best-film-cameras-for-newbies-for-2024/"><u>[Updated] Simplifying Cinematography Best Film Cameras for Newbies for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-10-photography-frames-for-2024/"><u>[Updated] Top 10 Photography Frames for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-cutting-edge-actions-screening-tech-report/"><u>2024 Approved Cutting-Edge Actions Screening Tech Report</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-professional-thumbnail-creation-for-youtube-macos-style/"><u>2024 Approved Professional Thumbnail Creation for YouTube (macOS Style)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-sony-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Sony? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://win-great.techidaily.com/latest-release-karaoke-cloud-pro-shine-bright-at-any-venue-with-new-features/"><u>Latest Release: Karaoke Cloud Pro - Shine Bright at Any Venue with New Features!</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/shine-through-the-game-fixes-for-dark-capture-by-obs/"><u>Shine Through the Game Fixes for Dark Capture by OBS</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-6-platforms-revolutionizing-business-social-interaction-for-2024/"><u>Top 6 Platforms Revolutionizing Business-Social Interaction for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Craftsmits and Cinematography  Precision in Aspect Ratios\""
-date: 2024-12-01T17:14:13.498Z
-updated: 2024-12-07T17:03:18.737Z
+date: 2024-12-11T17:31:18.757Z
+updated: 2024-12-13T17:43:19.958Z
 tags: 
   - screen-recording
   - ai video
@@ -33,13 +33,13 @@ With that said, let's dive right into it!
 
 Aspect ratio is a digital image projection attribute describing the distance between the width and the height of an image. The dimensions are also defined as shapes such as a square which is 4:3\. A rectangle represents the 16:9 standard high definition aspect ratio, and inverted what you see on phones, that will be 9:16\. 9 refers to the width and 16 to the height.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Commonly used aspect ratios
 
 There is no same aspect ratio that is used across all social media platforms. Depending on which social media platform you are planning to upload, you have to make sure you have the correct aspect ratio for your target audience. The optimal viewing experience is what matters.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 16:9 Widescreen
 
@@ -53,13 +53,13 @@ This resolution is originally used in older television screens, which transforme
 
 The 9:16 aspect ratio has become the mainstream resolution for smartphones for easier viewing of videos. This resolution allows for the vertical display of videos on tablets and phones, meaning that it allows videos to play while the device is being held in its upright position. This works ideally for Facebook, Instagram, Snapchat, YouTube Shorts, and more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 21:9 Cinematic Widescreen
 
 The 21:9 resolution is designed for filming ultra-wide screen movies that gives the viewer a theater-like feeling. It's mostly used to display films and movies in anamorphic formats. Just like on ultra-wide monitors, it allows the video to be shown across the entire screen, giving you a cinema-like experience. This resolution contributes to a broader viewing experience in any shape or form.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Which aspect ratio should I choose?
 
@@ -77,6 +77,10 @@ Facebook is one of the most used website across the world on both computer and t
 
 9:16 for Facebook stories
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### YouTube
 
 To this day, it's safe to say that YouTube is the leading platform in the video industry. Not only because of how long they have been around, but also about how much content is uploaded every minute and how many users it has each month. To give the viewers the best experience, here are the top aspect ratios we recommend when posting content onto your YouTube channel.
@@ -90,7 +94,7 @@ To this day, it's safe to say that YouTube is the leading platform in the video 
 21:9 for cinematic videos/shortfilms
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Instagram
@@ -111,10 +115,6 @@ When talking about Instagram, which is very similar to Facebook, use these aspec
 
 9:16 for IGTV
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### TikTok
 
 Before Musical.ly users were migrated to a new platform called TikTok in 2018, it has been the leader on the board for a long time, and here are the recommended resolutions we think give the best results. Tik Tok allows you to share short videos, and is used by young people as an outlet to show their talents whether it's dancing, singing, cooking, comedy or any other form of entertainment they can express and use on the platform. There's also a feature to work together and collaborate with other Tik Tok creators across the globe.
@@ -126,7 +126,7 @@ Before Musical.ly users were migrated to a new platform called TikTok in 2018, i
 1:1; 16:9 or 9:16 for TikTok advertisements
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. How to adjust the aspect ratio of a video?
@@ -175,24 +175,24 @@ Having your video tested on multiple devices will allow you to see a preview of 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mastering-live-streamed-gaming-sessions/"><u>[New] 2024 Approved Mastering Live-Streamed Gaming Sessions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-closer-look-approach-to-team-collaboration/"><u>[New] In 2024, The Closer Look Approach to Team Collaboration</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-pictorial-humor-ranking-10-memes-by-creativity/"><u>[New] Pictorial Humor Ranking #10 Memes by Creativity</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-spin-the-dial-zoom-in-on-vr-samsung-and-lg-compare/"><u>[New] Spin the Dial, Zoom in on VR Samsung & LG Compare</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-curving-images-effortlessly-in-photo-editing/"><u>[Updated] 2024 Approved Curving Images Effortlessly in Photo Editing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-efficiently-setting-up-mixer-on-macos/"><u>[Updated] 2024 Approved Efficiently Setting Up Mixer on MacOS</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-in-depth-analysis-of-lgs-latest-360-cameras-for-the-year-2023/"><u>[Updated] 2024 Approved In-Depth Analysis of LG's Latest 360 Cameras for the Year 2023</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-a-complete-guide-to-recording-live-tv-on-your-windows-pc/"><u>[Updated] A Complete Guide to Recording Live TV on Your Windows PC</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-snapchats-highlight-an-in-depth-look-for-2024/"><u>[Updated] Snapchat's Highlight An In-Depth Look for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-science-of-visual-appeal-crafting-stunning-youtube-shorts-templates-for-2024/"><u>[Updated] The Science of Visual Appeal Crafting Stunning YouTube Shorts Templates for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-your-ultimate-resource-for-hassle-free-and-affordable-online-passport-photos/"><u>[Updated] Your Ultimate Resource for Hassle-Free & Affordable Online Passport Photos</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/decoding-the-tech-showdown-what-sets-the-ipad-pro-apart-from-the-macbook-air/"><u>Decoding the Tech Showdown: What Sets the iPad Pro Apart From the MacBook Air?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-diving-deep-the-intricacies-of-the-mukbang-phenomenon/"><u>In 2024, Diving Deep The Intricacies of the Mukbang Phenomenon</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-exclusive-discounts-on-economical-gopro-cameras/"><u>In 2024, Exclusive Discounts on Economical GoPro Cameras</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/lumapro-the-budget-friendly-lightroom-pairings/"><u>LumaPro The Budget-Friendly Lightroom Pairings</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/os-extensiones-mais-eficientes-de-gravadoras-de-tela-do-google-chrome-uma-lista-completa-com-notas/"><u>Os Extensiones Mais Eficientes De Gravadoras De Tela Do Google Chrome: Uma Lista Completa Com Notas</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721479739724-struggling-with-iphone-pc-pairing-problems-discover-the-fix-now/"><u>Struggling with iPhone-PC Pairing Problems? Discover The Fix Now</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-to-crafting-engaging-animated-videos-with-expert-advice/"><u>Ultimate Guide to Crafting Engaging Animated Videos with Expert Advice</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unique-book-trail-showcases-for-2024/"><u>Unique Book Trail Showcases for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-progressive-visual-reveal/"><u>[New] Progressive Visual Reveal</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unleashing-creativity-with-tiktok-video-tricks/"><u>[New] Unleashing Creativity with TikTok Video Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-complementing-narratives-with-skillful-b-roll-usage/"><u>[Updated] 2024 Approved Complementing Narratives with Skillful B-Roll Usage</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-video-trailers-on-youtube-via-filmora-tools/"><u>[Updated] 2024 Approved Mastering Video Trailers on YouTube via Filmora Tools</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-epic-anime-quotes-and-phrases-for-viral-tiktok-challenges-for-2024/"><u>[Updated] Epic Anime Quotes & Phrases for Viral TikTok Challenges for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-humor-haven-the-ultimate-choice-of-memer-text-tools/"><u>[Updated] In 2024, Humor Haven The Ultimate Choice of Memer Text Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-pinnacle-photo-narrative-directors-set-for-2024/"><u>[Updated] Pinnacle Photo Narrative Director's Set for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-taking-flight-iphone-hdr-techniques-for-professional-results-for-2024/"><u>[Updated] Taking Flight IPhone HDR Techniques for Professional Results for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-vlc-vs-mpc-decoding-the-best-free-media-player/"><u>[Updated] VLC Vs. MPC Decoding the Best Free Media Player</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/discovering-public-ip-a-terminal-windows-methodology/"><u>Discovering Public IP: A Terminal Windows Methodology</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/everyday-wins-claude-confronting-gpt-in-chatbot-arena/"><u>Everyday Wins: Claude Confronting GPT in ChatBot Arena</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-tecno-spark-go-2023-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Tecno Spark Go (2023)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-xiaomi-redmi-a2plus-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Xiaomi Redmi A2+ online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-vivo-s17t-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Vivo S17t Without PUK Codes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-tecno-pop-8-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Tecno Pop 8?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-depth-analysis-of-samsung-cf591-monitor-ideal-for-hardcore-gamers/"><u>In-Depth Analysis of Samsung CF591 Monitor: Ideal for Hardcore Gamers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/instructions-for-turning-off-the-descriptive-language-on-amazon-video-platform/"><u>Instructions for Turning Off the Descriptive Language on Amazon Video Platform</u></a></li>
+<li><a href="https://fox-http.techidaily.com/perfecti-the-ultimate-guide-to-iphone-slideshows-xs-max-for-2024/"><u>Perfecti The Ultimate Guide to iPhone Slideshows (XS Max) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/speedy-pace-fb-videos-innovative-apps-and-proxies-ensuring-faster-uploaddownload/"><u>Speedy Pace FB Videos Innovative Apps & Proxies Ensuring Faster Upload/Download</u></a></li>
 </ul></div>
 

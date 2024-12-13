@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Photo Trickery  How Faces Decipher on Apple & Samsung Gadgets for 2024\""
-date: 2024-12-01T16:00:54.407Z
-updated: 2024-12-07T17:03:23.674Z
+date: 2024-12-10T17:10:14.940Z
+updated: 2024-12-13T18:07:19.302Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How does it work?
 
  This section will cover how the face recognition technology works for both the devices. Check out the process.
@@ -54,19 +58,19 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
 
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
 
@@ -79,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Safety Issue
@@ -92,23 +96,19 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -135,24 +135,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-first-moments-that-foster-interest-in-audios/"><u>[New] 2024 Approved First Moments that Foster Interest in Audios</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-androidandios-the-best-free-overlay-imaging-tools-top-10-for-2024/"><u>[New] Android&iOS The Best FREE Overlay Imaging Tools (Top 10) for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-appreciate-with-us-open-source-and-subscription-outro-samples-for-2024/"><u>[New] Appreciate with Us Open-Source & Subscription Outro Samples for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-a-deep-dive-into-panasonics-hx-a1-camera-features/"><u>[Updated] 2024 Approved A Deep Dive Into Panasonic's HX-A1 Camera Features</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-strategy-envelope-market-success-inside-out/"><u>[Updated] 2024 Approved Strategy Envelope Market Success Inside Out</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-2024-streamline-for-success-understanding-youtube-membership/"><u>[Updated] 2024 Streamline for Success Understanding YouTube Membership</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-capture-and-create-first-edits-in-lunapic-photo-editor-for-2024/"><u>[Updated] Capture & Create First Edits in LunaPic Photo Editor for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-elevating-educational-content-by-adding-youtube-music-to-vids-for-2024/"><u>[Updated] Elevating Educational Content by Adding YouTube Music to Vids for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-videography-and-storage-assessing-a-high-capacity-memorys-video-limits/"><u>[Updated] In 2024, Videography & Storage Assessing a High-Capacity Memory's Video Limits</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-8-mistakes-to-avoid-as-a-new-youtuber/"><u>2024 Approved 8 Mistakes to Avoid as a New Youtuber</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-nokia-130-music-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Nokia 130 Music</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/all-new-apple-m4-silicon-powering-a-future-of-smart-mac-computers-exclusive-launch-dates-from-zdnet/"><u>All-New Apple M4 Silicon: Powering a Future of Smart Mac Computers | Exclusive Launch Dates From ZDNet</u></a></li>
-<li><a href="https://video-capture.techidaily.com/infinite-jest-joyride-top-kids-game-lineup-in-2024/"><u>Infinite Jest Joyride - Top Kids' Game Lineup, In 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/master-your-path-to-success-with-youtubes-keywords-guide-for-2024/"><u>Master Your Path to Success with YouTube's Keywords Guide for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/moviecraft-analysis-in-depth-exploration/"><u>MovieCraft Analysis – In-Depth Exploration</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/optimal-strategies-for-mobile-snapchat-recordings/"><u>Optimal Strategies for Mobile Snapchat Recordings</u></a></li>
-<li><a href="https://fox-http.techidaily.com/palette-excellence-editor-for-2024/"><u>Palette Excellence Editor for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/solving-frustrating-asana-issues-with-a-step-by-step-guide/"><u>Solving Frustrating Asana Issues with a Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/superiorly-crafted-radio-scripts/"><u>Superiorly Crafted Radio Scripts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-cinematic-upgrade-gopro-hero5-black-vs-hero4-silver-edition-for-2024/"><u>[New] Cinematic Upgrade GoPro Hero5 Black vs Hero4 Silver Edition for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-discover-the-world-in-360-watching-vr-videos-on-iphone-for-2024/"><u>[New] Discover the World in 360 Watching VR Videos on iPhone for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-streamline-your-movies-in-windows-10-with-these-techniques-for-2024/"><u>[New] Streamline Your Movies in Windows 10 with These Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-illuminating-the-sensor-rich-world-of-iphone-x-photos-for-2024/"><u>[Updated] Illuminating the Sensor-Rich World of iPhone X Photos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-expert-techniques-for-iphones-in-virtual-reality/"><u>[Updated] In 2024, Expert Techniques for iPhones in Virtual Reality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-examination-of-xcreative-vision-studio-a-complete-guide-for-2024/"><u>[Updated] In-Depth Examination of XCreative Vision Studio - A Complete Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-the-art-of-canvas-with-these-top-10-secrets-for-2024/"><u>[Updated] Master the Art of Canvas with These Top 10 Secrets for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/intelligent-emotional-help-ethical-chatgpt-practices/"><u>Intelligent Emotional Help: Ethical ChatGPT Practices</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-mobile-video-viewing-top-10-hd-players-on-android/"><u>Mastering Mobile Video Viewing Top 10 HD Players on Android</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-all-you-need-to-know-about-imovie-audio-editing-for-2024/"><u>New All You Need to Know About iMovie Audio Editing for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-siri-malfunctions-7-effective-strategies-to-reactivate-your-idevices-virtual-helper/"><u>Overcoming Siri Malfunctions – 7 Effective Strategies to Reactivate Your iDevice's Virtual Helper</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-guide-to-correcting-read-errors-in-call-of-duty-warzone-versions-50-and-31/"><u>Step-by-Step Guide to Correcting Read Errors in Call of Duty: Warzone - Versions [5.0] and [3.1]</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-text-tilt-treasures-for-2024/"><u>Top Text Tilt Treasures for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-toolkit-for-animating-letters-for-2024/"><u>Ultimate Toolkit for Animating Letters for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-the-differences-a-close-look-at-avif-and-heic-for-image-compression/"><u>Unveiling the Differences: A Close Look at AVIF and HEIC for Image Compression</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/visual-virtuosity-the-ultimate-collection-of-11-expert-tutorials/"><u>Visual Virtuosity The Ultimate Collection of 11 Expert Tutorials</u></a></li>
 </ul></div>
 

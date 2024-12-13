@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Top Tips for Flawless Green-Screen Cinematography\""
-date: 2024-08-23T18:01:28.241Z
-updated: 2024-08-24T18:01:28.241Z
+date: 2024-12-11T17:36:02.294Z
+updated: 2024-12-13T17:01:26.246Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,10 @@ We’ve figured out some useful green screen tricks, have fun and hope you’ll 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
 
 #### 1 Lighting tips in shooting a Green Screen Video
@@ -72,17 +76,29 @@ Looking for some best cameras for shooting green screen video? Check our picks o
 
 ![Clothing tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There are some mistakes that you can avoid to help your green screen video look more professional and more realistic. Perhaps one of the simplest mistakes that many people make with green screen video shooting is actually wearing green clothing. If you are wearing clothing or clothing that has buttons or accents that are a similar color green as your selected background green, the image that you project onto the green screen in post-editing will also get picked up by these accents on your clothing or by the clothing itself. This is great if you want to cut off part of an actor's body, but not so professional if you are trying to make an actor appear in a realistic scene.
 
 #### 4 Wrinkles problem in shooting a Green Screen Video
 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
 
 #### 5 Motion blur problem in shooting a Green Screen Video
 
 ![Motion blur problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are planning on shooting a high action scene in front of a green screen with a camera that only has lower shutter speeds, you can run into real problems. When using a camera with a lower shutter speed consider doing action shots in slow motion or getting subjects to not make any sudden movements in front of the green screen. Motion blur from someone moving rapidly on camera in front of a green screen can really ruin the scene and ruin the realism of the scene. Alternately you could also consider renting a high shutter speed camera to avoid this motion blur if you do plan on shooting a lot of action scenes. Ultimately this is something that you will need to test for yourself before shooting a green screen video, so that you can get a feel for how much action your camera can handle with a green screen without motion blur.
 
@@ -95,6 +111,10 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -119,8 +139,26 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-how-to-maximize-your-podcast-earning-potential/"><u>[New] 2024 Approved How to Maximize Your Podcast Earning Potential</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-5-best-photo-video-maker-with-music-you-should-know/"><u>[New] 5 Best Photo Video Maker With Music You Should Know</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harnessing-imagination-a-practical-guide-to-professional-gifs/"><u>[New] Harnessing Imagination A Practical Guide to Professional GIFs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-sd-compatibility-with-sony-a7s-ii/"><u>[New] Ultimate SD Compatibility with Sony A7S II</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-dji-phantom-3-standard-vs-advanced-vs-professional-vs-4k/"><u>[Updated] 2024 Approved DJI Phantom 3 Standard Vs. Advanced Vs. Professional Vs. 4K</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-smart-shopping-for-action-cameras-optimal-under-100-lists/"><u>[Updated] 2024 Approved Smart Shopping for ACTION Cameras Optimal Under $100 Lists</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-10-drawing-apps-for-android-unleash-your-inner-artist/"><u>[Updated] 2024 Approved Top 10 Drawing Apps for Android Unleash Your Inner Artist</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-crafting-compact-cities-for-a-sustainable-future/"><u>[Updated] In 2024, Crafting Compact Cities for a Sustainable Future</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-expert-techniques-for-crafting-high-end-gopro-vlogs/"><u>[Updated] In 2024, Expert Techniques for Crafting High-End GoPro Vlogs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-exploring-nextgen-videostreaming-platforms/"><u>[Updated] In 2024, Exploring NextGen Videostreaming Platforms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-navigating-the-world-of-giant-file-movement-between-iphone-and-macos/"><u>[Updated] Navigating the World of Giant File Movement Between iPhone and macOS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-peeking-behind-the-screen-instagram-audience-explorer/"><u>[Updated] Peeking Behind the Screen Instagram Audience Explorer</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-uncluttered-images-using-photopea-for-flawless-edits/"><u>[Updated] Uncluttered Images Using Photopea for Flawless Edits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/craft-visionary-videos-from-start-to-finish-using-youtube-studio-editor/"><u>Craft Visionary Videos From Start to Finish Using YouTube Studio Editor</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-vivo-s17e-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Vivo S17e to Another | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-depth-analysis-understanding-google-podcasts-app/"><u>In-Depth Analysis Understanding Google Podcasts App</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unmasking-the-top-10-clandestine-story-gurus/"><u>Unmasking the Top 10 Clandestine Story Gurus</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/what-to-pick-for-your-youtube-videos-ideal-formats-explored/"><u>What to Pick for Your YouTube Videos? Ideal Formats Explored</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
