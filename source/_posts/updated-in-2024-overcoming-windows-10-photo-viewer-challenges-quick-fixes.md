@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming Windows 10 Photo Viewer Challenges  Quick Fixes\""
-date: 2024-12-08T16:17:17.389Z
-updated: 2024-12-13T16:00:55.187Z
+date: 2024-12-18T16:26:16.311Z
+updated: 2024-12-22T17:35:49.983Z
 tags: 
   - screen-recording
   - ai video
@@ -58,15 +58,11 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
@@ -80,11 +76,11 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 ### Solution 3: Reset it
 
@@ -95,6 +91,10 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -119,7 +119,7 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -128,11 +128,11 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,18 +159,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-exploring-imovies-automated-size-control/"><u>[Updated] Exploring iMovie's Automated Size Control</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-fading-out-sounds-effectively-using-lumafusion-for-2024/"><u>[Updated] Fading Out Sounds Effectively Using Lumafusion for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-palette-power-skillful-color-adjustment/"><u>[Updated] Palette Power Skillful Color Adjustment</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/10-essential-iphone-photo-layout-principles-for-2024/"><u>10 Essential iPhone Photo Layout Principles for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-virtual-battlegrounds-oculus-htc-and-playstation-face-off/"><u>2024 Approved Virtual Battlegrounds Oculus, HTC & PlayStation Face-Off</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-nubia-red-magic-9-proplus-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Nubia Red Magic 9 Pro+ to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-v29-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo V29 Is Unlocked</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-iphone-xr-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and iPhone XR without Apple Account</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-assessment-parrot-ar-drone-20-enhanced-edition/"><u>In 2024, Assessment Parrot AR Drone 2.0 Enhanced Edition</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-magic-6-pro-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-xsplit-hub-centralized-download-and-evaluation/"><u>In 2024, XSplit Hub Centralized Download & Evaluation</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/stream-reversal-hacks-an-overview-of-eight-simple-steps/"><u>Stream Reversal Hacks An Overview of Eight Simple Steps</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-list-of-conversation-catalysts-for-listener-retention-for-2024/"><u>Updated List of Conversation Catalysts for Listener Retention for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-harmony-of-collaboration-brands-and-youtube-unite/"><u>[New] The Harmony of Collaboration Brands & YouTube Unite</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-all-you-need-to-know-about-valheim-seeds-and-the-best-valheim-seeds/"><u>[Updated] 2024 Approved All You Need to Know About Valheim Seeds & The Best Valheim Seeds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-a-guide-to-30-compelling-video-presentation-ideas/"><u>[Updated] A Guide to 30 Compelling Video Presentation Ideas</u></a></li>
+<li><a href="https://fox-http.techidaily.com/converting-avian-videos-avi-into-graphic-images-gif-using-filmora-for-2024/"><u>Converting Avian Videos (AVI) Into Graphic Images (GIF) Using Filmora for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/detailed-review-and-how-to-for-video-show-24-for-2024/"><u>Detailed Review & How-To for Video Show '24 for 2024</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/easy-fix-guide-resolve-your-scanner-errors-with-yl-computings-advice-yl-software/"><u>Easy Fix Guide: Resolve Your Scanner Errors with YL Computing's Advice (YL Software)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-map-the-world-around-you-top-notch-navigation-and-service-finds-at-your-fingertips/"><u>In 2024, Map the World Around You - Top-Notch Navigation & Service Finds at Your Fingertips</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-master-the-art-of-tiktok-tidying-up-smart-strategies-for-oversized-drafts/"><u>In 2024, Master the Art of TikTok Tidying Up Smart Strategies for Oversized Drafts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-fan-count-decline-identify-losses-for-2024/"><u>Instagram Fan Count Decline Identify Losses for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-stream-selection-a-top-10-tips-guide-for-2024/"><u>Mastering Stream Selection A Top 10 Tips Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/microsofts-glimpse-into-augmented-reality-the-hololens-journey-for-2024/"><u>Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/shadowplay-not-recording-on-windows-solved/"><u>Shadowplay Not Recording on Windows [Solved]</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/simple-steps-regain-access-to-your-yahoo-account-without-hassle/"><u>Simple Steps: Regain Access to Your Yahoo Account Without Hassle</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unraveling-windows-fixes-define-role-of-chkdsk-sfc-dism/"><u>Unraveling Windows Fixes: DEFINE Role of CHKDSK, SFC, DISM</u></a></li>
 </ul></div>
 

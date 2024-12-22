@@ -1,7 +1,7 @@
 ---
 title: "Subtle Sonic Reduction in the World of Audio Editing for 2024"
-date: 2024-12-07T16:32:55.337Z
-updated: 2024-12-13T17:28:43.243Z
+date: 2024-12-21T16:16:37.052Z
+updated: 2024-12-22T21:15:01.146Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,6 @@ By selecting the audio segment, you wish to fade out and selecting Effect > Fade
 
 ![liner fade in audacity](https://images.wondershare.com/filmora/article-images/2022/07/liner-fade-in-audacity.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Studio Fade Out
 
 This effect is shown by Audacity as a curve that resembles the letter S. It results in a very gentle fading. After the first boom, there is utter quiet. It's a sound that actually gives off the impression of fading away over time. Using the repeat last effect, you can quickly repeat this fading option. Additionally, Ctrl + R serves as the shortcut for the same.
@@ -54,10 +50,6 @@ This effect is shown by Audacity as a curve that resembles the letter S. It resu
 Choose your audio segment, go to the Effect menu, slide to the bottom, and pick Studio Fade Out to apply the effect.
 
 ![studio fade out audacity](https://images.wondershare.com/filmora/article-images/2022/07/studio-fade-out-audacity.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Adjustable Fade
 
@@ -71,16 +63,16 @@ A dialog box will show up on the screen when you choose the customizable fade op
 ![adjustable fade audio audacity](https://images.wondershare.com/filmora/article-images/2022/07/adjustable-fade-audio-audacity.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4\. Crossfades Audacity
 
 There are two choices available when using this effect. You have two options: either manually make a crossfade of your own, or utilize one of the pre-existing crossfades in Audacity. In Audacity, there are two crossfades that are accessible. Crossfade clips and Crossfade tracks are what they are. Crossfade clips make it easier to switch between two distinct clips. Additionally, crossfade tracks aid in crossfading between two audio tracks and are more exact.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Steps to Use Crossfades:**
 
@@ -90,11 +82,11 @@ Select the area to be crossfaded using the Selection tool, and then click Effect
 
 ![crossafade audio with audacity](https://images.wondershare.com/filmora/article-images/2022/07/crossafade-audio-with-audacity.jpg)
 
-Use your Selection tool to organize the clips such that a crossfade will be applied between two clips on different tracks. Go to Effect > Crossfade Songs, place the cursor where you want the fade to begin, then drag it across the tracks you wish to blend.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Use your Selection tool to organize the clips such that a crossfade will be applied between two clips on different tracks. Go to Effect > Crossfade Songs, place the cursor where you want the fade to begin, then drag it across the tracks you wish to blend.
 
 ## Part 5\. Alternative Way to Fade Audio
 
@@ -115,7 +107,7 @@ In the step that follows, we'll show you how to use this platform to fade in and
 ![open filmora and import audio files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 By choosing the Video Editor option from the software's home screen, you may now investigate the basic principles of editing. This will bring up the main interface for Filmora. To import your music and video files, just choose the Import button from the software's main screen, as seen below:
@@ -133,7 +125,7 @@ The first step in this process is to learn how to use Filmora to start fading in
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
@@ -143,10 +135,6 @@ To finish the fade-out, click and drag the other icon in Filmora to the necessar
 The last step consists of downloading your modified file to your PC and storing it there in the appropriate place and format. To simply do so, use the Export button in the top right corner of your software's main interface. You may also quickly submit the modified audio clip to your YouTube channel. To post and share your audio-altered file right away, go to the YouTube menu bar at the top of your Export window as follows, select Sign in, and then input your YouTube channel in Filmora:
 
 ![export the modified file](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -164,6 +152,10 @@ In the step that follows, we'll show you how to use this platform to fade in and
 
 ![open filmora and import audio files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 By choosing the Video Editor option from the software's home screen, you may now investigate the basic principles of editing. This will bring up the main interface for Filmora. To import your music and video files, just choose the Import button from the software's main screen, as seen below:
 
 ##### Step3 Open the Audio Editor in Filmora
@@ -178,6 +170,10 @@ The first step in this process is to learn how to use Filmora to start fading in
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
 
 ##### Step5 Export the Modified File
@@ -185,6 +181,10 @@ To finish the fade-out, click and drag the other icon in Filmora to the necessar
 The last step consists of downloading your modified file to your PC and storing it there in the appropriate place and format. To simply do so, use the Export button in the top right corner of your software's main interface. You may also quickly submit the modified audio clip to your YouTube channel. To post and share your audio-altered file right away, go to the YouTube menu bar at the top of your Export window as follows, select Sign in, and then input your YouTube channel in Filmora:
 
 ![export the modified file](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -214,20 +214,24 @@ You may access a variety of tools and services on the platform known as Audacity
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-discovering-best-steadicams-for-enhanced-dslr-shooting-experience/"><u>[New] 2024 Approved Discovering Best Steadicams for Enhanced DSLR Shooting Experience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-free-passport-photography-made-simple-our-top-10-picks-list-for-2024/"><u>[New] Free Passport Photography Made Simple Our Top 10 Picks List for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-laugh-ledger-a-treasure-trove-of-free-meme-creations/"><u>[New] In 2024, Laugh Ledger A Treasure Trove of FREE Meme Creations</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-harnessing-the-power-of-targeted-video-appeal/"><u>[Updated] 2024 Approved Harnessing the Power of Targeted Video Appeal</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-sharpen-your-visual-storytelling-advanced-kinemaster-zoom-techniques/"><u>[Updated] 2024 Approved Sharpen Your Visual Storytelling Advanced Kinemaster Zoom Techniques</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-art-and-craft-of-podcast-storytelling-for-2024/"><u>[Updated] The Art and Craft of Podcast Storytelling for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-transformative-voice-techniques-enhance-your-oratory-with-these-tools-for-2024/"><u>[Updated] Transformative Voice Techniques – Enhance Your Oratory with These Tools for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/44cm44ot44oh44kq44ks5zci5oiq44gz44kl44gf44kb44gu5pya6ygp44gq5oml5q6177ya6kmz57sw44ks44kk44oj44cn/"><u>「ビデオを合成するための最適な手段：詳細ガイド」</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/comparing-openais-evolution-in-language-ai-from-gpt-1-through-gpt-4/"><u>Comparing OpenAI's Evolution in Language AI: From GPT-1 Through GPT-4</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-moto-e13-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Moto E13 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-infinix-zero-5g-2023-turbo-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Infinix Zero 5G 2023 Turbo via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-locked-out-of-apple-iphone-13-pro-5-ways-to-get-into-a-locked-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, Locked Out of Apple iPhone 13 Pro? 5 Ways to get into a Locked Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-synchronized-squawks-and-soarings-the-bebop-parrot-review/"><u>In 2024, Synchronized Squawks & Soarings The Bebop Parrot Review</u></a></li>
-<li><a href="https://extra-information.techidaily.com/optimal-storage-solutions-the-leading-10-gopro-housings/"><u>Optimal Storage Solutions - The Leading 10 GoPro Housings</u></a></li>
-<li><a href="https://techidaily.com/vivo-y27-4g-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Vivo Y27 4G support - Forgotten screen lock.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-balancing-acts-reducing-shakiness-for-better-gopro-vids/"><u>[New] Balancing Acts Reducing Shakiness for Better GoPro Vids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-essential-list-of-gratuitous-online-photo-enhancement-suites-for-2024/"><u>[New] Essential List of Gratuitous Online Photo Enhancement Suites for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-elevate-your-editing-skills-with-pro-color-techniques/"><u>[Updated] In 2024, Elevate Your Editing Skills with Pro Color Techniques</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-sky-hdr-heaven-curated-list-of-excellent-sites/"><u>[Updated] In 2024, Sky HDR Heaven - Curated List of Excellent Sites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-luminary-megascape-ultimate-4k-integrated-hubs-for-2024/"><u>[Updated] Luminary MegaScape Ultimate 4K Integrated Hubs for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-chill-vibes-20-popular-country-hits-for-stress-free-tiktok-sessions/"><u>2024 Approved Chill Vibes 20 Popular Country Hits for Stress-Free TikTok Sessions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-taking-flight-in-depth-review-of-the-x4-fpv-quadcopter/"><u>2024 Approved Taking Flight In-Depth Review of the X4 FPV Quadcopter</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-essential-tutorial-for-stunning-hdr-portraits/"><u>2024 Approved The Essential Tutorial for Stunning HDR Portraits</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/analyzing-user-frustrations-in-windows-11-transition/"><u>Analyzing User Frustrations in Windows 11 Transition</u></a></li>
+<li><a href="https://driver-install.techidaily.com/efficiency-leap-for-s1500-scanner-new-driver-guide-revealed/"><u>Efficiency Leap for S1500 Scanner - New Driver Guide Revealed</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-6-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off Apple iPhone 6 without Password</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-envisioning-artistry-a-gopro-hero5-black-journey-to-excellence/"><u>In 2024, Envisioning Artistry A GoPro Hero5 Black Journey to Excellence</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-iphone-12-pro-with-or-without-password-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on iPhone 12 Pro With or Without Password</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-metaverse-chronicles-a-list-of-the-most-unforgettable-sci-fi-adventures-on-screen/"><u>In 2024, Metaverse Chronicles A List of the Most Unforgettable Sci-Fi Adventures on Screen</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/iphone-night-scene-mastery-guide-for-2024/"><u>IPhone Night Scene Mastery Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ranked-guide-to-premium-iosdesktop-video-change-tools-for-2024/"><u>Ranked Guide to Premium iOS/Desktop Video Change Tools for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-review-your-guide-to-the-latest-in-computer-components-and-gadgets/"><u>Tom's Tech Review: Your Guide to the Latest in Computer Components and Gadgets</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/understanding-and-executing-windows-restore-operations/"><u>Understanding and Executing Windows Restore Operations</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/your-complete-playbook-for-active-involvement-in-xs-twitter-chats/"><u>Your Complete Playbook for Active Involvement in X's Twitter Chats</u></a></li>
 </ul></div>
 

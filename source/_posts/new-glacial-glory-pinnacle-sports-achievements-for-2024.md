@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Glacial Glory  Pinnacle Sports Achievements for 2024\""
-date: 2024-12-12T17:24:22.910Z
-updated: 2024-12-13T17:30:51.682Z
+date: 2024-12-16T19:34:20.907Z
+updated: 2024-12-22T21:10:17.247Z
 tags: 
   - screen-recording
   - ai video
@@ -36,7 +36,7 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
@@ -49,11 +49,19 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
@@ -64,13 +72,13 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Van der Poel Breaks the World Record
@@ -78,10 +86,6 @@ Eileen Gu's father is American while her mother is Chinese and she belongs to Sa
 Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year-old Swede started strongly and crossed the finish line in 12 minutes 30.74 seconds to set the world record. His victory also made Sweden taste an Olympic medal after 1988\. The victory also made him the tenth man to win both the 10,000 races and 5,000 races in the same event. It is also the largest Olympic victory as he triumphed the record set by Johan Olav Kloss in 1994 by 18.70 seconds.
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
@@ -91,17 +95,21 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
-The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
 21-year-old Chloe Kim became back-to-back Olympic champion by dominating in the halfpipe. The American confirmed a gold medal on the first run itself. Her runs had 1080, a switch 900, and a switch backside of 540\. It further added another 1080\. She dominated the Snowboarding Women's Halfpipe Final with 94 points. Spain's Queralkt Castellet won silver and the bronze went to Sena Tomita of Japan.
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
@@ -112,10 +120,6 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
 
@@ -130,10 +134,6 @@ Zhou is considering the silver win as a consolation prize but he could not showc
 Doping scandals have become a part of the Olympics and this year is no different. According to International Testing Agency, Russian skater Kamila Valieva failed the doping test. On further examination, she tested positive for a performance-enhancing banned substance. She was told that she could not train, compete and participate during the Olympic Winter Games.
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
@@ -156,20 +156,19 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-premiere-pros-guide-to-avoiding-overlit-iphone-hdr-videos/"><u>[New] 2024 Approved Premiere Pro's Guide to Avoiding Overlit iPhone HDR Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-essentials-of-structuring-your-podcasts-rss-feed/"><u>[New] 2024 Approved The Essentials of Structuring Your Podcast's RSS Feed</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-analyzing-screen-capture-tech-for-professionals-for-2024/"><u>[New] Analyzing Screen Capture Tech for Professionals for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-introducing-high-quality-capture-with-yi/"><u>[New] In 2024, Introducing High-Quality Capture with YI</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-outdoor-gadgets-for-making-road-trip-videos/"><u>[New] In 2024, Outdoor Gadgets for Making Road-Trip Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-your-ultimate-manual-for-downloading-youtube-playlists/"><u>[New] In 2024, Your Ultimate Manual for Downloading YouTube Playlists</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-hdmi-21-master-list-in-depth-screen-comparisons/"><u>[Updated] 2024 Approved HDMI 2.1 Master List In-Depth Screen Comparisons</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-unlocking-revenue-with-strategic-snapchat-promotions-for-2024/"><u>[Updated] Unlocking Revenue with Strategic Snapchat Promotions for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-samsung-galaxy-f54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-a-rundown-top-8-exceptional-free-online-translation-platforms/"><u>In 2024, A Rundown Top 8 Exceptional Free Online Translation Platforms</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-tecno-pop-8-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Tecno Pop 8 Lock Screen Password</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-writing-with-impact-sculpting-scripts-for-engaging-docus/"><u>In 2024, Writing with Impact Sculpting Scripts for Engaging Docus</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/reviving-the-battle-horns-solving-pc-audio-issues-in-valheim-game/"><u>Reviving the Battle Horns: Solving PC Audio Issues in Valheim Game</u></a></li>
-<li><a href="https://fox-http.techidaily.com/smart-shoppers-guide-to-best-2024-cloud-deals/"><u>Smart Shopper’s Guide to Best 2024 Cloud Deals</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/top-10-greatest-mlb-yankees-matchups-in-20118-full-hd-1080p-game-downloads-watch-the-best-of-the-bronx/"><u>Top 10 Greatest MLB Yankees Matchups in 201([[18]: Full HD (1080P) Game Downloads - Watch the Best of the Bronx!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-leading-biz-cloud-storage-excellence/"><u>[New] 2024 Approved Leading Biz Cloud Storage Excellence</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oost-your-content-access-free-vocal-sfx-for-2024/"><u>[New] Boost Your Content Access Free Vocal SFX for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-achieving-peak-performance-in-video-submissions-on-youtube/"><u>[New] In 2024, Achieving Peak Performance in Video Submissions on YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-enhance-team-collaboration-through-effective-microsoft-teams-snap-practices/"><u>[New] In 2024, Enhance Team Collaboration Through Effective Microsoft Teams Snap Practices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-nintendo-switch-leading-capture-card-selections/"><u>[New] In 2024, Nintendo Switch Leading Capture Card Selections</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-transform-your-recordings-expert-tips-for-zoom-changer/"><u>[New] Transform Your Recordings Expert Tips for Zoom Changer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-a-quick-look-at-grading-techniques-in-ps-for-2024/"><u>[Updated] A Quick Look at Grading Techniques in PS for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-crafting-classic-cinematography-step-by-step-guide/"><u>[Updated] Crafting Classic Cinematography Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-navigating-the-nuances-of-spotify-advertising/"><u>[Updated] In 2024, Navigating the Nuances of Spotify Advertising</u></a></li>
+<li><a href="https://fox-http.techidaily.com/cinematic-brilliance-in-motion-kinemaster-techniques-for-2024/"><u>Cinematic Brilliance in Motion Kinemaster Techniques for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-itel-s23-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Itel S23 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-zooming-into-success-video-converter-trio-techniques/"><u>In 2024, Zooming Into Success Video Converter Trio Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/maximizing-potential-key-know-how-for-technological-progress-for-2024/"><u>Maximizing Potential Key Know-How for Technological Progress for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcome-silent-hurdles-in-cs-go-expert-tips-on-microphone-repair/"><u>Overcome Silent Hurdles in CS: GO - Expert Tips on Microphone Repair</u></a></li>
 </ul></div>
 

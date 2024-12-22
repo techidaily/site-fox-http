@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating Through Photos App Issues in Windows 11 for 2024"
-date: 2024-12-11T17:44:55.518Z
-updated: 2024-12-13T16:02:56.814Z
+date: 2024-12-15T21:24:48.943Z
+updated: 2024-12-22T16:15:00.350Z
 tags: 
   - screen-recording
   - ai video
@@ -46,13 +46,13 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -69,6 +69,10 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -80,11 +84,11 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 ### Solution 3: Reset it
 
@@ -108,7 +112,7 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -121,10 +125,6 @@ Here is how to reinstall the Windows 10 Photos App –
 1. You have to wait a while to complete the process and reboot the Windows 10 system.
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -159,22 +159,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-ultimate-guide-to-affordable-vector-art-websites/"><u>[New] 2024 Approved Ultimate Guide to Affordable Vector Art Websites</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-quick-srt-text-conversion-a-modern-how-to/"><u>[New] In 2024, Quick SRT Text Conversion A Modern How-To</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tailored-approach-boosting-fans-via-page-ranking/"><u>[New] In 2024, Tailored Approach Boosting Fans via Page Ranking</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-leveraging-length-and-style-in-your-instagram-videos/"><u>[New] Leveraging Length and Style in Your Instagram Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ackling-negative-comments-a-content-creators-mantra/"><u>[New] Tackling Negative Comments A Content Creator's Mantra</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-ultimate-windows-playback-system/"><u>[New] Ultimate Windows Playback System</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-6-pioneering-nft-creators-spurring-artistic-genius/"><u>[Updated] In 2024, 6 Pioneering NFT Creators Spurring Artistic Genius</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-inexpensive-aerial-aides-top-5-affordable-drones/"><u>[Updated] In 2024, Inexpensive Aerial Aides Top 5 Affordable Drones</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-shining-a-light-on-phony-connections-in-facebook-marketing/"><u>[Updated] In 2024, Shining a Light on Phony Connections in Facebook Marketing</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-foremost-non-udemy-virtual-learning-experiences-reviewed/"><u>[Updated] In 2024, The Foremost Non-Udemy Virtual Learning Experiences Reviewed</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-total-data-usage-24-hour-videography-in-gbs/"><u>[Updated] In 2024, Total Data Usage 24-Hour Videography in GBs</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-mastering-mobile-captions-ios-and-androids-leading-helpers-for-2024/"><u>[Updated] Mastering Mobile Captions IOS & Android's Leading Helpers for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-ultimate-enterprise-cloud-solutions-for-2024/"><u>[Updated] Ultimate Enterprise Cloud Solutions for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-essential-guide-to-pre-eminent-video-conferencing-tools/"><u>2024 Approved Essential Guide to Pre-Eminent Video Conferencing Tools</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mastering-the-art-creating-high-quality-gopro-vlogs/"><u>In 2024, Mastering The Art Creating High-Quality Gopro Vlogs</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-xiaomi-redmi-k70-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Xiaomi Redmi K70 for Parents | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/pinnacle-of-meme-artistry-program/"><u>Pinnacle of Meme Artistry Program</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-capturing-life-in-new-ways-hero-4-and-hero-5/"><u>[New] Capturing Life in New Ways Hero 4 & Hero 5</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-cross-platform-video-playback-made-easy-with-chromes-pip-for-2024/"><u>[New] Cross-Platform Video Playback Made Easy with Chrome's PIP for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-art-of-warmth-in-winter-top-5-video-backdrop-choices/"><u>[New] In 2024, The Art of Warmth in Winter Top 5 Video Backdrop Choices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-streamlined-approach-for-customizing-snapchat-video-rate-for-2024/"><u>[New] Streamlined Approach for Customizing Snapchat Video Rate for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unparalleled-pc-sound-control/"><u>[New] Unparalleled PC Sound Control</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-best-academy-for-storytellers-top-8-recommendations/"><u>[Updated] 2024 Approved Best Academy for Storytellers – [Top 8 Recommendations]</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-free-picture-quality-enhancement-techniques/"><u>[Updated] 2024 Approved Mastering Free Picture Quality Enhancement Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-sleek-60-second-fades/"><u>[Updated] 2024 Approved Sleek 60-Second Fades</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-harnessing-the-full-potential-of-lunapic-artistry/"><u>[Updated] Harnessing the Full Potential of LunaPic Artistry</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-comprehensive-look-at-the-newest-updates-of-lg-360-cameras/"><u>[Updated] In 2024, A Comprehensive Look at the Newest Updates of LG 360 Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-innovative-approaches-to-recording-verbal-notes/"><u>[Updated] In 2024, Innovative Approaches to Recording Verbal Notes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-samsung-ubd-k8500-refreshed-2023-overview/"><u>[Updated] Samsung UBD-K8500 Refreshed - 2023 Overview</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-swiftly-navigate-ios-magnification-features/"><u>2024 Approved Swiftly Navigate iOS Magnification Features</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/improve-your-acer-devices-touchpad-with-new-windows-11-driver-downloads/"><u>Improve Your Acer Device's Touchpad with New Windows 11 Driver Downloads</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-hero-session-evolution-four-to-five/"><u>In 2024, Hero Session Evolution Four to Five</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premier-picks-best-selling-oculus-rift-games/"><u>In 2024, Premier Picks Best-Selling Oculus Rift Games</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-correcting-filesystem-errors-in-win11/"><u>Mastering the Art of Correcting Filesystem Errors in Win11</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mobile-photography-mastering-dynamic-look-ups/"><u>Mobile Photography Mastering Dynamic Look-Ups</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-safe-methods-for-directly-downloading-youtubes-audios-as-mp3/"><u>Three Safe Methods for Directly Downloading YouTube's Audios as MP3</u></a></li>
 </ul></div>
 

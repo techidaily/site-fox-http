@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mastering Light and Shadow in HDR Portraiture"
-date: 2024-12-09T17:08:54.980Z
-updated: 2024-12-13T17:23:28.501Z
+date: 2024-12-19T21:26:35.973Z
+updated: 2024-12-22T16:03:03.643Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,10 @@ People often find it challenging to shoot a perfect HDR photograph from a phone 
 
 HDR portraits are best captured when your subject is still and the camera is also fixed on a tripod. So first, we will talk about how to shoot still portraits and then moving portraits.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Still HDR Portraits
 
 You can create a high-quality HDR portrait by following these simple steps.
@@ -75,10 +79,14 @@ Usually, three shots are ideal for HDR portraits as the chances of moving decrea
 
 ![moving decrease](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once you are done with your bracketing settings, all you have to do is press and hold the shutter, and your specified number of photos will be taken, each with a different exposure value.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Some Useful Tips to Remember
@@ -99,15 +107,15 @@ You should adjust the focus manually instead of autofocus, as it may shift the f
 
 ![autofocus should be off](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### HDR Effects on Phone Camera
 
 Of course, everyone can't use a DSLR camera for shooting HDR portraits as the process is a bit difficult and requires some expertise. But you can achieve the same effects on your mobile phone. Many latest mobiles offer HDR features in their camera. Unlike the bracketing effect of professional cameras, mobile usually takes only one picture and then you can edit by using some third-party app. Hundreds of these photo editing apps allow you to change the brightness and contrast of your image to create a _"pseudo"_ HDR image.
 
 Now that you know how to shoot still HDR portraits, let's put some light on shooting HDR moving portraits.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Moving HDR Portraits?
 
@@ -120,6 +128,10 @@ Shooting moving portraits in HDR can get a bit difficult because of blurring and
 **Solution 2\.** Using RAW files you can get a dynamic range of exposures that you wouldn't be able to get with a JPEG file.
 
 **Solution 3\.** DSLRs with high-quality exposure and depth sensors can also help shoot HDR moving portraits.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Edit and Merge Images to Create an HDR Portrait?
 
@@ -142,10 +154,6 @@ Hundreds of editing software are available but here we are going to talk about p
 
 ![edit hdr portrait](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Tick on the option of **Remove ghosts** to avoid any halos in the editing process.
 * For regular HDR portraits, select **16 Bit** mode in the first section.
 * The second section is **Edge Glow**. If you want a natural-looking portrait photo, you should decrease the **Strength** and **Radius** levels; otherwise, you can increase them according to your need.
@@ -159,7 +167,7 @@ Once you are done with all the adjustments, you'll finally have your perfect HDR
 If you are not satisfied with your resulting portrait image, you can further edit it in Lightroom or Photoshop.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -175,6 +183,10 @@ It is not as difficult as it seems to shoot an HDR portrait. We have made it as 
 How to Shoot HDR Portraits?
 
 HDR portraits are best captured when your subject is still and the camera is also fixed on a tripod. So first, we will talk about how to shoot still portraits and then moving portraits.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Still HDR Portraits
 
@@ -207,15 +219,7 @@ Usually, three shots are ideal for HDR portraits as the chances of moving decrea
 
 ![moving decrease](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once you are done with your bracketing settings, all you have to do is press and hold the shutter, and your specified number of photos will be taken, each with a different exposure value.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Some Useful Tips to Remember
 
@@ -234,14 +238,6 @@ Same is the case for your camera. You have to use a tripod stand to avoid camera
 You should adjust the focus manually instead of autofocus, as it may shift the focus accidentally while pressing the shutter.
 
 ![autofocus should be off](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### HDR Effects on Phone Camera
 
@@ -273,13 +269,17 @@ Hundreds of editing software are available but here we are going to talk about p
 
 ![tools photoshop merge to hdr pro](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click on **Browse** and select the images you want to merge.
 * Before clicking the OK button, you can tick on the **Attempt to Automatically Align Source Images** option so that minor artifacts introduced while shooting the images can be removed by photoshop.
 
 ![removed by photoshop](https://images.wondershare.com/filmora/article-images/2022/09/shoot-and-create-impressive-hdr-portraits-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * After the images are loaded, a dialogue box will appear on the right side with all the tools you need to edit your HDR portrait.
@@ -332,24 +332,22 @@ It is not as difficult as it seems to shoot an HDR portrait. We have made it as 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-breaking-the-barrier-acquiring-mass-tiktok-videos-easily/"><u>[New] 2024 Approved Breaking the Barrier Acquiring Mass TikTok Videos Easily</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-essential-visual-captures-on-apple-systems-limit-156-characters/"><u>[New] 2024 Approved Essential Visual Captures on Apple Systems (Limit 156 Characters)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-adepts-handbook-to-fullscreen-features-in-premiere-pro/"><u>[New] Adept's Handbook to Fullscreen Features in Premiere Pro</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-dynamic-faces-mastering-motion-blur-through-picsart/"><u>[New] Dynamic Faces Mastering Motion Blur Through Picsart</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-foremost-low-impact-screen-recorders-explored/"><u>[New] Foremost Low-Impact Screen Recorders Explored</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-is-picku-the-best-photo-editor-for-android-our-in-depth-review/"><u>[New] In 2024, Is PickU The Best Photo Editor for Android? Our In-Depth Review</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-pathway-to-delicate-audible-reduction-within-lumafusion-for-2024/"><u>[New] The Pathway to Delicate Audible Reduction Within Lumafusion for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-livestream-launchpad-duel-go-with-xsplit-or-opt-for-obs/"><u>[Updated] 2024 Approved Livestream Launchpad Duel Go with XSplit or Opt for OBS?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-tips-for-integrating-supplemental-film-content/"><u>[Updated] 2024 Approved Tips for Integrating Supplemental Film Content</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-dj-tools-for-windows/"><u>[Updated] Expert DJ Tools for Windows</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/2-step-by-step-methods-for-cleaning-up-your-pdf-documents-no-more-clutter/"><u>2. Step-by-Step Methods for Cleaning Up Your PDF Documents: No More Clutter!</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-effortless-entertainment-free-quality-memes-galore/"><u>2024 Approved Effortless Entertainment FREE, Quality Memes Galore</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/favorite-list-ideal-mac-devices-for-video-grabbing/"><u>Favorite List Ideal Mac Devices for Video Grabbing</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-oppo-a78-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Oppo A78? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/how-to-resolve-the-0xc00d3e8c-error-on-your-windows-11-pc/"><u>How to Resolve the 0xC00D3E8C Error on Your Windows 11 PC</u></a></li>
-<li><a href="https://fox-http.techidaily.com/insights-on-lg-bp350-user-perspectives-and-ratings/"><u>Insights on LG BP350 - User Perspectives and Ratings</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782309-9781591438151-meditations-with-the-hopi/"><u>Meditations with the Hopi | Free Book</u></a></li>
-<li><a href="https://fox-http.techidaily.com/selective-software-optimal-blu-ray-players-free-to-pay-for-2024/"><u>Selective Software Optimal Blu-Ray Players (Free to Pay) for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/top-tips-for-resolving-persistent-crashing-issues-in-fifa-2021-on-windows/"><u>Top Tips for Resolving Persistent Crashing Issues in FIFA 2021 on Windows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-comprehensive-analysis-the-power-of-sj-cam-s6/"><u>[New] In 2024, Comprehensive Analysis The Power of SJ-CAM S6</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-explore-top-picks-for-high-resolution-4k-panels/"><u>[New] In 2024, Explore Top Picks for High-Resolution 4K Panels</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-sons-of-midgard-unite-epic-release-for-2024/"><u>[New] Sons of Midgard Unite! Epic Release for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-fundamentals-of-uncomplicated-hdr-techniques/"><u>[New] The Fundamentals of Uncomplicated HDR Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-understanding-the-role-and-impact-of-b-roll-in-editing/"><u>[Updated] 2024 Approved Understanding the Role and Impact of B Roll in Editing</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-exploring-the-prime-linux-screenshot-applications/"><u>[Updated] In 2024, Exploring the Prime Linux Screenshot Applications</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-laptoppc-editors-steer-clear-of-inshot/"><u>[Updated] Laptop/PC Editors Steer Clear of Inshot</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-tips-for-uncovering-missing-exclusive-photos/"><u>2024 Approved Tips for Uncovering Missing Exclusive Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprints-download-with-discretion-in-social-media/"><u>Digital Footprints: Download with Discretion in Social Media</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-iphone-x-face-id-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove iPhone X Face ID?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-50plus-best-text-effects-for-videographers/"><u>In 2024, 50+ Best Text Effects for Videographers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/masterclass-in-image-cleanup-remove-unwanted-surroundings-for-2024/"><u>Masterclass in Image Cleanup Remove Unwanted Surroundings for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/resolving-the-critical-system-threat-fixing-error-code-0xc19001e1-on-windows-10/"><u>Resolving the Critical System Threat: Fixing Error Code 0xC19001E1 on Windows 10</u></a></li>
+<li><a href="https://win-online.techidaily.com/step-by-step-strategies-for-moving-your-hotmail-correspondence-to-outlook-unveiling-the-best-practices-part-1-of-3/"><u>Step-by-Step Strategies for Moving Your Hotmail Correspondence to Outlook: Unveiling the Best Practices (Part 1 of 3)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-essential-blueprint-for-configuring-a-zoom-space/"><u>The Essential Blueprint for Configuring a Zoom Space</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-free-collection-top-8-tools-for-viewing-4k-media-on-winos-x/"><u>Ultimate Free Collection Top 8 Tools for Viewing 4K Media on Win/OS X</u></a></li>
+<li><a href="https://win-superb.techidaily.com/1728510402099-usb/"><u>USBドライブ掃討プログラム -容易にしっかりとクリーンアップ</u></a></li>
 </ul></div>
 

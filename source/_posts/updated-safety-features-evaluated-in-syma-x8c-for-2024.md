@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Safety Features Evaluated in Syma X8C for 2024"
-date: 2024-12-06T17:33:59.909Z
-updated: 2024-12-13T18:14:03.675Z
+date: 2024-12-17T19:01:23.882Z
+updated: 2024-12-22T18:42:07.623Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of Syma X8C
@@ -63,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
  **Verdict:**
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Complete Review
 
@@ -102,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
@@ -109,13 +109,13 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -125,7 +125,7 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -153,16 +153,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-comprehensive-analysis-updated-s3700-bd-player/"><u>[New] In 2024, Comprehensive Analysis Updated S3700 BD Player</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-essential-screenshots-for-live-viewers/"><u>[Updated] Essential Screenshots for Live Viewers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-how-to-enable-speech-to-text-in-powerpoint-a-step-by-step-guide/"><u>[Updated] How to Enable Speech-to-Text in PowerPoint A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-perfecting-the-pause-how-to-craft-exceptional-slow-motion-videos/"><u>[Updated] In 2024, Perfecting the Pause How to Craft Exceptional Slow Motion Videos</u></a></li>
-<li><a href="https://win-premium.techidaily.com/ssd-windows-1187/"><u>安全模式下複製SSD磁碟機來 Windows 11/8/7:一步一解</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-nokia-c110-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Nokia C110 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-tecno-spark-20-pro-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Tecno Spark 20 Pro to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-dxgierrordeviceremoved-error-in-windows-10-and-11/"><u>How to Fix the DXGI_ERROR_DEVICE_REMOVED Error in Windows 10 & 11</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-adapt-posting-techniques-after-instagrams-revisions/"><u>In 2024, How to Adapt Posting Techniques After Instagram’s Revisions</u></a></li>
-<li><a href="https://techidaily.com/introducing-google-imagen-2-the-cutting-edge-ai-for-professional-video-creation/"><u>Introducing Google Imagen 2 - The Cutting-Edge AI for Professional Video Creation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/optimize-viewership-with-proficient-timestamp-placement-on-youtube/"><u>Optimize Viewership with Proficient Timestamp Placement on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-decoding-the-maximum-number-of-videos-for-64128gb-drives/"><u>[New] Decoding the Maximum Number of Videos for 64/128GB Drives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-secure-and-simple-the-top-10-trusted-online-transformers/"><u>[New] In 2024, Secure and Simple The Top 10 Trusted Online Transformers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-streamlining-post-production-mastering-the-green-screen-process-kinemaster/"><u>[New] Streamlining Post-Production Mastering the Green Screen Process (KineMaster)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-wave-warriors-cam-selection-best-surf-gear-2023/"><u>[Updated] 2024 Approved Wave Warriors' Cam Selection - Best Surf Gear 2023</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-ai-infused-title-engine-your-ultimate-video-marketing-tool/"><u>2024 Approved AI-Infused Title Engine Your Ultimate Video Marketing Tool</u></a></li>
+<li><a href="https://fox-http.techidaily.com/affordable-action-camera-deals-top-6-for-less-than-100-only/"><u>Affordable Action Camera Deals Top 6 for Less Than $100 Only</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/best-usb-hub-reviews-of-2023-according-to-tech-experts-at-zdnet-top-5-selections/"><u>Best USB Hub Reviews of 2023 According to Tech Experts at ZDNET | Top 5 Selections</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/can-you-unlock-apple-iphone-11-pro-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>Can You Unlock Apple iPhone 11 Pro After Forgetting the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/enhance-your-adventure-in-baldurs-gate-effective-remedies-for-common-stuttering-issues-6-fixes/"><u>Enhance Your Adventure in Baldur's Gate: Effective Remedies for Common Stuttering Issues (6 Fixes)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-x100-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Vivo X100 to New Android? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/quality-gaming-at-a-steal-innocn-39g1r/"><u>Quality Gaming at a Steal: InnoCN 39G1R</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-tecno-camon-30-pro-5g-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Tecno Camon 30 Pro 5G</u></a></li>
+<li><a href="https://fox-place.techidaily.com/streamline-your-code-with-top-tips-on-using-an-effective-search-component-locator-isearch/"><u>Streamline Your Code with Top Tips on Using an Effective Search Component Locator (iSearch)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-zoom-strategy-for-videoleap-videos-for-2024/"><u>The Ultimate Zoom Strategy for Videoleap Videos for 2024</u></a></li>
 </ul></div>
 

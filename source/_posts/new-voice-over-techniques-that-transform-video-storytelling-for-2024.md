@@ -1,7 +1,7 @@
 ---
 title: "[New] Voice Over Techniques That Transform Video Storytelling for 2024"
-date: 2024-08-16T09:24:23.513Z
-updated: 2024-08-17T09:24:23.513Z
+date: 2024-12-20T20:33:22.587Z
+updated: 2024-12-22T19:41:44.961Z
 tags: 
   - screen-recording
   - ai video
@@ -45,22 +45,24 @@ But here's the good news: the way you add either option is the same in Filmora.
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
@@ -68,9 +70,6 @@ You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Some Tips for Recording Narration
 
 Try playing the clip in the preview window to get a sense of what you want to say fits well with the space available in the project.
@@ -82,12 +81,9 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -97,20 +93,21 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Should you use narration in your next project?
 
 The best way to learn something is by doing it. So the next time you record a video, think about how you could augment your video project with narration.
@@ -147,4 +144,24 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-a-palettes-journey-learning-the-science-of-colors-for-2024/"><u>[New] A Palette's Journey Learning the Science of Colors for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-from-battery-life-to-final-cut-a-drone-editors-journey/"><u>[New] In 2024, From Battery Life to Final Cut A Drone Editor's Journey</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-art-of-saturation-and-contrast-in-gopro-editing-for-2024/"><u>[New] The Art of Saturation and Contrast in GoPro Editing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-capture-clarity-best-webcams-to-elevate-your-podcasts/"><u>[Updated] Capture Clarity Best Webcams to Elevate Your Podcasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-discovering-the-ideal-live-stream-provider-a-top-10-list-for-2024/"><u>[Updated] Discovering the Ideal Live Stream Provider A Top 10 List for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-exploring-with-tomtom-actioncam-new-year-for-2024/"><u>[Updated] Exploring with TomTom ActionCam New Year for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-free-versatile-video-tools-for-linux-windows-and-macos-for-2024/"><u>[Updated] Free, Versatile Video Tools for Linux, Windows & MacOS for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-quick-connectivity-iphone-images-to-windows/"><u>[Updated] In 2024, Quick Connectivity IPhone Images to Windows</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-blueprint-for-srt-file-excellence/"><u>2024 Approved The Ultimate Blueprint for SRT File Excellence</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210966357-9781088239803-coeurs-sans-destin/"><u>COEURS SANS DESTIN | Free Book</u></a></li>
+<li><a href="https://techtrends.techidaily.com/eliminate-that-unwanted-blue-8-effective-techniques-to-restore-your-tvs-true-colors/"><u>Eliminate That Unwanted Blue: 8 Effective Techniques to Restore Your TV's True Colors</u></a></li>
+<li><a href="https://driver-install.techidaily.com/essential-tips-for-msi-bravo-driver-update/"><u>Essential Tips for MSI Bravo Driver Update</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/gopro-max-360-vs-hero-11-which-takes-the-lead-for-2024/"><u>GoPro Max 360 vs Hero 11 Which Takes the Lead for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-on-apple-iphone-se-2020-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working On Apple iPhone SE (2020)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-raw-footage-to-final-cut-adopting-luts-in-premiere/"><u>In 2024, From Raw Footage to Final Cut Adopting LUTs in Premiere</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-infinix-note-30-5g-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Infinix Note 30 5G Phone that is Locked?</u></a></li>
+</ul></div>
 
