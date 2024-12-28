@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Seamless SRT to SUB  A Comprehensive Guide for 2024\""
-date: 2024-12-17T17:04:43.159Z
-updated: 2024-12-22T21:28:20.337Z
+date: 2024-12-22T06:21:19.860Z
+updated: 2024-12-27T19:21:24.174Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ In the article parts below, we will help you to know about the best 3 ways by wh
 
 Online tools are a great choice for users who are in search of programs that do not require any software download or installation. With these tools, you can directly work from the browser and most of them are also free to use. Below, we have shortlisted the popular 3 online tools to convert SRT to SUB.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. [BetterConverter](https://www.better-converter.com/Subtitles-Converter/Srt-to-Sub-Subtitle-Converter)
 
 This is a simple-to-use online tool that can quickly convert your local srt files to sub subtitle format. The process is fast and no registration for the tool is needed.
@@ -118,6 +114,10 @@ Use this online tool to convert SRT files to SUB in bulk. The interface is simpl
 
 ![mconveter](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Supported OS: Windows and Mac
 
 Steps for conversion
@@ -144,15 +144,15 @@ Summary
 
 Converting SRT files to SUB in bulk is simple and quick using this online tool that supports conversion to an array of other file types and formats as well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Solution 2: Get SUB file from SRT Subtitles with third-party Translators Software
 
 Online tools are undoubtedly simple and free tools but they come with their own share of limitations like internet dependency, limited features, restricted size, and more. So, for the users who want to avoid these limitations third-party translators’ software is available.
 
 ![srt to sub conversion](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 These full-fledged desktop programs need to be downloaded and installed on your system after which they can be used for subtitle translation and other supported functions.
 
@@ -190,6 +190,10 @@ Summary
 
 If you are in search of a feature-packed tool that is also free to use, this is just the right choice.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. [BatchSubtitlesConverter](https://www.videohelp.com/software/BatchSubtitlesConverter)
 
 Another popular name in the list is BatchSubtitlesConverter which is a handy program allowing you to convert subtitles format. As the name suggests, the program supports batch processing where multiple subtitle files can be converted at a time.
@@ -226,6 +230,10 @@ When you have multiple SRT files to be converted to SUB format, this Windows-bas
 Subtitle Workshop is another simple yet feature-rich free-to-use tool that supports more than 60 subtitle formats for creating, opening, editing, as well as conversion purpose. The user-friendly interface available in multiple languages makes the tool popular among users.
 
 ![subtitle workshop](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Supported OS: Windows
 
@@ -270,25 +278,13 @@ Step1 Download, install, and open the software on your system and then add the S
 
 ![new project created for srt](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Next, you need to right-click on the time and then choose the Advanced Edit option. You can also double-click on the selected SRT file.
 
 ![wondershare filmora srt edit](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 In this step, you can perform various SRT editing actions like editing the time code, changing the subtitles, changing the style, merging the subtitle strip, and more.
 
 ![wondershare filmora srt files editing](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Next, choose the SRT file on the timeline, right-click the same and then choose the Export Subtitle File option.
 
@@ -307,9 +303,17 @@ If you are facing issues opening and playing SRT subtitle files on your device, 
 * [Subtitle Workshop](#part2-3)
 * [Editing the Styling of SRT subtitles before Converting to. Sub](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Solution 1: Convert SRT to SUB with Online FREE Converters
 
 Online tools are a great choice for users who are in search of programs that do not require any software download or installation. With these tools, you can directly work from the browser and most of them are also free to use. Below, we have shortlisted the popular 3 online tools to convert SRT to SUB.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. [BetterConverter](https://www.better-converter.com/Subtitles-Converter/Srt-to-Sub-Subtitle-Converter)
 
@@ -342,7 +346,7 @@ Summary:
 Better Converter is an excellent tool for simple SRT to SUB conversion in a hassle-free manner.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. [Subtitle Fix](http://subtitlefix.com/index.php)
@@ -410,23 +414,19 @@ Summary
 
 Converting SRT files to SUB in bulk is simple and quick using this online tool that supports conversion to an array of other file types and formats as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Solution 2: Get SUB file from SRT Subtitles with third-party Translators Software
 
 Online tools are undoubtedly simple and free tools but they come with their own share of limitations like internet dependency, limited features, restricted size, and more. So, for the users who want to avoid these limitations third-party translators’ software is available.
 
 ![srt to sub conversion](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 These full-fledged desktop programs need to be downloaded and installed on your system after which they can be used for subtitle translation and other supported functions.
 
 Check the popular tools in this category below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. [Subtitle Edit](https://nikse.dk/subtitleedit)
 
@@ -459,10 +459,6 @@ Step3 At the File menu, choose the Save option and then select the desired file 
 Summary
 
 If you are in search of a feature-packed tool that is also free to use, this is just the right choice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. [BatchSubtitlesConverter](https://www.videohelp.com/software/BatchSubtitlesConverter)
 
@@ -500,6 +496,10 @@ When you have multiple SRT files to be converted to SUB format, this Windows-bas
 Subtitle Workshop is another simple yet feature-rich free-to-use tool that supports more than 60 subtitle formats for creating, opening, editing, as well as conversion purpose. The user-friendly interface available in multiple languages makes the tool popular among users.
 
 ![subtitle workshop](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Supported OS: Windows
 
@@ -548,10 +548,6 @@ Step2 Next, you need to right-click on the time and then choose the Advanced Edi
 
 ![wondershare filmora srt edit](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 In this step, you can perform various SRT editing actions like editing the time code, changing the subtitles, changing the style, merging the subtitle strip, and more.
 
 ![wondershare filmora srt files editing](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-11.jpg)
@@ -559,6 +555,10 @@ Step3 In this step, you can perform various SRT editing actions like editing the
 Step4 Next, choose the SRT file on the timeline, right-click the same and then choose the Export Subtitle File option.
 
 ![wondershare filmora srt files exporting](https://images.wondershare.com/filmora/article-images/2022/11/how-to-convert-srt-to-sub-with-3-actionable-ways-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -592,22 +592,24 @@ If you are facing issues opening and playing SRT subtitle files on your device, 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-all-about-triller-diverging-from-standard-tiktok-experience/"><u>[New] 2024 Approved All About Triller Diverging From Standard TikTok Experience</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-switch-off-crossplay-for-personalized-apex-legends-experience/"><u>[New] 2024 Approved Switch Off Crossplay for Personalized Apex Legends Experience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-complete-biomechanical-study-2023-for-2024/"><u>[New] Complete Biomechanical Study 2023 for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-crafting-a-captivating-periscope-livestream/"><u>[New] Crafting a Captivating Periscope Livestream</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-top-20-mobiles-perfecting-dji-visual-content-for-2024/"><u>[New] Top 20 Mobiles Perfecting DJi Visual Content for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-adventure-aces-ranking-games-that-make-you-want-to-explore-for-2024/"><u>[Updated] Adventure Aces Ranking Games That Make You Want to Explore for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-channel-conversion-secrets-yt-vs-igtv-for-2024/"><u>[Updated] Channel Conversion Secrets YT Vs IGTV for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-virtual-worlds-unleashed-predicted-best-psvr-gaming-experiences/"><u>[Updated] In 2024, Virtual Worlds Unleashed Predicted Best PSVR Gaming Experiences</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-pathways-to-gaining-premium-image-content-without-payment/"><u>2024 Approved Pathways to Gaining Premium Image Content Without Payment</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/access-15-free-digital-comics-collections-here/"><u>Access 15 Free Digital Comics Collections Here!</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/convert-avi-files-to-mkv-format-for-free-using-vlc-media-player-and-handbrake/"><u>Convert AVI Files to MKV Format for Free Using VLC Media Player & Handbrake</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-newest-corsair-k55-driver-software-here/"><u>Get the Newest Corsair K55 Driver Software Here!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-tecno-pop-8-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Tecno Pop 8</u></a></li>
-<li><a href="https://fox-http.techidaily.com/pureimage-the-backdrop-cutter/"><u>PureImage The Backdrop Cutter</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/quickly-restore-lost-files-in-a-broken-windows-system-using-these-5-simple-methods/"><u>Quickly Restore Lost Files in a Broken Windows System Using These 5 Simple Methods</u></a></li>
-<li><a href="https://fox-http.techidaily.com/recovery-of-windows-photo-viewer-functionality-on-win10-for-2024/"><u>Recovery of Windows Photo Viewer Functionality on Win10 for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/top-5-best-free-wmv-video-splitters/"><u>Top 5 Best Free WMV Video Splitters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/roadcast-perfection-recommended-tech-and-apps-for-youtubers-for-2024/"><u>[New] Broadcast Perfection Recommended Tech and Apps for YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unleash-your-fb-potential-a-strategic-plan-for-more-likes-and-shares/"><u>[New] In 2024, Unleash Your FB Potential A Strategic Plan for More Likes and Shares</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-master-the-art-of-social-media-stardom-with-these-9-strategies/"><u>[New] Master the Art of Social Media Stardom with These 9 Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-instagram-way-of-showcasing-youtube-videos/"><u>[New] The Instagram Way of Showcasing YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unlock-creative-freedom-in-videos-the-art-of-audio-integration/"><u>[Updated] In 2024, Unlock Creative Freedom in Videos The Art of Audio Integration</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-stepwise-guide-switch-between-normal-and-pip-views-in-youtube-app/"><u>[Updated] Stepwise Guide Switch Between Normal and PIP Views in YouTube App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-a-beginners-insight-into-av1-encoding/"><u>2024 Approved A Beginner's Insight Into AV1 Encoding</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-a-unified-brand-presence-on-youtube/"><u>2024 Approved Crafting a Unified Brand Presence on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-delving-into-the-world-of-audio-dissolves-crossfade/"><u>2024 Approved Delving Into the World of Audio Dissolves (Crossfade)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-from-novice-to-pro-streamlining-your-win11-zoom-sessions/"><u>2024 Approved From Novice to Pro Streamlining Your Win11 Zoom Sessions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-navigating-new-design-horizons-the-leading-10-vector-apps/"><u>2024 Approved Navigating New Design Horizons The Leading 10 Vector Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-premium-selection-of-mp4-devices/"><u>2024 Approved Premium Selection of MP4 Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-sky-high-data-capacity-at-zero-cost-top-20-free-cloud-storages-to-explore/"><u>2024 Approved Sky-High Data Capacity at Zero Cost Top 20 Free Cloud Storages to Explore</u></a></li>
+<li><a href="https://fox-http.techidaily.com/8-best-webcam-for-live-streaming-for-2024/"><u>8 Best Webcam for Live Streaming for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/bridging-reality-and-simulation-for-2024/"><u>Bridging Reality and Simulation for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-honor-x50iplus-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Honor X50i+ Phone Screen?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-pro-landscape-capture-iphone-killer-secrets-revealed/"><u>In 2024, Pro Landscape Capture IPhone Killer Secrets Revealed</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-to-the-best-windows-n-based-slide-show-applications-ranking-top-14/"><u>The Ultimate Guide to the Best Windows N-Based Slide Show Applications: Ranking Top 14</u></a></li>
+<li><a href="https://win-dash.techidaily.com/up-to-date-geforce-gt-710-video-card-driver-windows-get-your-free-copy-now/"><u>Up-to-Date GeForce GT #710 Video Card Driver (Windows) - Get Your Free Copy Now</u></a></li>
 </ul></div>
 

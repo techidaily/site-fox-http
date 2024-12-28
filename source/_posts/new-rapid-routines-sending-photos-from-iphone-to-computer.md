@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Rapid Routines  Sending Photos From iPhone to Computer\""
-date: 2024-08-08T17:45:41.081Z
-updated: 2024-08-09T17:45:41.081Z
+date: 2024-12-21T22:20:11.743Z
+updated: 2024-12-28T04:30:32.320Z
 tags: 
   - screen-recording
   - ai video
@@ -40,11 +40,12 @@ thumbnail: https://thmb.techidaily.com/db6e8bb5b9330de241494205e28fd162607bcee64
 
 ![](https://images.wondershare.com/filmora/article-images/transfer-iphone-photo-to-pc-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Click on the My Computer icon on your desktop and locate your iPhone in the Portable Devices section. Double click on the icon to access the contents of your phone, and locate the DCIM folder in the Internal Storage folder where all photos are stored.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/transfer-iphone-photo-to-pc-2.jpg)
 
  In the next step, you should select all the images you want to transfer to your PC and then use the right-click to copy them to a location on your PC where you want to store them.
@@ -53,50 +54,51 @@ thumbnail: https://thmb.techidaily.com/db6e8bb5b9330de241494205e28fd162607bcee64
 
 ![](https://images.wondershare.com/filmora/article-images/transfer-iphone-photo-to-pc-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once the Import Pictures and Videos window appears on your screen, click on the Import Settings option to select the folder on your computer where you want to store the photos and videos.
 
 ![](https://images.wondershare.com/filmora/article-images/transfer-iphone-photo-to-pc-4.jpg)
 
  You can also click on the Always Erase From Device After Importing to automatically delete photos and videos from your iPhone.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/transfer-iphone-photo-to-pc-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After selecting the destination folder and adjusting the settings, click on the OK button and wait for the pictures to be transferred to your PC.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Method 2: Using iTunes to transfer pictures and videos to a PC
 
  Transferring photos from an iPhone to a PC with iTunes requires you to have this software installed on both devices. If this is the case, you should connect your iPhone to a PC with a USB cable, but before you do make sure that all files you want to transfer are located in the same folder on your iPhone.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/transfer-photo-from-iphone-to-pc.jpg)
 
  Open the software on your PC and click on the iPhone icon in the menu located in the upper left corner of the iTunes. The Settings menu will appear on the left side of your screen and you should click on the Photo tab. At the top of the screen, you'll be able to see the Sync Photo checkbox, click on it and then select the folder from the drop-down menu.
 
  Locate the folder on your iPhone in which images you want to sync are located and select them. Once you've selected all pictures you want to transfer click on the Apply button located at the lower right corner of your screen. The duration of the transfer depends on the version of the Windows you have, and the transfer may be slow on some older versions of the OS.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 3: Transferring iPhone photos via iCloud to a PC
 
  Besides being remarkably simple this method of transferring photos from iPhone to PC will also save you a lot of time. If your PC and iPhone are connected through the iCloud service, each time you take a photo with your phone a copy of it will be saved on your computer, if you are connected to Wi-Fi. If you are not connected to the Internet at the moment when you are taking the picture, all photos will be automatically transferred the next time you connect your iPhone to Wi-Fi.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/icloud-photo-from-iphone-to-pc.jpg)
 
  You need to enable iCloud service on your iPhone in your phone's Settings menu and enable the Photo Stream option in order to start backing up your photos on a PC. Afterwards, you should install the iCloud Control Panel on your computer and two devices should be synced-in. However, transferring your videos with iCloud is not an option, and photos taken before this service was activated will not be automatically transferred. Despite this iCloud is an extremely simple and efficient way to back up all of your photos, and make sure that you can always have enough free space on your iPhone to take amazing photos.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -121,4 +123,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-discover-the-joy-of-individuality-creating-tones-and-sounds-on-android-devices/"><u>[New] 2024 Approved Discover the Joy of Individuality Creating Tones & Sounds on Android Devices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-perfect-virtual-scenes-enhancing-zoomgoogle-experience/"><u>[New] In 2024, Perfect Virtual Scenes Enhancing Zoom/Google Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-utilize-snapchats-star-trail-effectively-for-2024/"><u>[New] Utilize Snapchat's Star Trail Effectively for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-virtual-room-recordings-desktop-and-mobile-tips-for-2024/"><u>[New] Virtual Room Recordings Desktop & Mobile Tips for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-examining-benq-sw320-the-4k-visionary/"><u>[Updated] Examining BenQ SW320 The 4K Visionary</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-proven-pathways-to-peeling-away-pesky-backdrops-with-affinity-photo-tools/"><u>[Updated] In 2024, Proven Pathways to Peeling Away Pesky Backdrops with Affinity Photo Tools</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-smiles-to-text-where-to-find-amusing-tones/"><u>[Updated] Smiles to Text Where to Find Amusing Tones?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-10-methods-for-effective-youtube-transcoding/"><u>[Updated] Top 10 Methods for Effective YouTube Transcoding</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-premium-memory-device-for-sony-a7s-cameras/"><u>In 2024, Premium Memory Device for Sony A7S Cameras</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/understanding-the-environment-settings-panel/"><u>Understanding the Environment Settings Panel</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+</ul></div>
 

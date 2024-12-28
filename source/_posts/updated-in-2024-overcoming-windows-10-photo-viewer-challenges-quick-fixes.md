@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming Windows 10 Photo Viewer Challenges  Quick Fixes\""
-date: 2024-12-18T16:26:16.311Z
-updated: 2024-12-22T17:35:49.983Z
+date: 2024-12-22T04:30:07.509Z
+updated: 2024-12-27T20:49:38.475Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -58,11 +62,15 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
@@ -75,10 +83,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
    4. Tap ‘Restore Defaults’ from the bottom-right portion of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
@@ -93,7 +97,7 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
@@ -107,6 +111,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -118,10 +126,6 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -129,10 +133,6 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,19 +159,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-the-harmony-of-collaboration-brands-and-youtube-unite/"><u>[New] The Harmony of Collaboration Brands & YouTube Unite</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-all-you-need-to-know-about-valheim-seeds-and-the-best-valheim-seeds/"><u>[Updated] 2024 Approved All You Need to Know About Valheim Seeds & The Best Valheim Seeds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-a-guide-to-30-compelling-video-presentation-ideas/"><u>[Updated] A Guide to 30 Compelling Video Presentation Ideas</u></a></li>
-<li><a href="https://fox-http.techidaily.com/converting-avian-videos-avi-into-graphic-images-gif-using-filmora-for-2024/"><u>Converting Avian Videos (AVI) Into Graphic Images (GIF) Using Filmora for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/detailed-review-and-how-to-for-video-show-24-for-2024/"><u>Detailed Review & How-To for Video Show '24 for 2024</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/easy-fix-guide-resolve-your-scanner-errors-with-yl-computings-advice-yl-software/"><u>Easy Fix Guide: Resolve Your Scanner Errors with YL Computing's Advice (YL Software)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-map-the-world-around-you-top-notch-navigation-and-service-finds-at-your-fingertips/"><u>In 2024, Map the World Around You - Top-Notch Navigation & Service Finds at Your Fingertips</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-master-the-art-of-tiktok-tidying-up-smart-strategies-for-oversized-drafts/"><u>In 2024, Master the Art of TikTok Tidying Up Smart Strategies for Oversized Drafts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagram-fan-count-decline-identify-losses-for-2024/"><u>Instagram Fan Count Decline Identify Losses for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/mastering-stream-selection-a-top-10-tips-guide-for-2024/"><u>Mastering Stream Selection A Top 10 Tips Guide for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/microsofts-glimpse-into-augmented-reality-the-hololens-journey-for-2024/"><u>Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/shadowplay-not-recording-on-windows-solved/"><u>Shadowplay Not Recording on Windows [Solved]</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/simple-steps-regain-access-to-your-yahoo-account-without-hassle/"><u>Simple Steps: Regain Access to Your Yahoo Account Without Hassle</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unraveling-windows-fixes-define-role-of-chkdsk-sfc-dism/"><u>Unraveling Windows Fixes: DEFINE Role of CHKDSK, SFC, DISM</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-screencast-creators-handbook/"><u>[New] The Screencast Creator's Handbook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iny-tempo-truths-character-beats-exposed/"><u>[New] Tiny Tempo Truths Character Beats Exposed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-exclusive-access-to-6-premium-thumbnail-generators-for-youtube/"><u>[Updated] 2024 Approved Exclusive Access to 6 Premium Thumbnail Generators for YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-obs-screen-recorder-review/"><u>[Updated] 2024 Approved OBS Screen Recorder Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-vr-the-future-of-clinical-treatment/"><u>[Updated] In 2024, VR The Future of Clinical Treatment</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-engaging-podcast-names-tips-and-techniques/"><u>2024 Approved Crafting Engaging Podcast Names Tips and Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-professional-drone-review-best-5-to-consider/"><u>2024 Approved Professional Drone Review Best 5 to Consider</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-solving-iphone-xs-identity-crisis-fixing-face-id-failures/"><u>2024 Approved Solving iPhone X's Identity Crisis Fixing Face ID Failures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-art-of-animated-storytelling-tips-for-instagram-text/"><u>2024 Approved The Art of Animated Storytelling Tips for Instagram Text</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unlock-your-content-potential-best-ideas-for-youtube-themes/"><u>2024 Approved Unlock Your Content Potential Best Ideas for YouTube Themes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-access-royalty-free-clip-art-tips/"><u>2024 Approved Unlocking Access Royalty-Free Clip Art Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/audiovisual-format-fusion-srt-to-ttml-and-ssa-mastery/"><u>Audiovisual Format Fusion SRT to TTML & SSA Mastery</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/license-free-minecraft-banner-pack/"><u>License-Free Minecraft Banner Pack</u></a></li>
 </ul></div>
 
