@@ -1,7 +1,7 @@
 ---
 title: "Embracing the Night Sky with iPhone Lengthy Exposures"
-date: 2024-07-29T18:25:54.405Z
-updated: 2024-07-30T18:25:54.405Z
+date: 2025-01-04T21:18:02.021Z
+updated: 2025-01-07T00:02:40.939Z
 tags: 
   - screen-recording
   - ai video
@@ -30,9 +30,6 @@ thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8
 
  Previously the preserve of those who could afford to invest in a top of the range SLR, this type of photography is now within reach of many more of us, thanks to improvement in iPhone camera's technology. Want to know how? Read on.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Take Long Exposure Shots on iPhone
 
 * [Section 1: Users on iOS 11](#part1)
@@ -41,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
@@ -53,18 +51,12 @@ thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8
 
  Next, take a live photo. This is a moving image, a bit like recording with your video camera, but much shorter. Try to keep the iPhone steady as you take your shot, and choose to shoot something that is continually moving, but with a relatively stable background. Something like cars going down a street is a great place to start.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
  Image resource: iPhoneMod
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Not a user of iOS 11?
 
  If you don't have iOS 11 yet (or can't get it for your model), there is a way around this. Some developers have produced apps which mimic the extended shutter speed of Live Photos. This is achieved by combining multiple exposures of the same photograph, and then stitching them together with an overlain effect to create a simulated long exposure image.
@@ -72,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8
  There are a number of these apps available on the app store, each with its own set of pros and cons. Take a look at [Slow Shutter Cam](https://itunes.apple.com/app/slow-shutter-cam/id357404131?mt=8), [Ultra Slow Shutter Cam PRO](https://itunes.apple.com/us/app/ultra-slow-shutter-cam-pro-professional-long-exposure/id741508910?mt=8), [Slow Shutter Insta](https://itunes.apple.com/ca/app/slow-shutter-insta-free-long-exposure-photo-cam-for/id730352755?mt=8) and [LongExpo](https://itunes.apple.com/us/app/longexpo-slow-shutter-and-long-exposure-camera/id594078421?mt=8) to discover some of the most popular apps of this type. Try them out, and see what works best for you.
 
 **You may also like:** [iPhone Night Photography Tips: Take Night Photos with iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Long Exposure Photography Tips
 
@@ -84,9 +80,6 @@ thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8
 
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What should you capture with your long exposure iPhone shots?
 
  Long exposure shots are magical, giving a dreamy, almost ethereal quality to everyday situations. No doubt you'll find your own amazing things to shoot, but to get you started, why not try a long exposure iPhone shot of:
@@ -95,11 +88,19 @@ thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8
 
 ![flowing-water-long-exposure](https://images.wondershare.com/filmora/article-images/flowing-water-long-exposure.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Photography Mad
 
 * **Light trails:** Light is everywhere, and if you take your iPhone camera long exposure trick out of the house at night, you'll find some amazing opportunities to shoot. Cars on the highway, Ferris wheels at the fair and even the stars in the sky can become something amazing with a longer exposure.
 
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: WallDevil
 
@@ -111,14 +112,15 @@ thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
 
  Image resource: Nikonites
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## To conclude
 
@@ -126,9 +128,6 @@ thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8
 
  With the iPhone camera long exposure shots could really up your game on social media. Whether you're a budding travel photographer, a wannabe stock photo entrepreneur or simply an Instagram lover who wants to impress their friends, have a play with the technology available to you and see what you can create. Long exposure shots are massively popular right now, so grab your iPhone and get snapping!
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -154,4 +153,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-a-smudge-free-life-with-sharp-clean-gopro-images/"><u>[New] 2024 Approved A Smudge-Free Life with Sharp, Clean GoPro Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xclusive-roundup-the-best-video-to-mp3-converters-for-2024/"><u>[New] Exclusive Roundup The Best Video to Mp3 Converters for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-fusing-music-and-photos-online/"><u>[Updated] 2024 Approved Fusing Music and Photos Online</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/downloading-and-editing-tweets-as-mp3s/"><u>Downloading & Editing Tweets as MP3s</u></a></li>
+<li><a href="https://fox-http.techidaily.com/easy-access-4-prime-websites-for-downloading-tones/"><u>Easy Access 4 Prime Websites for Downloading Tones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevate-visual-storytelling-in-ar-integrating-downloadable-lut-techniques/"><u>Elevate Visual Storytelling in AR Integrating Downloadable LUT Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exceptional-phones-topping-list-for-high-definition-video-for-2024/"><u>Exceptional Phones Topping List for High Definition Video for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/extensive-analysis-djis-latest-uav-inspire-1-for-2024/"><u>Extensive Analysis DJI's Latest UAV, Inspire 1 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/free-text-techniques-for-more-dynamic-video-experiences/"><u>FREE Text Techniques for More Dynamic Video Experiences</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-separation-to-symbiosis-logic-pro-x-audio-blending-for-2024/"><u>From Separation To Symbiosis Logic Pro X Audio Blending for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/guide-to-deciphering-youtubes-comprehensive-feedback-system-for-2024/"><u>Guide to Deciphering YouTube's Comprehensive Feedback System for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-xr-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From Apple iPhone XR</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-mordhau-game-crashes-a-comprehensive-guide/"><u>Resolving Mordhau Game Crashes - A Comprehensive Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-oppo-a1x-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Oppo A1x 5G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-champions-guide-to-martial-arts-gaming/"><u>The Champion's Guide to Martial Arts Gaming</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-ultra-fast-wifi-with-netgear-nighthawk-x10-ad7200-a-comprehensive-review/"><u>Unleashing Ultra-Fast WiFi with Netgear Nighthawk X10 AD7200: A Comprehensive Review</u></a></li>
+</ul></div>
 

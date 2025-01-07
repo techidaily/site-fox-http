@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming Windows 10 Photo Viewer Challenges  Quick Fixes\""
-date: 2024-12-22T04:30:07.509Z
-updated: 2024-12-27T20:49:38.475Z
+date: 2025-01-02T23:04:24.364Z
+updated: 2025-01-06T20:31:34.968Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -63,15 +59,11 @@ Here is how to troubleshoot –
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -84,7 +76,15 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -97,7 +97,7 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
@@ -110,10 +110,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 2. Key in the command followed by ‘Enter’: Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register “$($\_.InstallLocation)\\AppXManifest.xml”}
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
 
@@ -133,6 +129,10 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,18 +159,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-screencast-creators-handbook/"><u>[New] The Screencast Creator's Handbook</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/iny-tempo-truths-character-beats-exposed/"><u>[New] Tiny Tempo Truths Character Beats Exposed</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-exclusive-access-to-6-premium-thumbnail-generators-for-youtube/"><u>[Updated] 2024 Approved Exclusive Access to 6 Premium Thumbnail Generators for YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-obs-screen-recorder-review/"><u>[Updated] 2024 Approved OBS Screen Recorder Review</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-vr-the-future-of-clinical-treatment/"><u>[Updated] In 2024, VR The Future of Clinical Treatment</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-engaging-podcast-names-tips-and-techniques/"><u>2024 Approved Crafting Engaging Podcast Names Tips and Techniques</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-professional-drone-review-best-5-to-consider/"><u>2024 Approved Professional Drone Review Best 5 to Consider</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-solving-iphone-xs-identity-crisis-fixing-face-id-failures/"><u>2024 Approved Solving iPhone X's Identity Crisis Fixing Face ID Failures</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-art-of-animated-storytelling-tips-for-instagram-text/"><u>2024 Approved The Art of Animated Storytelling Tips for Instagram Text</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-unlock-your-content-potential-best-ideas-for-youtube-themes/"><u>2024 Approved Unlock Your Content Potential Best Ideas for YouTube Themes</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-unlocking-access-royalty-free-clip-art-tips/"><u>2024 Approved Unlocking Access Royalty-Free Clip Art Tips</u></a></li>
-<li><a href="https://fox-http.techidaily.com/audiovisual-format-fusion-srt-to-ttml-and-ssa-mastery/"><u>Audiovisual Format Fusion SRT to TTML & SSA Mastery</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/license-free-minecraft-banner-pack/"><u>License-Free Minecraft Banner Pack</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/levate-traffic-ethical-practices-for-amplifying-content-views-for-2024/"><u>[New] Elevate Traffic Ethical Practices for Amplifying Content Views for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-osblend-the-vmix-alternative/"><u>[New] In 2024, OSBlend The VMix Alternative</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transform-videos-with-tiktok-effects/"><u>[New] In 2024, Transform Videos with TikTok Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-innovative-interactive-webinar-writer/"><u>[New] Innovative Interactive Webinar Writer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-5-iphone-x87-photoshoot-background-swappers-for-2024/"><u>[New] Ultimate 5 iPhone X/8/7 Photoshoot Background Swappers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-earnings-expedition-navigating-your-way-to-wealth-with-youtube-mobile-content/"><u>[Updated] 2024 Approved Earnings Expedition Navigating Your Way to Wealth with YouTube Mobile Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-darkening-brilliance-premiere-effects/"><u>[Updated] In 2024, Darkening Brilliance Premiere Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-from-laughs-to-clicks-your-stepwise-journey-on-9gag/"><u>[Updated] In 2024, From Laughs to Clicks Your Stepwise Journey on 9GAG</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-leading-ai-photographic-composer/"><u>[Updated] Leading AI Photographic Composer</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-try-the-top-free-voice-modifier-for-an-edge-in-valorant-for-2024/"><u>[Updated] Try the Top Free Voice Modifier for an Edge in Valorant for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-amplifying-tv-screens-through-fb-live-integration/"><u>2024 Approved Amplifying TV Screens Through FB Live Integration</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expertly-alter-imagesvideo-with-mobile-3dluts/"><u>2024 Approved Expertly Alter Images/Video with Mobile 3DLUTs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-honor-90-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Honor 90.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-samsung-vs-lg-battle-of-360-degree-cameras/"><u>In 2024, Samsung Vs LG Battle of 360-Degree Cameras</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-understanding-facebooks-real-time-content-restrictions/"><u>In 2024, Understanding Facebook's Real-Time Content Restrictions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-visionary-groups-redefining-virtual-space/"><u>In 2024, Visionary Groups Redefining Virtual Space</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/pro-tips-for-productive-dialogues-on-google-meet-for-2024/"><u>Pro Tips for Productive Dialogues on Google Meet for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/troubleshoot-your-iphone-ease-a-detailed-list-of-24-common-problems-and-fixes/"><u>Troubleshoot Your iPhone Ease: A Detailed List of 24 Common Problems & Fixes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-the-virtual-realms-of-meta-and-omni/"><u>Unveiling the Virtual Realms of Meta and Omni</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Facial Detection Comparison  Apple's X and Samsung Galaxy\""
-date: 2024-07-29T18:21:36.809Z
-updated: 2024-07-30T18:21:36.809Z
+date: 2024-12-30T19:23:42.508Z
+updated: 2025-01-06T16:19:50.413Z
 tags: 
   - screen-recording
   - ai video
@@ -34,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 * [Part 4: Safety Issue](#part4)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How does it work?
 
  This section will cover how the face recognition technology works for both the devices. Check out the process.
@@ -52,14 +53,15 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
 
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
 
@@ -69,14 +71,12 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 
  Both the devices need to be lifted to keep the face’s angle point accurately and it can look awkward when you need to use your device in a crowded place. Hence, both ways are kind of inconvenient to use especially when you wish to use your device secretly.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -87,20 +87,22 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -126,4 +128,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-account-management-unfollow-steps/"><u>[New] 2024 Approved Mastering Account Management Unfollow Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-navigating-the-thrilling-world-of-drone-racing-and-premium-fpv-units/"><u>[New] 2024 Approved Navigating the Thrilling World of Drone Racing & Premium FPV Units</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-a-final-farewell-to-your-instagram-world-process-and-steps/"><u>[New] In 2024, A Final Farewell to Your Instagram World Process & Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-ultimate-handbook-for-using-googles-ai-for-transcription-in-word-processors/"><u>[Updated] 2024 Approved Ultimate Handbook for Using Google's AI for Transcription in Word Processors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-elite-e-learning-leader-labeler/"><u>[Updated] Elite E-Learning Leader Labeler</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-harmony-and-hype-perfecting-film-teaser-tunes-for-2024/"><u>[Updated] Harmony and Hype Perfecting Film Teaser Tunes for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-full-breakdown-mastering-facetune-for-photo-enhancement-for-2024/"><u>[Updated] The Full Breakdown Mastering Facetune for Photo Enhancement for 2024</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/best-software-selections-serving-as-alternatives-to-itools-solutions/"><u>Best Software Selections Serving as Alternatives to iTools Solutions</u></a></li>
+<li><a href="https://common-error.techidaily.com/defeated-rsod-issue-easy-steps-to-repair-your-devices-crimson-crisis/"><u>Defeated RSOD Issue - Easy Steps to Repair Your Device's Crimson Crisis</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-new-horizons-with-toms-technology-insights/"><u>Exploring New Horizons with Tom's Technology Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevate-your-photo-treasury-in-the-cloud-free-and-paid-storage-for-everyone/"><u>In 2024, Elevate Your Photo Treasury in the Cloud Free & Paid Storage for Everyone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/leading-mp4-companies-to-watch-for-2024/"><u>Leading MP4 Companies to Watch for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/live-play-and-log-mobile-gaming-with-samsung/"><u>Live, Play & Log Mobile Gaming with Samsung</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/maximizing-sound-output-for-your-pc-with-windows-11-easy-fixes/"><u>Maximizing Sound Output for Your PC with Windows 11 Easy Fixes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/quick-and-efficient-ipad-screen-recording-techniques-unveiled/"><u>Quick & Efficient iPad Screen Recording Techniques Unveiled</u></a></li>
+<li><a href="https://some-tips.techidaily.com/streamlining-your-drone-footage-with-advanced-techniques-for-2024/"><u>Streamlining Your Drone Footage with Advanced Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/techniques-for-swapping-video-content-in-android/"><u>Techniques for Swapping Video Content in Android</u></a></li>
+</ul></div>
 

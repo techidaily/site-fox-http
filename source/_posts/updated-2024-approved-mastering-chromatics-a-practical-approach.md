@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Chromatics  A Practical Approach\""
-date: 2024-12-24T19:37:53.364Z
-updated: 2024-12-27T22:56:00.102Z
+date: 2025-01-01T19:22:30.611Z
+updated: 2025-01-06T19:18:28.292Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Color Theory
@@ -37,17 +37,21 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 ## Color Harmony
 
@@ -56,7 +60,7 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
@@ -73,10 +77,6 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
@@ -86,7 +86,7 @@ As you can see from this example the base color for the scene is a dark blue/pur
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,18 +123,22 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/1719053918837-updated-in-2024-dji-mavic-pro-vs-gopro-karma/"><u>[Updated] In 2024, Dji Mavic Pro Vs GoPro Karma</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-bright-futures-in-film-revolutionary-setup-tips/"><u>2024 Approved Bright Futures in Film Revolutionary Setup Tips</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-directory-of-video-capturing-technologies-by-type/"><u>2024 Approved Directory of Video Capturing Technologies by Type</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-floodproof-favorites-compiling-top-7-cameras-list/"><u>2024 Approved Floodproof Favorites Compiling Top 7 Cameras List</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-pinnacle-performance-discover-the-top-8-webcams-today/"><u>2024 Approved Pinnacle Performance Discover the Top 8 Webcams Today</u></a></li>
-<li><a href="https://fox-http.techidaily.com/building-a-brand-through-effective-live-streaming-practices-for-2024/"><u>Building a Brand Through Effective Live Streaming Practices for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/honeycomb-harmony-at-an-affordable-audio-level/"><u>Honeycomb Harmony at an Affordable Audio Level</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-realme-c33-2023-lock-screen-password-by-drfone-android/"><u>How To Change Realme C33 2023 Lock Screen Password?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-xiaomi-redmi-k70-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Xiaomi Redmi K70 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-xiaomi-redmi-note-13-proplus-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Xiaomi Redmi Note 13 Pro+ 5G</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-free-to-mix-unveiling-two-dji-devices-with-20-luts-complimentary/"><u>In 2024, Free to Mix - Unveiling Two DJI Devices with 20 LUTS Complimentary</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-best-of-the-big-screen-top-movie-trailer-apps-for-iphone-and-ipad/"><u>The Best of the Big Screen Top Movie Trailer Apps for iPhone and iPad</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-perfect-blend-of-efficiency-and-artistry-in-apple-photography-apps-for-2024/"><u>The Perfect Blend of Efficiency and Artistry in Apple Photography Apps for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-the-nighttime-navigator-tips-for-effortless-evening-shots/"><u>[New] 2024 Approved The Nighttime Navigator Tips for Effortless Evening Shots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-crafting-powerful-narratives-with-these-30-video-plans/"><u>[New] In 2024, Crafting Powerful Narratives with These 30 Video Plans</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-funimate-essentials-for-the-avid-gamer/"><u>[New] In 2024, Funimate Essentials for the Avid Gamer</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-iphone-photo-excellence-simple-tips-and-tricks/"><u>[New] In 2024, IPhone Photo Excellence Simple Tips & Tricks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-mastering-twitter-uploading-videos-compliance-for-2024/"><u>[New] Mastering Twitter Uploading Videos Compliance for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-jungle-beat-parrots/"><u>[Updated] 2024 Approved Jungle Beat Parrots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-digital-laughter-lab/"><u>[Updated] Digital Laughter Lab</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-subtlety-in-volume-the-ableton-way-for-2024/"><u>[Updated] Subtlety in Volume The Ableton Way for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-tutorial-adding-whimsy-with-snapchat-cartoons/"><u>[Updated] The Ultimate Tutorial Adding Whimsy with Snapchat Cartoons</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210756730-9780760383117-cat-magick/"><u>Cat Magick | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/fa-tipsar-for-att-genomfora-gamen-skarmar-pa-windows-11-4-effektiva-strategier/"><u>Få Tipsar För Att Genomföra Gamen 'Skärmar' På Windows 11: 4 Effektiva Strategier</u></a></li>
+<li><a href="https://fox-http.techidaily.com/quick-guide-activatingdeactivating-picture-in-picture-pip-for-youtube/"><u>Quick Guide Activating/Deactivating Picture In Picture (PIP) for YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/selecting-your-ideal-chatgpt-experience-browsing-or-browser-plugin-compared/"><u>Selecting Your Ideal ChatGPT Experience: Browsing or Browser Plugin Compared</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ate-recorder-options-for-livestreaming-on-youtube-for-2024/"><u>Ultimate Recorder Options for Livestreaming on YouTube for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unmasking-ai-limitations-in-text-interactions/"><u>Unmasking AI Limitations in Text Interactions</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-streamline-your-workflow-6-productivity-boosting-adobe-premiere-tips/"><u>Updated Streamline Your Workflow 6 Productivity-Boosting Adobe Premiere Tips</u></a></li>
+<li><a href="https://fox-that.techidaily.com/usb-c-liquid-warning-on-iphone-understanding-and-resolution-steps/"><u>USB-C Liquid Warning on iPhone: Understanding and Resolution Steps</u></a></li>
 </ul></div>
 

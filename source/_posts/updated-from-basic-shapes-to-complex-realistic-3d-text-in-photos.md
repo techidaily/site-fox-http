@@ -1,7 +1,7 @@
 ---
 title: "[Updated] From Basic Shapes to Complex, Realistic 3D Text in Photos"
-date: 2024-12-26T22:07:05.615Z
-updated: 2024-12-28T00:19:45.813Z
+date: 2025-01-05T20:22:16.092Z
+updated: 2025-01-07T00:02:41.272Z
 tags: 
   - screen-recording
   - ai video
@@ -39,17 +39,21 @@ Step2 Select the **Type** tool and choose a color of your liking. Then, click an
 
 ![type text photoshop](https://images.wondershare.com/filmora/article-images/type-adobe-photoshop.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Now, locate the **Layers** panel at the bottom-right corner of the screen. Click on **Layers** **→ right-click on your Text layer → select "New 3D Extrusion from Selected Layer".** Then, just click **Yes** on the new window that pops up.
 
 ![three d layer](https://images.wondershare.com/filmora/article-images/layer-adobe-photoshop.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 You are now editing in the 3D Workspace inside Photoshop. Here is where we will create the 3D text effect. First, click on the **Layers** panel **→ right-click on "Background" →** select **"Postcard".**
 
 ![edit background](https://images.wondershare.com/filmora/article-images/postcard-adobe-photoshop.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5 Now, without touching anything else, hold on to the **SHIFT** key and click on your text layer. This will select the text and background layer at the same time. Then, just hold on **CTRL + E / Cmnd + E**. This will merge the two layers.
 
@@ -61,6 +65,10 @@ Step7 The next thing you need to do is add a light source. To do this, go back t
 
 ![add light source photoshop](https://images.wondershare.com/filmora/article-images/light-adobe-photoshop.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step8 You can now go to the Properties panel to adjust the 3D effects and light source effects even further. When you are done, simply click this highlighted button to render your creation.
 
 ![render three d text](https://images.wondershare.com/filmora/article-images/render-adobe-photoshop.png)
@@ -68,10 +76,6 @@ Step8 You can now go to the Properties panel to adjust the 3D effects and light 
 Step9 We're almost done. The next step is to go back to the **Layers** tab → right-click on the **Background** layer → click on **"Convert to Smart Object".**
 
 ![convert to smart object](https://images.wondershare.com/filmora/article-images/convert-adobe-photoshop.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step10 Finally, from the upper-right corner drop-down button, select **Essentials**.
 
@@ -91,10 +95,6 @@ There is. It's called [Filmora](https://tools.techidaily.com/wondershare/filmora
 
 Compared to Photoshop, Filmora is not only easier to use, but it's significantly more affordable as well. With that said, let's find out how you can create a 3D text effect in Filmora.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Make a 3D Text Effect in Filmora
 
 The steps are extremely simple. Just follow each exactly as you see it here and you will be done in no more than 5 minutes.
@@ -102,10 +102,6 @@ The steps are extremely simple. Just follow each exactly as you see it here and 
 Step1 First, you should download Filmora and install the program on your computer. Then, launch it and click on **New Project**.
 
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
 
@@ -120,7 +116,7 @@ Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its set
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
@@ -133,6 +129,10 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
 
 Compared to Photoshop, Filmora is not only easier to use, but it's significantly more affordable as well. With that said, let's find out how you can create a 3D text effect in Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Make a 3D Text Effect in Filmora
 
 The steps are extremely simple. Just follow each exactly as you see it here and you will be done in no more than 5 minutes.
@@ -142,7 +142,7 @@ Step1 First, you should download Filmora and install the program on your compute
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
@@ -150,22 +150,22 @@ Step2 Import a background video or image by going to **My Media** and selecting 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 Next, head over to **Titles** and search for "3D". Select any option you like and drag it to the Timeline, above your background clip.
 
 ![title option filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its settings. Type in your custom text, change its font, color, and other features.
 
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -195,17 +195,24 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://data-wizards.techidaily.com/mac-remedy-swift-video-restoration-with-stellar-phoenix/"><u>'Mac Remedy': Swift Video Restoration with Stellar Phoenix</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-quickcapture-for-windows-ultimate/"><u>[New] QuickCapture for Windows Ultimate</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-educational-synergy-enhancing-learning-with-youtube-videos/"><u>[Updated] Educational Synergy Enhancing Learning with YouTube Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-iphone-burst-photography/"><u>2024 Approved Mastering iPhone Burst Photography</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-pinnacle-20-anime-songs-to-start-with/"><u>2024 Approved Pinnacle 20 Anime Songs to Start With</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-pixel-to-passion-unlocking-new-forms-of-entertainment-with-vr/"><u>2024 Approved Pixel to Passion Unlocking New Forms of Entertainment with VR</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-artisan-writes-crafting-hdr-magic-with-iphone/"><u>2024 Approved The Artisan’ Writes Crafting HDR Magic with iPhone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/a-stepwise-approach-to-film-color-grading-with-look-up-tables-luts-from-cg-central-for-2024/"><u>A Stepwise Approach to Film Color Grading with Look-Up Tables (Luts) From CG Central for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/device-needs-more-available-resources/"><u>Device Needs More Available Resources</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-xiaomi-14-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Xiaomi 14? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/turn-off-notifications-with-ease-a-guide-to-mutifying-incoming-calls-on-your-android-smartphone/"><u>Turn Off Notifications with Ease: A Guide to Mutifying Incoming Calls on Your Android Smartphone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/vanish-3-battle-disguise-4-steps-up-for-2024/"><u>Vanish 3 Battle Disguise 4 Steps Up for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-business-communication-essentials-free-slide-show-tools/"><u>[New] 2024 Approved Business Communication Essentials – Free Slide Show Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-journey-through-the-metaverse-6-illustrative-examples/"><u>[New] 2024 Approved Journey Through the Metaverse 6 Illustrative Examples</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-zooms-true-power-tripled-transformation-techniques-for-2024/"><u>[New] Zoom's True Power Tripled Transformation Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-photojester-snapyour-chuckles/"><u>[Updated] 2024 Approved PhotoJester SnapYour Chuckles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-high-def-showdown-top-8k-tvs-rated-and-reviewed-for-2024/"><u>[Updated] High-Def Showdown Top 8K TVs Rated and Reviewed for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-prove-youre-a-pro-lightning-fast-editing-in-windows-11-videos/"><u>[Updated] In 2024, Prove You're a Pro Lightning-Fast Editing in Windows 11 Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-therapeutic-effects-of-asmr-for-everyone/"><u>[Updated] In 2024, The Therapeutic Effects of ASMR for Everyone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-no-fuss-streaming-technique-for-podcasts-for-2024/"><u>[Updated] No-Fuss Streaming Technique for Podcasts for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-cutting-edge-methods-backing-up-iphone-photos-to-snapchat/"><u>2024 Approved Cutting-Edge Methods Backing Up iPhone Photos to Snapchat</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-unleash-your-potential-with-outstanding-android-time-lapse-videos/"><u>2024 Approved Unleash Your Potential with Outstanding Android Time-Lapse Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-secrets-of-premiere-pros-full-screen-magic/"><u>2024 Approved Unveiling the Secrets of Premiere Pro's Full Screen Magic</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-iphone-6s-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From iPhone 6s Lock Screen</u></a></li>
+<li><a href="https://common-error.techidaily.com/quick-fix-techniques-for-when-your-laptop-wont-respond/"><u>Quick Fix Techniques for When Your Laptop Won’t Respond</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/reverse-viewing-crafts-creative-youtube-video-methods-for-2024/"><u>Reverse Viewing Crafts Creative Youtube Video Methods for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/simplify-your-workflow-incorporating-luts-into-pscc-projects-for-2024/"><u>Simplify Your Workflow Incorporating LUTs Into PSCC Projects for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-power-of-tags-boost-traffic-with-top-genres-and-keywords-for-2024/"><u>The Power of Tags Boost Traffic with Top Genres & Keywords for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-fixes-for-startech-device-issues-on-microsoft-windows-11-8-and-7/"><u>Ultimate Fixes for StarTech Device Issues on Microsoft Windows 11, 8 & 7</u></a></li>
+<li><a href="https://fox-http.techidaily.com/uniting-platforms-the-seamless-addition-of-linktree-to-tiktok/"><u>Uniting Platforms The Seamless Addition of Linktree to TikTok</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/utilizing-fb-features-for-broadcasting-historical-video-footage-for-2024/"><u>Utilizing FB Features for Broadcasting Historical Video Footage for 2024</u></a></li>
 </ul></div>
 

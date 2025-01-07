@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Become a Communication Connoisseur with These Hidden WhatsApp Techniques\""
-date: 2024-12-23T16:27:12.436Z
-updated: 2024-12-27T23:35:18.781Z
+date: 2025-01-03T20:42:51.107Z
+updated: 2025-01-06T19:47:45.364Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ With more than a billion active users worldwide, WhatsApp is now among the prima
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cool WhatsApp Text Tricks to Make You Look Edgy
@@ -50,6 +50,10 @@ You can do a lot of things with your WhatsApp fonts, appearance, and texts that 
 Yes, you can bold your text. Just add a star (\*) symbol before and after your text. Don’t use space between the \* and the letter.
 
 ![Whatsapp Text Tricks Bold](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-bold.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2.Italic
 
@@ -75,15 +79,15 @@ WhatsApp introduced the Blue Tick feature to notify users when their messages ar
 
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 6.Pin Prioritized Contacts
 
 Many times, we have just one or a few people whose texts matter the most. So, avoid letting those important message threads from getting pushed down below by message floods. You can pin priority contacts by opening WhatsApp, then tapping and holding the chat thread of the contact without opening it. This will show a new toolbar on the green border at the top of the window. Use the first icon of a pin to freeze the chat thread in the top position.
 
 ![Whatsapp Pin Prioritized Contacts](https://images.wondershare.com/filmora/article-images/whatsapp-pin-prioritized-contacts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Source: techmesto.com
 
@@ -93,15 +97,15 @@ If you wish to save the chats that you exchanged with someone special, you can e
 
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 8.WhatsApp Font Tricks for Formatting
 
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
 
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
 
@@ -116,7 +120,7 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
@@ -145,6 +149,10 @@ As long as you have the chat history intact you can search specific words to tra
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5.Restore Your Chat History, and Deleted Chats
 
 Sometimes you can restore deleted chat history if you have switched sims or mistakenly deleted a special conversation thread. Doesn’t take too much, just uninstall and reinstall your app. On opening it, you will get the prompt to restore your chats and media. The restoration process takes about a minute depending on internet speed. Then tap NEXT when the prompt appears. Remember this trick only works on messages that are run under backup when you are using a new phone. WhatsApp runs a backup every day at 2 am.
@@ -155,19 +163,11 @@ Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have
 
 ![Whatsapp Hidden Feature Snooze Whatsapp](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-snooze-whatsapp.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 7.Automatically Delete Messages After 7 Days
 
 Not every message thread is important, and many people have the habit of deleting messages just to feel organized. WhatsApp brings some zero-effort minimalism for you with this new feature available for Android users. Update your app and visit the contact’s page in WhatsApp and you will be able to see the “Disappearing Messages” option. If you enable this, your chats with the particular contact will be deleted automatically on their own.
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 8.Mute Stories that You Don’t Want to See
 
@@ -185,11 +185,11 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Source: beebom.com
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit WhatsApp Videos with Ease
 
@@ -210,7 +210,7 @@ For this WhatsApp Video Editing Trick, you would need to have a third-party scre
 You can create an instant GIF out of the video file within WhatsApp. Do this, let the video download, and then freshly share it from Attach >> Gallery >> Videos. Before sending, the video editing panel would open, there, you can see the GIF option at the top right. It will shorten your video to 6 seconds, adjust the cursor to the portion you wish to use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -246,24 +246,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ngaging-viewers-best-practices-and-pitfalls-in-dayly-blogging/"><u>[New] Engaging Viewers Best Practices & Pitfalls in Dayly Blogging</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-unraveling-monetization-strategies-in-the-realm-of-video-shorts/"><u>[New] Unraveling Monetization Strategies in the Realm of Video Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effortless-income-estimations-for-youtubers/"><u>[Updated] 2024 Approved Effortless Income Estimations for YouTubers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-a-quick-fix-for-quirky-content-mastering-meme-creation-at-9gag/"><u>2024 Approved A Quick Fix for Quirky Content Mastering Meme Creation at 9GAG</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-behind-the-scenes-understanding-m1-technology/"><u>2024 Approved Behind The Scenes Understanding M1 Technology</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-how-to-master-free-online-and-offline-text-animations/"><u>2024 Approved How to Master Free Online & Offline Text Animations</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-identifying-high-impact-hdr-photography-tools/"><u>2024 Approved Identifying High-Impact HDR Photography Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-seamless-switch-to-virtual-reality-your-phones-next-step/"><u>2024 Approved Seamless Switch to Virtual Reality Your Phone's Next Step</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-simplify-passport-photography-with-these-top-10-low-cost-solutions/"><u>2024 Approved Simplify Passport Photography with These Top 10 Low-Cost Solutions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-simplifying-your-fb-live-broadcasts-on-zoom/"><u>2024 Approved Simplifying Your FB Live Broadcasts on Zoom</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-5-cutting-edge-hmds-for-drone-masters/"><u>2024 Approved Unveiling 5 Cutting-Edge HMDs for Drone Masters</u></a></li>
-<li><a href="https://fox-http.techidaily.com/behind-the-scenes-samsungs-s8-and-4k-technology/"><u>Behind the Scenes Samsung's S8 and 4K Technology</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Lava Yuva 2? | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/escape-from-no-match-blues-on-bumble-with-these-expert-swiping-techniques/"><u>Escape From No-Match Blues on Bumble with These Expert Swiping Techniques</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-4-solutions-for-iphone-hdr-video-washed-out-in-premiere-pro/"><u>In 2024, 4 Solutions for iPhone HDR Video Washed-Out in Premiere Pro</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-empowering-visual-communication-integrating-s2t-into-your-powerpoint/"><u>In 2024, Empowering Visual Communication Integrating S2T Into Your Powerpoint</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/micro-star-international-msi-audio-driver-download-optimize-your-pc-soundscape/"><u>Micro-Star International (MSI) Audio Driver Download: Optimize Your PC Soundscape</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-audio-blending-techniques-creating-a-unified-soundtrack-for-videos/"><u>Updated 2024 Approved Audio Blending Techniques Creating a Unified Soundtrack for Videos</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/video-cutting-edge-m1s-efficiency-takes-the-lead/"><u>Video Cutting-Edge M1's Efficiency Takes the Lead</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-husqvarnas-high-flyers-the-2023-drone-review-series/"><u>[New] 2024 Approved Husqvarna's High Flyers The 2023 Drone Review Series</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-pro-video-performance-the-best-3-smartphones-ranked/"><u>[New] 2024 Approved Pro Video Performance The Best 3 Smartphones Ranked</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-complete-slomo-recording-app-analysis-consumers/"><u>[New] Complete SloMo Recording App Analysis Consumers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transformative-voice-techniques-enhance-your-oratory-with-these-tools/"><u>[New] In 2024, Transformative Voice Techniques – Enhance Your Oratory with These Tools</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-comprehensive-obs-playbook-for-ps4-gamers/"><u>[New] The Comprehensive OBS Playbook for PS4 Gamers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-pro-level-webcams-the-ultimate-choice-for-your-podcasts/"><u>[Updated] 2024 Approved Pro Level Webcams The Ultimate Choice for Your Podcasts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-analyzing-authenticity-point-in-visual-identity-sharing-platforms/"><u>[Updated] Analyzing Authenticity’ Point in Visual Identity Sharing Platforms</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-amateur-to-pro-excelling-at-instagram-editing-for-2024/"><u>[Updated] From Amateur to Pro Excelling at Instagram Editing for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/droning-success-key-elements-in-selecting-ideal-fpv-propellers-for-2024/"><u>Droning Success Key Elements in Selecting Ideal FPV Propellers for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-premium-recommendations-for-ultra-hd-monitoring-tools/"><u>In 2024, Premium Recommendations for Ultra-HD Monitoring Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-top-10-power-upgrades-for-os-x-and-win-with-srt-systems/"><u>In 2024, Top 10 Power Upgrades for OS X and Win with SRT Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-genius-widecam-f100-analysis-dealing-with-blurry-images-and-audio-feedback/"><u>In-Depth Genius WideCam F100 Analysis: Dealing with Blurry Images & Audio Feedback</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-creating-hdr-in-photoshop/"><u>The Ultimate Guide to Creating HDR in Photoshop</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-tactic-tracker-how-to-scrutinize-your-subscriber-earnings-on-googles-platform-youtube/"><u>Triple Tactic Tracker How to Scrutinize Your Subscriber Earnings on Google's Platform, YouTube</u></a></li>
+<li><a href="https://win-forum.techidaily.com/why-the-modest-microsoft-wordpad-reigns-as-my-favorite-windows-program/"><u>Why the Modest Microsoft WordPad Reigns as My Favorite Windows Program</u></a></li>
 </ul></div>
 
