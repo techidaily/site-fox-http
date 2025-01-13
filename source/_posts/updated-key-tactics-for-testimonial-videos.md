@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Key Tactics for Testimonial Videos"
-date: 2025-01-05T00:19:46.521Z
-updated: 2025-01-06T16:58:23.162Z
+date: 2025-01-09T00:36:31.256Z
+updated: 2025-01-13T11:52:21.093Z
 tags: 
   - screen-recording
   - ai video
@@ -25,13 +25,13 @@ If you want to learn how to create video testimonials that convert, then this po
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Identify Your Perfect Customer
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The first key tactic to creating a perfect testimonial video is identifying your perfect customer. The more you know about the type of person who will benefit the most from using your product or service, the better you can tailor your video content to speak directly to them.
 
@@ -40,30 +40,22 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Include Strong Opinions
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Use the word “I”.
 * Use the word “we”.
@@ -81,13 +73,13 @@ When asking someone for their thoughts on a topic or issue, there's always going
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lighting, sound, and video quality matter.
 
@@ -97,9 +89,17 @@ This is a given. If you want your testimonial videos to be effective and believa
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Beware of Skeptics and Negative Nellies
 
@@ -143,22 +143,18 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-a-step-by-step-guide-to-announcing-a-charity-drive-on-fb-for-2024/"><u>[New] A Step-by-Step Guide to Announcing a Charity Drive on FB for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-chuckle-o-meter-starts-with-zero-mememasters-kit-for-2024/"><u>[New] Chuckle-O-Meter Starts with Zero – MemeMasters Kit for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-easily-store-linkedin-videos-here-are-6-optimal-tools-for-it/"><u>[New] Easily Store LinkedIn Videos - Here Are 6 Optimal Tools for It</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-scrutinizing-the-performance-of-dji-solo-vision-goggles/"><u>[New] In 2024, Scrutinizing the Performance of DJi Solo Vision Goggles</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-trivia-titans-of-the-year-best-general-knowledge-sites/"><u>[New] In 2024, Trivia Titans of the Year - Best General Knowledge Sites</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-unraveling-360-degree-vision-a-new-cinematic-experience-for-2024/"><u>[New] Unraveling 360-Degree Vision A New Cinematic Experience for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-vive-review-step-into-the-next-dimension-for-2024/"><u>[New] Vive Review Step Into the Next Dimension for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-hand-tracking-insights-detailed-exploration/"><u>[Updated] 2024 Approved Hand Tracking Insights Detailed Exploration</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-low-profile-youtubing-broadcasting-without-a-huge-sublist/"><u>[Updated] 2024 Approved Low Profile YouTubing Broadcasting without a Huge Sublist</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-flawless-soundscape-secrets-to-high-resolution-audio-recording/"><u>[Updated] Flawless Soundscape Secrets to High-Resolution Audio Recording</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-tailored-free-offer-unlock-our-exclusive-youtube-banner-pack/"><u>2024 Approved Tailored Free Offer - Unlock Our Exclusive YouTube Banner Pack</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/best-practices-elevating-your-virtual-identity-on-facebook-for-2024/"><u>Best Practices Elevating Your Virtual Identity on Facebook for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/bypass-iphone-6-plus-activation-lock-with-a-professional-tool-by-drfone-ios-unlock-ios-unlock/"><u>Bypass iPhone 6 Plus activation lock with a professional tool</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/crafting-a-viral-path-best-hashtags-for-youtube-riches-for-2024/"><u>Crafting a Viral Path Best Hashtags for YouTube Riches for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/effortless-gameplay-recordings-for-your-xbox-console-for-2024/"><u>Effortless Gameplay Recordings for Your Xbox Console for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-honor-magic-vs-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-7-essential-enhancements-for-the-apple-vision-pros-success-in-the-enterprise-insights/"><u>Top 7 Essential Enhancements for the Apple Vision Pro's Success in the Enterprise Insights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-arttoon-masterpiece-analysis-and-guidebook-2024/"><u>[New] ArtToon Masterpiece Analysis & Guidebook 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-innovative-question-collection-for-lively-podcast-discussions-for-2024/"><u>[New] Innovative Question Collection for Lively Podcast Discussions for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nsiders-look-at-top-9-free-platforms-for-designing-youtube-logos-for-2024/"><u>[New] Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-premium-hardware-choices-for-uhd-editors-for-2024/"><u>[New] Premium Hardware Choices for UHD Editors for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-finest-5k-monitors-our-choice-8-edition-for-2024/"><u>[New] The Finest 5K Monitors Our Choice, #8 Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-content-strategy-after-the-facebook-revamp-for-2024/"><u>[Updated] Mastering Content Strategy After the Facebook Revamp for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-apple-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-the-ultimate-guide-to-free-video-cutting-and-joining-software/"><u>New The Ultimate Guide to Free Video Cutting and Joining Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlined-techniques-for-accumulating-large-tiktok-datasets-for-2024/"><u>Streamlined Techniques for Accumulating Large TikTok Datasets for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-links-lightweight-and-easy-to-carry-travel-router-wr902ac-uninterrupted-internet-anywhere-anytime/"><u>TP-Link's Lightweight and Easy-to-Carry Travel Router (WR902AC): Uninterrupted Internet Anywhere, Anytime</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/watching-transformers-a-step-by-step-movie-marathon-plan/"><u>Watching Transformers: A Step-by-Step Movie Marathon Plan</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Samsung Galaxy A15 4G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-favors-a-later-date-for-full-e2e-encryption-by-default/"><u>Why Meta Favors a Later Date for Full E2E Encryption by Default</u></a></li>
 </ul></div>
 

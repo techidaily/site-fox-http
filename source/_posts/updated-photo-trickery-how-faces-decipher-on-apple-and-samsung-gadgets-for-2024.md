@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Photo Trickery  How Faces Decipher on Apple & Samsung Gadgets for 2024\""
-date: 2024-12-30T20:33:50.970Z
-updated: 2025-01-06T20:13:51.480Z
+date: 2025-01-12T06:03:00.745Z
+updated: 2025-01-12T21:34:10.562Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How does it work?
 
  This section will cover how the face recognition technology works for both the devices. Check out the process.
@@ -59,11 +55,11 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Which one is more Accuracy?
@@ -71,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
 
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
 
@@ -82,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -95,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
  The Face ID by Apple in its iPhone X also makes itself proficient enough to detect the modifications in the appearances such as growing of beard or if a lady has applied makeup. Or if you have shaved your beard fully, the device takes a confirmation with the help of a passcode. What’s more, you don’t have to worry if you are wearing scarf or shades, cap, hat and even contact lenses, Face ID will work properly with the accessories too.
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
@@ -107,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -135,19 +135,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-drone-that-never-loses-you-top-10-list/"><u>[New] 2024 Approved The Drone that Never Loses You - Top 10 List</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-achieve-financial-stardom-strategies-for-youtube-success-on-fb/"><u>[New] In 2024, Achieve Financial Stardom Strategies for YouTube Success on FB</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-navigating-the-metaverse-with-elite-headsets-for-2024/"><u>[New] Navigating the Metaverse with Elite Headsets for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-essential-mac-streaming-apps-uncovering-the-best-5/"><u>[Updated] 2024 Approved Essential Mac Streaming Apps Uncovering the Best 5</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-top-actions-cameras-reviewed-hero5-vs-yi-in-the-spotlight/"><u>[Updated] In 2024, Top Actions Cameras Reviewed Hero5 Vs. YI in the Spotlight</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-spotlight-synthesis-blending-lights-for-video-excellence-for-2024/"><u>[Updated] Spotlight Synthesis Blending Lights for Video Excellence for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-enhancing-your-instagram-presence-with-long-videos/"><u>2024 Approved Enhancing Your Instagram Presence with Long Videos</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-the-new-bird-bebops-parrot-as-a-flight-marvel-review/"><u>2024 Approved The New Bird Bebop’s Parrot as a Flight Marvel Review</u></a></li>
-<li><a href="https://article-posts.techidaily.com/drone-selections-on-a-budget-affordable-options-above-for-2024/"><u>Drone Selections on a Budget Affordable Options Above for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-vivo-g2-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Vivo G2 | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/fixing-blank-sequences-during-obs-recording-for-2024/"><u>Fixing Blank Sequences During OBS Recording for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-apple-iphone-7-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover Apple iPhone 7 Data From iOS iCloud? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/learn-to-navigate-large-tiktok-files-editing-made-simple-and-swift-for-2024/"><u>Learn to Navigate Large TikTok Files Editing Made Simple and Swift for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/top-30-camcorders-directly-at-your-eyes-for-2024/"><u>Top 30 Camcorders Directly At Your Eyes for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-quickshot-maker-for-videoplusimage-sync/"><u>[New] 2024 Approved QuickShot Maker for Video+Image Sync</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-essential-pc-cam-solutions-10-picks-on-windows-10-for-2024/"><u>[New] Essential PC Cam Solutions - 10 Picks on Windows 10 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-ranked-animation-set-for-typography/"><u>[New] In 2024, Top-Ranked Animation Set for Typography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-guide-to-sierras-icloud-drives-and-shares/"><u>[New] The Ultimate Guide to Sierra's iCloud Drives & Shares</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-video-integration-made-easy-building-dynamic-youtube-compilations/"><u>[New] Video Integration Made Easy Building Dynamic YouTube Compilations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-perfecting-captions-adding-words-to-images-in-oses/"><u>[Updated] 2024 Approved Perfecting Captions Adding Words to Images in OSes</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-experiences-with-the-syma-x8c-drone-for-2024/"><u>[Updated] Experiences with the Syma X8C Drone for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-guide-to-top-frame-rates-in-slow-motion-video-production/"><u>[Updated] Guide to Top Frame Rates in Slow-Motion Video Production</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-inside-the-panasonic-hx-a1-a-buyers-guide-review/"><u>[Updated] Inside the Panasonic HX-A1 A Buyer's Guide Review</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-instructions-for-screenshots-using-your-xbox-gaming-console/"><u>Easy Instructions for Screenshots Using Your Xbox Gaming Console</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-practices-for-converting-webp-to-jpg-format/"><u>In 2024, Best Practices for Converting WebP to JPG Format</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-capturing-gameplay-a-sims-4-tutorial/"><u>In 2024, Capturing Gameplay A Sims 4 Tutorial</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-cut-down-clutter-how-to-efficiently-handle-unwanted-youtube-content-pcmobile/"><u>In 2024, Cut Down Clutter How to Efficiently Handle Unwanted YouTube Content (PC/Mobile)</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-troubleshooting-tiktok-ensuring-smooth-video-playback/"><u>In 2024, Troubleshooting TikTok Ensuring Smooth Video Playback</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-tweeted-timelines-a-complete-guide-to-video-backups/"><u>In 2024, Tweeted Timelines A Complete Guide to Video Backups</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-shutting-down-a-stale-linkedin-account-for-2024/"><u>The Ultimate Guide to Shutting Down a Stale LinkedIn Account for 2024</u></a></li>
 </ul></div>
 

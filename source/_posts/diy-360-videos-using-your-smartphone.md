@@ -1,7 +1,7 @@
 ---
 title: "DIY 360 Videos Using Your Smartphone"
-date: 2024-08-08T17:32:34.883Z
-updated: 2024-08-09T17:32:34.883Z
+date: 2025-01-11T08:29:53.555Z
+updated: 2025-01-13T03:28:30.395Z
 tags: 
   - screen-recording
   - ai video
@@ -31,9 +31,6 @@ The advancements in 360 degree video capturing gadgets have created a revolution
 * [1\. Accessories for iPhone to make 360 videos](#part1)
 * [2\. Apps for iPhone to make 360 videos](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Accessories for iPhone to make 360 videos
 
 An iPhone camera has lots of features but it is not able to capture 360 degree videos by itself, you have to make some additional arrangements. There are some specially designed gadgets and accessories in market that you need to pair up with your iPhone to generate spherical video outcome. Here are few details about the most popular and compatible accessories that you can use with your iPhone to make 360 degree videos:
@@ -42,11 +39,19 @@ An iPhone camera has lots of features but it is not able to capture 360 degree v
 
 ![Make 360 video with iPhone - Kogeto](https://images.wondershare.com/filmora/article-images/make-360-video-with-iphone-kogeto-dot-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Kogeto dot is one basic accessory that comes with a plastic lens and possesses one snap on type clip that assists in attaching it to backside of your iPhone. This lens allows users to capture 360 degree videos and the results are like professional videographer. It can help you at almost all events as like parties, sport contests and concerns because these are easier to hold and use. The dot is capable enough to capture scenes around the lens but you have to take care about keeping your fingers at right position otherwise they will disturb your video. This accessory is available in various color combinations as like green, red, pink and black and it is super easy to attach and detach.
 
  **2\. [Insta360 Nano:](https://www.insta360.com/)**
 
 ![Make 360 video with iPhone - Insta360](https://images.wondershare.com/filmora/article-images/make-360-video-with-iphone-360-insta.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are a crazy facebook user then you might have seen lots of spherical video stuff over there and definitely you might be curious to develop your own adventurous videos now. Don’t worry! It is much easier to create outstanding videos with iPhone by using an additional attachment termed as Insta360 Nano. This works like a lightning jack for iPhone where users can hold their phone in any direction and the application inside managed everything to create wonderful 360 degree stuff. Insta360 Nano has abilities to create live stream videos and they can be directly saved to MicroSD card inside your device. It will definitely be something crazy, creative and innovative and you will love to use these accessories.
 
@@ -64,16 +69,18 @@ GoPano Micro is one of the latest tiny version of lenses for digital cameras and
 
  **5\. [Shot:](https://www.kickstarter.com/projects/shot/shot-turn-your-iphone-into-a-virtual-reality-camer)**
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Make 360 video with iPhone - Shot](https://images.wondershare.com/filmora/article-images/make-360-video-with-iphone-shot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Again, this is a popular 360 degree attachment for iPhone devices that allows VR shooting and works in coordination with Shot app. This accessory is designed to support iPhone 6/6s as well as iPhone 6/6s Plus and is much easier to use; the results are outstanding with amazing VR quality.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Apps for iPhone to make 360 videos
 
 It is much easier to shoot 360 degree videos with iPhone if you have specially designed accessories and applications. To make your VR shooting task much easier, some manufacturers have designed following stuff:
@@ -94,14 +101,15 @@ Within last few months, the New York Time is boosting and expanding all its onli
 
 This app is same as that of Oculus Photo Viewer, it works with iOS and Cardboards to give awesome 360 degree view. Orbulus is wonderful choice for still images as well as spherical videos and it makes everything much easier for the user.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### Conclusion
 
 There are no limitations to the world of 360 degree video recording and iOS users are now able to enjoy all amazing stuff on their own device without making investment on costly gears. If you are one of the VR content lover then it is right time to order your latest accessory along with VR app designed for iPhone and enter into the world of adventure.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -126,6 +134,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-crafting-seamless-image-transfers-across-operating-systems/"><u>[Updated] Crafting Seamless Image Transfers Across Operating Systems</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-google-meeting-documentation-a-time-saving-guide-for-2024/"><u>[Updated] Mastering Google Meeting Documentation A Time-Saving Guide for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-selections-top-rated-webcam-platforms/"><u>2024 Approved Ultimate Selections Top-Rated Webcam Platforms</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-from-iphone-13-pro-max-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock from iPhone 13 Pro Max</u></a></li>
+<li><a href="https://os-tips.techidaily.com/anticipation-builds-as-apple-readies-exciting-reveals-for-upcoming-may-7th-ipad-unveiling/"><u>Anticipation Builds as Apple Readies Exciting Reveals for Upcoming May 7Th iPad Unveiling</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-accelerating-or-slowing-down-youtube-videos-playback/"><u>In 2024, Accelerating or Slowing Down YouTube Videos Playback</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-realme-12-proplus-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Realme 12 Pro+ 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-apple-iphone-15-pro-max-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From Apple iPhone 15 Pro Max without Password?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/inshot-audio-techniques-for-professional-editors/"><u>InShot Audio Techniques for Professional Editors</u></a></li>
+<li><a href="https://fox-http.techidaily.com/lighten-the-digital-landscape-kapwings-meme-builder/"><u>Lighten the Digital Landscape Kapwing's Meme Builder</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-steps-for-downloading-and-using-prolific-usb-to-serial-driver-on-pc/"><u>Quick Steps for Downloading and Using Prolific USB to Serial Driver on PC</u></a></li>
+<li><a href="https://fox-http.techidaily.com/warfarin-is-a-well-known-example-where-genetic-testing-can-guide-dosing-to-prevent-bleeding-complications/"><u>Warfarin Is a Well-Known Example Where Genetic Testing Can Guide Dosing to Prevent Bleeding Complications.</u></a></li>
+</ul></div>
 

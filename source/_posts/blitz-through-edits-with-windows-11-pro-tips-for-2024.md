@@ -1,7 +1,7 @@
 ---
 title: "Blitz Through Edits with Windows 11 Pro Tips for 2024"
-date: 2024-08-08T17:35:41.666Z
-updated: 2024-08-09T17:35:41.666Z
+date: 2025-01-10T16:56:05.243Z
+updated: 2025-01-13T01:52:25.768Z
 tags: 
   - screen-recording
   - ai video
@@ -40,13 +40,18 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
@@ -62,10 +67,11 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 * You can see a range of options when you click on Draw, but you need to select the drawing tool
 * You get 7 options for tool selection – filled polygon, filled ellipse, ellipse, filled rectangle, rectangle, straight line, and free hand pencil. Select the free hand pencil option
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
@@ -75,18 +81,20 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -112,6 +120,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-homemade-video-making-top-5-efficient-methods-you-must-know/"><u>[New] 2024 Approved Homemade Video Making Top 5 Efficient Methods You Must Know</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-photographys-top-10-digital-notebooks-for-smartphones/"><u>[New] 2024 Approved Photography's Top 10 Digital Notebooks for Smartphones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-rejuvenated-interview-framework-for-auditory-appeal/"><u>[New] 2024 Approved Rejuvenated Interview Framework for Auditory Appeal</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ignite-creative-spark-choosing-from-the-best-6-nft-services/"><u>[New] Ignite Creative Spark Choosing From the Best 6 NFT Services</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eading-links-to-googles-advertising-networks-on-videos/"><u>[New] Leading Links to Google's Advertising Networks on Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mememakerpro-share-your-giggles/"><u>[New] MemeMakerPro Share Your Giggles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-seamless-srt-to-sub-a-comprehensive-guide/"><u>[New] Seamless SRT to SUB A Comprehensive Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-transcending-boundaries-the-vr-evolutionary-journey/"><u>[Updated] 2024 Approved Transcending Boundaries The VR Evolutionary Journey</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-enriching-your-social-media-footprint-live-streaming-via-wirecast/"><u>[Updated] In 2024, Enriching Your Social Media Footprint Live Streaming via Wirecast</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-premium-pcandroid-mkv-player/"><u>2024 Approved Premium PC/Android MKV Player</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/digiarty-winxdvd-faq/"><u>利用者がよく抱える Digiarty WinXDVD 関連質問: FAQ・技術サポートチェック項目</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/comprehensive-snapshot-service-azs-app-testing/"><u>Comprehensive Snapshot Service - AZ's App Testing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/highlighting-elite-gif-software-on-apple-iphones-for-2024/"><u>Highlighting Elite GIF Software on Apple iPhones for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-leveraging-s2t-technology-in-professional-decks/"><u>In 2024, Leveraging S2T Technology in Professional Decks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-why-are-my-instagram-videos-playing-sideways-troubleshoot/"><u>In 2024, Why Are My Instagram Videos Playing Sideways? Troubleshoot</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/maximizing-performance-a-step-by-step-guide-on-overclocking-your-raspberry-pi-4-running-windows-11/"><u>Maximizing Performance: A Step-by-Step Guide on Overclocking Your Raspberry Pi 4 Running Windows 11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-complete-blueprint-for-optimizing-data-in-adobes-cloud-realm-for-2024/"><u>The Complete Blueprint for Optimizing Data in Adobe's Cloud Realm for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/whatsapp-narratives-the-sound-factor-for-2024/"><u>WhatsApp Narratives The Sound Factor for 2024</u></a></li>
+</ul></div>
 
