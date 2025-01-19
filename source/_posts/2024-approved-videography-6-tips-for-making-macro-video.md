@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Videography  6 Tips for Making Macro Video\""
-date: 2024-08-08T17:37:45.008Z
-updated: 2024-08-09T17:37:45.008Z
+date: 2025-01-17T16:34:52.544Z
+updated: 2025-01-19T16:33:22.420Z
 tags: 
   - screen-recording
   - ai video
@@ -62,16 +62,21 @@ A macro video is shot from a close distance. If your camera is in motion, it can
 
 Try to get great visual perspectives or angles by bracing the camera on the tree or ground on any other stable object.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Background
 
 The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. DSLR Cameras
 
@@ -83,6 +88,10 @@ You may also add an extension tube which basically splits the focal distance in 
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Depth of Field
 
 The lens has certain limitation to capture and focus the subject closely. The camera’s aperture can be adjusted to control the depth of your field.
@@ -91,9 +100,6 @@ What is an aperture? It is the opening of the lens. The smaller the opening of t
 
 But, you must remember that when the opening of the lens is small, the light required is more. There must be an equal balance.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
 #### 6\. Composition
@@ -102,18 +108,20 @@ When you have low lights, ensuring a correct perspective on the subject with max
 
 For instance, in order to keep a snail always in focus, you may choose to shoot it while it crawls perpendicular to the camera. If you shoot while it crawls towards you, only a part of the snail remains in focus at a certain point of time.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -139,6 +147,23 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-androids-role-in-virtual-reality-content-consumption/"><u>[New] Android's Role in Virtual Reality Content Consumption</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-clarifying-misleading-self-representations-on-fb/"><u>[New] Clarifying Misleading Self-Representations on FB</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-2-step-guide-to-smoothly-record-google-hangoutsmeetings-for-2024/"><u>[New] The 2-Step Guide to Smoothly Record Google Hangouts/Meetings for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-next-level-windows-experience/"><u>[New] The Next-Level Windows Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-picks-hilarity-driven-ringtones-for-laughter-lovers/"><u>[New] Top Picks Hilarity-Driven Ringtones for Laughter Lovers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unlocked-skies-cheapest-drones-that-dont-break-the-bank-for-2024/"><u>[New] Unlocked Skies Cheapest Drones that Don't Break the Bank for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-ultimate-guide-for-virtual-reality-content-android-friendly/"><u>[Updated] 2024 Approved The Ultimate Guide for Virtual Reality Content (Android-Friendly)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-crystal-clear-captures-removing-fog-from-gopro-shots/"><u>[Updated] In 2024, Crystal Clear Captures Removing Fog From GoPro Shots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-snicker-scribbles-humorhub-for-2024/"><u>[Updated] Snicker Scribbles HumorHub for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-superior-app-dev-editors-top-15-selection/"><u>[Updated] Superior App Dev Editors Top 15 Selection</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-exquisite-android-3d-media-experience/"><u>2024 Approved Exquisite Android 3D Media Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-shot-perfecting-made-simple-the-best-cinematic-practices/"><u>2024 Approved Shot Perfecting Made Simple The Best Cinematic Practices</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/astral-expressions-top-30-bios-to-boost-your-signs-charm/"><u>Astral Expressions Top 30 Bios to Boost Your Sign's Charm</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/itunes-recording-hacks-for-enhanced-videos/"><u>ITunes Recording Hacks for Enhanced Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshoot-and-optimize-your-dell-g7-with-quick-driver-updates-how-to/"><u>Troubleshoot & Optimize Your Dell G7 with Quick Driver Updates - How-To</u></a></li>
+</ul></div>
 

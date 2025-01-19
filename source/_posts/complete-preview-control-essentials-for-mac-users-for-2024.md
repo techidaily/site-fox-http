@@ -1,7 +1,7 @@
 ---
 title: "Complete Preview Control Essentials for Mac Users for 2024"
-date: 2024-08-08T17:39:18.117Z
-updated: 2024-08-09T17:39:18.117Z
+date: 2025-01-18T16:09:16.078Z
+updated: 2025-01-19T16:35:26.282Z
 tags: 
   - screen-recording
   - ai video
@@ -37,8 +37,9 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to View and Edit Photos in Preview on Mac
 
 As mentioned earlier, the **Preview app** is a default photo viewer on Mac that also has many editing tools. Therefore:
@@ -52,6 +53,10 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
 
@@ -84,8 +89,9 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -130,9 +136,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -160,6 +163,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -193,10 +200,11 @@ Choose a destination folder in the **Where** field, select your preferred format
 * Select your preferred output format for all the images from the **Format** drop-down list
 * Click **Choose** to convert all the images in a single go
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -221,6 +229,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-guide-to-funny-image-memes/"><u>[New] 2024 Approved The Ultimate Guide to Funny Image Memes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leading-you-to-8-superior-zero-cost-3d-videos-solutions/"><u>[New] In 2024, Leading You to 8 Superior, Zero-Cost 3D Videos Solutions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-swift-fixes-for-non-functional-facebook-video-sharing-on-androidios-for-2024/"><u>[New] Swift Fixes for Non-Functional Facebook Video Sharing on Android/iOS for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-decoding-apples-m1-revolution-in-tech/"><u>[Updated] Decoding Apple's M1 Revolution in Tech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-magix-image-suite-assessment/"><u>[Updated] In 2024, MAGIX Image Suite Assessment</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-masterclass-in-minimal-photoshop-alterations/"><u>[Updated] Masterclass in Minimal Photoshop Alterations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elevating-aerial-photography-with-gopro-karma/"><u>2024 Approved Elevating Aerial Photography with GoPro Karma</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-novices-introduction-to-video-coders-for-2024/"><u>A Novice's Introduction to Video Coders for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/comment-copier-un-dvd-sur-support-disque-et-le-convertir-en-fichier-iso-a-laide-de-winx-dvd-copy-pro/"><u>Comment Copier Un DVD Sur Support Disque Et Le Convertir en Fichier ISO À L'aide De WinX DVD Copy Pro</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlink-apple-id-from-apple-iphone-15-pro-max-by-drfone-ios/"><u>How To Unlink Apple ID From Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-audio-on-windows-best-8-podcast-applications-unveiled-for-2024/"><u>Mastering Audio on Windows Best 8 Podcast Applications Unveiled for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/step-into-success-beginners-guide-to-hosting-tech-product-discussions-online/"><u>Step-Into Success Beginner’s Guide to Hosting Tech Product Discussions Online</u></a></li>
+</ul></div>
 

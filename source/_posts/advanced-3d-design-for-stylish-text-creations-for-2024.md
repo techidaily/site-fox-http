@@ -1,7 +1,7 @@
 ---
 title: "Advanced 3D Design for Stylish Text Creations for 2024"
-date: 2024-08-08T17:37:48.016Z
-updated: 2024-08-09T17:37:48.016Z
+date: 2025-01-15T16:05:42.733Z
+updated: 2025-01-19T16:10:53.239Z
 tags: 
   - screen-recording
   - ai video
@@ -44,24 +44,41 @@ Step3 Now, look at the bottom-right corner of the program. Find the **Font** set
 
 ![change font illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-font.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Next, choose any color you want for your text from the panel on the screen's left side. Just remember to click on your text first before you start changing colors.
 
 ![change color](https://images.wondershare.com/filmora/article-images/adobe-illustrator-color.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5 Align the text to make it easier to edit and move around the canvas later. Just click on it and then click on the three buttons in the image below. This section is located at the bottom-right corner of the screen.
 
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![turn text into three d](https://images.wondershare.com/filmora/article-images/adobe-illustrator-panel.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step8 Now, all left to do is experiment with the settings in this panel and adjust how you want your 3D text to look. You can adjust its width, rotation, presets, angle, perspective, and so on. Just play around with the settings until you find your ideal result.
 
@@ -79,9 +96,6 @@ You might not believe it, but there's an even more accessible and less expensive
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -120,9 +134,6 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
@@ -130,8 +141,9 @@ Step4 Finally, import a video in Filmora and drag it under the text into the Tim
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -158,6 +170,19 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-embellish-slides-with-sonic-elements/"><u>[New] Embellish Slides with Sonic Elements</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-capturing-whatsapp-call-data-a-compreayers-guide/"><u>[Updated] In 2024, Capturing WhatsApp Call Data A Compreayer's Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-building-through-characters-and-plot-twists/"><u>[Updated] In 2024, Channel-Building Through Characters and Plot Twists</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-crafting-stories-excellence-among-8-film-categories/"><u>[Updated] In 2024, Crafting Stories Excellence Among 8 Film Categories</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-this-years-most-engrossing-channel-list-youtube-storytellers/"><u>[Updated] In 2024, This Year’s Most Engrossing Channel List YouTube Storytellers</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/best-free-defrag-software-tools-to-enhance-your-computer-speed-july-update/"><u>Best FREE Defrag Software Tools to Enhance Your Computer Speed (July Update)</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-oppo-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Oppo Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-oppo-a79-5g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Oppo A79 5G</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/ricaricare-aggiorna-o-reinstallare-i-drivers-su-ios-soluzioni-e-passaggi-essenziali/"><u>Ricaricare, Aggiorna O Reinstallare I Drivers Su iOS: Soluzioni E Passaggi Essenziali</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-action-review-sj7s-4k-star-video-capability-unveiled-for-2024/"><u>The Ultimate Action Review SJ7's 4K Star Video Capability Unveiled for 2024</u></a></li>
+</ul></div>
 

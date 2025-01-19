@@ -1,7 +1,7 @@
 ---
 title: "\"Bringing History Alive  Old Images in New Video Formats\""
-date: 2024-08-08T17:37:26.706Z
-updated: 2024-08-09T17:37:26.706Z
+date: 2025-01-15T16:25:18.878Z
+updated: 2025-01-19T16:13:03.377Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0
 
 # How to Digitize Your Old Photos and Turn Them into Impressive Videos
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -38,6 +35,10 @@ Therefore, it is highly recommended to digitize photos to make them lasting. In 
 * [Part 1: How to Digitize Your Memorable Old Photos](#part1)
 * [Part 2: How to Convert Old Photos into a Video with Ease?](#part2)
 * [Part 3: More Editing Tips for Creating Memorable Videos](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4 Smart Ways to Digitize Your Memorable Old Photos
 
@@ -87,27 +88,22 @@ To learn how to come up with an impressive video collage using Filmora, just fol
 
 To start with, you can just launch Filmora on your system and import your photos to the application. Simply click on the “Import” button from the toolbar to insert selective pictures or an entire folder. This will open a browser window, letting you locate and load the photos of your choice.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create timeline for photos](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
@@ -118,13 +114,25 @@ As stated above, you can find a wide range of video editing options to explore i
 
 ![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
 ![Add Title to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
 ![Add Audio to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Export your video
 
@@ -189,6 +197,16 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/laughter-legends-unwrapping-goofy-odyssey/"><u>'Laughter Legends' - Unwrapping 'Goofy Odyssey'</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-design-mastery-in-motion-crafting-intriguing-podcast-covers/"><u>[New] 2024 Approved Design Mastery in Motion Crafting Intriguing Podcast Covers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-expert-tips-on-softening-volume-in-logic-pro-mixes/"><u>[New] In 2024, Expert Tips on Softening Volume in Logic Pro Mixes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-watermark-wisdom-for-every-photographers-toolkit/"><u>2024 Approved Watermark Wisdom for Every Photographer's Toolkit</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elite-cloud-saving-solutions-compilation/"><u>Elite Cloud Saving Solutions Compilation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-top-30-drawing-and-sketchpad-apps-for-windows-users-reviewed/"><u>In 2024, Top 30 Drawing and Sketchpad Apps for Windows Users Reviewed</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/play-classic-games-anywhere-retroarch-compatible-with-ios-devices-and-apple-tv/"><u>Play Classic Games Anywhere: RetroArch Compatible with iOS Devices & Apple TV</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/savvy-flyers-selection-least-expensive-drone-brands/"><u>Savvy Flyers' Selection Least Expensive Drone Brands</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-boost-visual-speakers-output-enhance-movie-and-video-audibility/"><u>Updated Boost Visual Speakers Output Enhance Movie and Video Audibility</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Glacial Glory  Pinnacle Sports Achievements for 2024\""
-date: 2025-01-12T05:44:32.171Z
-updated: 2025-01-12T19:55:07.104Z
+date: 2025-01-17T16:12:56.900Z
+updated: 2025-01-19T16:23:52.869Z
 tags: 
   - screen-recording
   - ai video
@@ -43,11 +43,11 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-breaks-world-record.jpg)
 
-Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
@@ -56,6 +56,10 @@ Injuries are part of sports events but some injuries are gruesome and are result
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
@@ -71,11 +75,11 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
@@ -94,7 +98,7 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
@@ -103,14 +107,10 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
@@ -122,7 +122,7 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
@@ -132,7 +132,7 @@ Doping scandals have become a part of the Olympics and this year is no different
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
@@ -156,22 +156,14 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-avoiding-camera-induced-image-disruption/"><u>[New] 2024 Approved Avoiding Camera-Induced Image Disruption</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-chucklechamber-a-universe-of-comedy-creation-online/"><u>[New] 2024 Approved ChuckleChamber A Universe of Comedy Creation Online</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-digitize-creativity-our-top-list-for-engaging-with-3d-typographic-websites-for-2024/"><u>[New] Digitize Creativity Our Top List for Engaging with 3D Typographic Websites for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-embracing-time-the-art-of-extended-iphone-exposures/"><u>[New] Embracing Time The Art of Extended iPhone Exposures</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-tailored-touch-up-top-6-apps-to-exclude-unwanted-elements-from-photos/"><u>[New] In 2024, Tailored Touch-Up Top 6 Apps to Exclude Unwanted Elements From Photos</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-5-methods-to-record-high-quality-audio-on-windows/"><u>[New] In 2024, Top 5 Methods to Record High-Quality Audio on Windows</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-essential-funimate-guidebook/"><u>[Updated] 2024 Approved The Essential Funimate Guidebook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-boost-your-videos-impact-with-top-ranking-software-solutions/"><u>[Updated] Boost Your Videos' Impact with Top-Ranking Software Solutions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-artistic-auto-trims-best-6-mac-os-big-sur-video-editors-reviewed/"><u>[Updated] In 2024, Artistic Auto-Trims Best 6 Mac OS Big Sur Video Editors Reviewed</u></a></li>
-<li><a href="https://win-superb.techidaily.com/1-click-rescue-using-aomei-onekey-software-for-rapid-system-factory-recovery/"><u>1-Click Rescue Using AOMEI OneKey Software for Rapid System Factory Recovery</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-supercharge-your-task-management-with-top-8-chrome-plug-ins/"><u>AI Supercharge Your Task Management with Top 8 Chrome Plug-Ins</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/enhance-your-online-presence-discover-the-power-of-manycam-for-professional-livestreams-and-fake-cameras/"><u>Enhance Your Online Presence: Discover the Power of ManyCam for Professional Livestreams and Fake Cameras</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/guide-to-identifying-and-contacting-private-calls/"><u>Guide to Identifying and Contacting Private Calls</u></a></li>
-<li><a href="https://fox-http.techidaily.com/insiders-guide-to-pro-windows-10-expertise-for-2024/"><u>Insider's Guide to Pro WINDOWS 10 Expertise for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/introduction-to-spanish-salutations-decoding-and-practicing-10-key-expressions/"><u>Introduction To Spanish Salutations: Decoding & Practicing 10 Key Expressions</u></a></li>
-<li><a href="https://android-frp.techidaily.com/top-5-samsung-galaxy-f14-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Samsung Galaxy F14 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/top-hits-of-17-dj-essentials-curated-mp3s-for-seamless-video-mashups/"><u>Top Hits of '17 - DJ Essentials: Curated MP3s for Seamless Video Mashups</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-collection-no-cost-ae-template-gold/"><u>[New] Ultimate Collection No-Cost AE Template Gold</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-mastering-pip-chromes-full-screen-multi-tasking-guide/"><u>[Updated] In 2024, Mastering PIP Chrome's Full-Screen Multi-Tasking Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-giroptic-complete-immersion/"><u>[Updated] In-Depth Giroptic Complete Immersion</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-easy-methods-to-unlock-icloud-locked-apple-iphone-seipadipod-by-drfone-ios/"><u>3 Easy Methods to Unlock iCloud Locked Apple iPhone SE/iPad/iPod</u></a></li>
+<li><a href="https://techtrends.techidaily.com/6-tips-for-choosing-the-best-selfie-stick/"><u>6 Tips For Choosing the Best Selfie Stick</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-best-6-android-video-capture-apps-for-screen-recording/"><u>In 2024, Best 6 Android Video Capture Apps for Screen Recording</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-professional-filmmaking-made-easy-with-right-lenses/"><u>In 2024, Professional Filmmaking Made Easy with Right Lenses</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transitioning-away-from-newest-sierra-version-back-to-1010-for-2024/"><u>Transitioning Away From Newest Sierra Version Back to 10.10 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/windows-11-update-deep-dive/"><u>Windows 11 Update Deep Dive</u></a></li>
 </ul></div>
 

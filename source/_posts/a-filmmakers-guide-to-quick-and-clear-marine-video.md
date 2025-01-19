@@ -1,7 +1,7 @@
 ---
 title: "A Filmmaker’s Guide to Quick and Clear Marine Video"
-date: 2024-08-16T09:14:06.168Z
-updated: 2024-08-17T09:14:06.168Z
+date: 2025-01-18T16:03:05.294Z
+updated: 2025-01-19T16:20:41.793Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,10 @@ thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -58,10 +62,11 @@ thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4
 
  You can instead make use of natural sunlight, which should help you get the excellence you require even when you’re shooting at more than 30 metres depth. Deeper white balancing can be helpful during cloudy days.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. Stay steady
 
@@ -69,10 +74,11 @@ thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4
 
  To add greater stability to your camera, hold it as close to yourself as is realistically possible. Alternatively, consider using a tripod if you can. Keep your camera on your subject for as long as you need to, and try to wait for ten seconds without re-adjusting your camera at all.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Be careful of other divers
 
@@ -80,11 +86,19 @@ thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -104,14 +118,8 @@ thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4
 
  If you’re planning on making a DVD of your work, consider adding extras to the product such as highlights or photos. Filmora is a popular editing software solution that will help you add an extra dash of magic to your work.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -137,6 +145,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-dissecting-disney-disguises-the-goofy-trek/"><u>[New] 2024 Approved Dissecting Disney Disguises 'The Goofy Trek'</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-igtv-success-guide-three-methods-to-convert-and-share-videos/"><u>[New] IGTV Success Guide Three Methods to Convert and Share Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-liberating-video-files-free-mp4-and-hd-from-facebook-posts/"><u>[New] In 2024, Liberating Video Files Free MP4 & HD From Facebook Posts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-navigating-high-definition-in-youtube-videos-for-2024/"><u>[New] Navigating High-Definition in YouTube Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-uncover-recent-instagram-unfollow-patterns-for-2024/"><u>[New] Uncover Recent Instagram Unfollow Patterns for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-lg-360-camera-full-review-2023-update/"><u>[Updated] 2024 Approved LG 360 Camera Full Review -2023 Update</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-ultimate-guide-to-t5s-action-footage/"><u>[Updated] 2024 Approved The Ultimate Guide to T5's Action Footage</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-elegant-darkening-premieres-touch-for-2024/"><u>[Updated] Elegant Darkening Premiere's Touch for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-virtual-clan-combat-top-10-titles-with-a-tsushinian-twist/"><u>[Updated] In 2024, Virtual Clan Combat Top 10 Titles with a Tsushinian Twist</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/boxes-that-speak-love-the-top-10-websites-offering-custom-wrapped-treasures/"><u>Boxes That Speak Love The Top 10 Websites Offering Custom Wrapped Treasures</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-itel-p40plus-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Itel P40+</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-a-scintillating-trailer-tale/"><u>Crafting A Scintillating Trailer Tale</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-handle-previewed-activities-on-facebook-for-2024/"><u>How to Handle Previewed Activities on Facebook for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-excellent-free-memes-at-your-fingertips/"><u>In 2024, Excellent FREE Memes at Your Fingertips</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gratis-strategies-for-streaming-c-span-videos-online/"><u>In 2024, Gratis Strategies for Streaming C-Span Videos Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-next-gen-tech-talk-samsungs-bdplus-k850-ultra-review/"><u>In 2024, Next-Gen Tech Talk Samsung's BD+ K850 Ultra Review</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-vivo-y78t-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Vivo Y78t ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-mobile-alter-picture-size-on-iphone-easefully-for-2024/"><u>Mastering Mobile Alter Picture Size on iPhone Easefully for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-smart-way-to-shop-for-drones-must-know-information/"><u>The Smart Way to Shop for Drones Must-Know Information</u></a></li>
+</ul></div>
 

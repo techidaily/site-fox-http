@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Refining Photos  The Step-by-Step Guide to Clean Edges on Photopea\""
-date: 2025-01-05T20:59:21.529Z
-updated: 2025-01-13T01:22:52.225Z
+date: 2025-01-12T16:16:43.045Z
+updated: 2025-01-19T16:45:20.693Z
 tags: 
   - screen-recording
   - ai video
@@ -45,27 +45,23 @@ Step2 In the next step, click the **"Magic Wand"** tool from the left-side panel
 
 ![selecting the magic wand tool in photopea](https://images.wondershare.com/filmora/article-images/2023/03/selecting-the-magic-wand-tool-in-photopea.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Now, simply press the **"Delete"** button on your keyboard to remove the background. However, if the tool did not select some parts of the image's background, you need to adjust the settings. Click the **"Ctrl+Z"** key to undo the selection.
 
 ![removing the image background using magic wand in photopea](https://images.wondershare.com/filmora/article-images/2023/03/removing-the-image-background-using-magic-wand-in-photopea.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 Next, find the **"Tolerance"** option in the top toolbar and increase its value until you get the appropriate number.
 
 ![adjusting the magic wand settings](https://images.wondershare.com/filmora/article-images/2023/03/adjusting-the-magic-wand-settings.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 Alternatively, you can reduce the value to deselect the parts of your image. Once you change the value, click on the background and press the **"Delete"** button to remove it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How To Use Magic Cut To Remove The Image's Background
 
@@ -81,11 +77,11 @@ You can modify the brush size using the drop-down icon at the top-right of the w
 
 ![using magic cut to remove image background in photopea](https://images.wondershare.com/filmora/article-images/2023/03/using-magic-cut-to-remove-image-background-in-photopea.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Once satisfied with your changes, click **"OK"** to save your settings and remove the background.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Select the Subject Manually When The Image Is Detailed
 
@@ -119,15 +115,15 @@ Step3 Now, click the **"Edit"** option from the top menu and select **"Transform
 
 ![scaling the new background image](https://images.wondershare.com/filmora/article-images/2023/03/scaling-the-new-background-image.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Under the **"Layers"** header in the right panel, drag the new image layer below the object layer, and the background will be applied to your object.
 
 ## The Best Photopea's Alternative To Remove The Image's Background
 
 If you want to remove the BG of an image with just one click or of images in bulk, then Wondershare [PixCut](https://pixcut.wondershare.com/) is the best alternative option to Photopea, as it meets all these criteria. Below we've provided the reasons why this tool is the right option:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### AI-Based Background Remover
 
@@ -137,17 +133,21 @@ PixCut's Artificial Intelligence-based background remover can erase the backgrou
 
 With its Image Resizer tool, you can make your image smaller or larger in size to fulfill your requirements.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Manual Background Erase and Restore options
 
 PixCut also offers the "Erase & Restore" tool to help you remove or restore certain parts of your image after removing the background using the AI-based tool.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Background Change
 
 PixCut gives you the option to change the removed background to something more unique using the presets available on the platform or by adding your own templates/images.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Add Shadow
 
@@ -159,6 +159,14 @@ PixCut also removes watermarks from your pictures, allowing you to bypass copyri
 
 ![wondershare pixcut](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## You May Be Interested In: How To Get Free Images
 
 Hopefully, you've found this guide helpful and can now make changes to your image's background without much effort. Last but not least, we have provided you with a video how to get more free images from a user-friendly video editor - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). If you have any interests, you can watch it:
@@ -166,10 +174,6 @@ Hopefully, you've found this guide helpful and can now make changes to your imag
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -180,10 +184,6 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -215,16 +215,21 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-crafting-an-ideal-speech-translation-experience-in-google/"><u>[New] Crafting an Ideal Speech Translation Experience in Google</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-efficient-photographic-snipping-techniques-windows-11/"><u>[New] Efficient Photographic Snipping Techniques, Windows 11</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/levate-your-youtube-presence-essential-tips-for-engaging-shorts/"><u>[New] Elevate Your Youtube Presence Essential Tips for Engaging Shorts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-preserving-past-a-guide-to-digitally-archiving-faded-prints-for-2024/"><u>[New] Preserving Past A Guide to Digitally Archiving Faded Prints for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-affordable-high-definition-cams-for-adventure-enthusiasts/"><u>[Updated] In 2024, Affordable High Definition Cams for Adventure Enthusiasts</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-the-ultimate-mac-list-of-non-bandicamp-video-capture-tools/"><u>2024 Approved The Ultimate Mac List of Non-Bandicamp Video Capture Tools</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/humidity-levels/"><u>Humidity Levels</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-god-of-war-ragnarok-release-date/"><u>In 2024, God of War Ragnarok Release Date</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-ice-acceleration-showdown-at-the-olympics-2022/"><u>In 2024, Ice Acceleration Showdown at the Olympics, 2022</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-guide-to-downloading-and-installing-techkey-bluetooth-adapter-drivers-for-widows-10-7-and-t-8/"><u>Quick Guide to Downloading & Installing Techkey Bluetooth Adapter Drivers for Widows 10, 7, and T 8</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-a-filmmakers-essential-guide-to-free-royalty-free-audiosites/"><u>[New] 2024 Approved A Filmmaker's Essential Guide to Free Royalty-Free Audiosites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-masters-list-best-sierra-dvd-software/"><u>[New] Master's List Best Sierra DVD Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-prime-photo-enhancements-at-no-charge-15-to-check-out-today-for-2024/"><u>[New] Prime Photo Enhancements at No Charge #15 to Check Out Today for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-restore-pristine-photos-easily-discover-top-10-online-enhancers/"><u>[New] Restore Pristine Photos Easily Discover Top 10 Online Enhancers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-unlocking-whatsapps-vocal-messaging-secrets/"><u>[New] Unlocking WhatsApp's Vocal Messaging Secrets</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/pgrade-your-channel-description-with-ease-and-flair/"><u>[New] Upgrade Your Channel Description with Ease and Flair</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-find-your-photo-oasis-a-guide-to-pexels/"><u>[Updated] 2024 Approved Find Your Photo Oasis A Guide to Pexels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-pixel-powerhouse-expert-review-on-top-8k-tv-models/"><u>[Updated] 2024 Approved Pixel Powerhouse Expert Review on Top 8K TV Models</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-digital-picture-perfect-with-audio-touches/"><u>[Updated] Digital Picture Perfect with Audio Touches</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-embark-on-a-textual-adventure-14-spectacular-examples-for-2024/"><u>[Updated] Embark on a Textual Adventure 14 Spectacular Examples for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unraveling-the-secrets-to-gently-fading-audio-in-audacity/"><u>[Updated] Unraveling the Secrets to Gently Fading Audio in Audacity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/come-trasformare-i-tuoi-video-di-youtube-in-qualita-audio-wav-con-il-software-piu-efficace/"><u>Come Trasformare I Tuoi Video Di YouTube in Qualità Audio WAV Con Il Software Più Efficace</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-trends-that-make-your-meme-epidemic/"><u>In 2024, Trends That Make Your Meme Epidemic</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-itel-s23plus-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Itel S23+ Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-overcoming-the-pc-reset-failure-on-windows-10/"><u>Step-by-Step Guide: Overcoming the PC Reset Failure on Windows 10</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-best-video-translator-app-for-pc-you-cannot-miss/"><u>Updated In 2024, Best Video Translator App for PC You Cannot Miss</u></a></li>
 </ul></div>
 

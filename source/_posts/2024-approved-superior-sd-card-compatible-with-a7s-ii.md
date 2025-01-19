@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Superior SD Card Compatible with A7S II\""
-date: 2024-08-16T09:15:22.584Z
-updated: 2024-08-17T09:15:22.584Z
+date: 2025-01-18T16:38:45.166Z
+updated: 2025-01-19T16:14:30.881Z
 tags: 
   - screen-recording
   - ai video
@@ -20,18 +20,6 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
 # Best Memory Card for Sony A7S II
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -43,8 +31,9 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -83,8 +72,9 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -123,10 +113,11 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -151,8 +142,19 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-total-byte-requirement-for-a-days-movie-watching/"><u>[New] In 2024, Total Byte Requirement for a Day's Movie Watching</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unleashing-creativity-with-tiktok-video-tricks/"><u>[New] Unleashing Creativity with TikTok Video Tricks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-boost-video-clarity-with-iphone-zoom-tools/"><u>[Updated] 2024 Approved Boost Video Clarity with iPhone Zoom Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-delving-into-past-facebook-chronicles-with-tech-help-for-2024/"><u>[Updated] Delving Into Past Facebook Chronicles with Tech Help for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-soundtweetify-quick-audible-maker/"><u>[Updated] In 2024, SoundTweetify Quick Audible Maker</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-revolutionizing-gift-reveal-innovative-ideas/"><u>[Updated] Revolutionizing Gift Reveal Innovative Ideas</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-the-elite-list-10-websites-with-superior-vectors/"><u>2024 Approved The Elite List 10 Websites with Superior Vectors</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-laughs-the-ultimate-resource-for-free-templates-for-2024/"><u>Crafting Laughs The Ultimate Resource for Free Templates for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/experience-virtual-reality-socially-at-no-cost-with-metas-inclusive-platform/"><u>Experience Virtual Reality Socially at No Cost with Meta's Inclusive Platform</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-switch-your-protonvpn-accounts-email-with-ease-and-debunking-the-chatgpt-on-windows-real-or-imitation/"><u>How to Switch Your ProtonVPN Account's Email with Ease & Debunking the ChatGPT on Windows: Real or Imitation?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-nokia-150-2023-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Nokia 150 (2023) Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-guide-microsoft-drivers-downloading-and-updating-on-windows-11-8-and-7/"><u>Quick Guide: Microsoft Drivers Downloading and Updating on Windows 11, 8 & 7</u></a></li>
+</ul></div>
 

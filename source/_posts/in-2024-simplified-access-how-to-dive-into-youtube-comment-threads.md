@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Simplified Access  How to Dive Into YouTube Comment Threads\""
-date: 2025-01-06T12:19:12.079Z
-updated: 2025-01-13T08:05:30.873Z
+date: 2025-01-15T16:17:44.926Z
+updated: 2025-01-19T16:04:31.688Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Not only does it show your fans followers that you care about what they have to 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Advantage of YouTube comments
@@ -65,10 +65,6 @@ Step1 Below the video itself, find the comment section.
 
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
 
 Step3 Click comment to post.
@@ -88,12 +84,16 @@ Step1 Open your chosen browser, head to YouTube, then sign in to your Google/You
 ![sign in youtube account](https://images.wondershare.com/filmora/article-images/2022/11/sign-in-youtube-account.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 On the YouTube homepage, click on the three horizontal parallel lines in the top-left corner. A drop down menu appears, including the trending videos of the day, your subscriptions and your settings.
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
 
@@ -101,13 +101,13 @@ Step4 On the right side under the “Manage all history” section, click on “
 
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
 
 Step6 Make the necessary edits and choose “Save”.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Highlighted Comments and Replies on YouTube
 
@@ -136,7 +136,7 @@ Comments history also contains the link to the video where you've left the comme
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -175,22 +175,24 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-prime-picks-aggregating-the-top-video-call-software/"><u>[New] 2024 Approved Prime Picks Aggregating the Top Video Call Software</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-smart-solutions-apply-apple-watch-open-mac/"><u>[New] 2024 Approved Smart Solutions Apply Apple Watch, Open Mac</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-guide-for-premiere-pro-full-screen-viewing/"><u>[New] 2024 Approved The Ultimate Guide for Premiere Pro Full Screen Viewing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-crafting-captivating-online-titles-simplified/"><u>[New] Crafting Captivating Online Titles Simplified</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-2022s-pinnacle-moments-in-snowboarding-x/"><u>[New] In 2024, 2022'S Pinnacle Moments in Snowboarding X</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-novices-path-to-effective-telegram-advertising-for-2024/"><u>[New] The Novice’s Path to Effective Telegram Advertising for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-prime-action-mic-choices-for-clear-videos/"><u>[Updated] 2024 Approved Prime Action Mic Choices for Clear Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-snapping-multiple-images-on-iphone-in-a-blink/"><u>[Updated] 2024 Approved Snapping Multiple Images on iPhone in a Blink</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-avoid-hassles-simple-iphone-screen-sharing/"><u>[Updated] In 2024, Avoid Hassles Simple Iphone Screen Sharing</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/effortless-writing-made-easy-with-chatgpt-integration-in-ms-word-your-step-by-step-manual/"><u>Effortless Writing Made Easy with ChatGPT Integration in MS Word - Your Step by Step Manual</u></a></li>
-<li><a href="https://win11.techidaily.com/elegant-image-carousel-in-windows-unveiling-seven-essential-tactics/"><u>Elegant Image Carousel in Windows – Unveiling Seven Essential Tactics</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-asmr-a-harmonious-journey-to-wellbe-point/"><u>In 2024, ASMR A Harmonious Journey to Wellbe Point</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-creating-synergy-how-youtube-aligns-with-brands/"><u>In 2024, Creating Synergy How YouTube Aligns with Brands</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-your-ultimate-source-for-online-video-to-mp3-downloads/"><u>In 2024, Your Ultimate Source for Online Video to MP3 Downloads</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovative-backdrop-changer-toolkit-unveiled-for-2024/"><u>Innovative Backdrop Changer Toolkit Unveiled for 2024</u></a></li>
-<li><a href="https://win-bits.techidaily.com/step-by-step-guide-retrieving-information-post-iphone-factory-reset/"><u>Step-by-Step Guide: Retrieving Information Post iPhone Factory Reset</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-convert-mts-for-samsung-galaxy-xcover-6-pro-tactical-edition-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Samsung Galaxy XCover 6 Pro Tactical Edition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2022s-ice-showcase-a-look-at-the-best-performers-for-2024/"><u>[New] 2022'S Ice Showcase A Look at the Best Performers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-master-the-art-of-podcast-writing-with-expert-guidance/"><u>[New] 2024 Approved Master the Art of Podcast Writing with Expert Guidance</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-sjcam-s6-legend-action-camera-complete-review/"><u>[New] 2024 Approved SJCam S6 Legend Action Camera Complete Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unraveling-the-mysteries-of-smooth-audioshifts/"><u>[New] 2024 Approved Unraveling the Mysteries of Smooth Audioshifts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-achieve-financial-insight-the-simple-three-steps-to-assess-youtube-earning-potential-for-2024/"><u>[New] Achieve Financial Insight The Simple Three Steps To Assess YouTube Earning Potential for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-capture-composition-ideal-plugins-and-websites-to-frame-your-images-for-2024/"><u>[New] Capture Composition Ideal Plugins and Websites to Frame Your Images for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-download-free-youtube-pics-and-templates-for-2024/"><u>[New] Download Free YouTube Pics & Templates for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-enhance-your-tiktok-experience-number-alteration-basics/"><u>[New] In 2024, Enhance Your TikTok Experience Number Alteration Basics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastery-in-making-sense-top-6-persuasive-video-types/"><u>[New] Mastery in Making Sense Top 6 Persuasive Video Types</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-boost-color-accuracy-free-plus-paid-luts-for-canon-users/"><u>[Updated] 2024 Approved Boost Color Accuracy FREE + Paid LUTs for Canon Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-headset-face-off-googles-simplicity-and-samsungs-complexity/"><u>[Updated] Headset Face-Off Google's Simplicity and Samsung's Complexity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unlocking-advanced-functionalities-of-zoom-on-windows-10/"><u>[Updated] In 2024, Unlocking Advanced Functionalities of Zoom on Windows 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-optimal-introduction-editor-software-apps-for-2024/"><u>[Updated] Optimal Introduction Editor Software (Apps) for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premier-5-high-resolution-film-makers/"><u>[Updated] Premier 5 High-Resolution Film Makers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-transforming-social-media-traffic-into-revenue/"><u>2024 Approved Transforming Social Media Traffic Into Revenue</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/adding-protective-marks-mastering-image-watermarking-in-flipimage-professional-tool/"><u>Adding Protective Marks: Mastering Image Watermarking in FlipImage Professional Tool</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-a-critical-look-at-sns-hdrs-potential-and-alternatives/"><u>In 2024, A Critical Look at SNS HDR's Potential & Alternatives</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-bridging-devices-move-images-and-videos-from-pc/"><u>In 2024, Bridging Devices Move Images & Videos From PC</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Cinema Craftsmanship Guide  Top Tips for the Pros\""
-date: 2024-08-08T17:37:59.821Z
-updated: 2024-08-09T17:37:59.821Z
+date: 2025-01-14T16:12:44.288Z
+updated: 2025-01-19T16:31:10.871Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ Step 2 Now open and close the door to get smooth camera movement.
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY LED Panel
 
 You can create LED Panel at home to add light to a subject. Unfortunately, LED strips do not produce bright light when spread as a straight line. However, we can use cardboard and LED light strips to build a broader, more brilliant light. Follow the steps below to make DIY LED Panel.
@@ -58,6 +62,10 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -74,10 +82,15 @@ Step 4 Now, use this DIY Light Flag to shape or block light while filming.
 
 Let us see how it looks;
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### DIY Black Wrap
 
@@ -101,6 +114,14 @@ Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Light Reflector
 
 A reflector is a piece of glass or any reflective surface that can redirect light to a specific spot. For example, use aluminum foil to make a Light Reflector at your home.
@@ -123,9 +144,6 @@ There is a GIF attached below to understand the steps visually.
 
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Diffuse Lights With a Desk Mat
 
 You can diffuse the light using a transparent desk mat if you think there is too much light.
@@ -167,8 +185,9 @@ Here is a video showing how to record reveal movement.
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -185,18 +204,6 @@ Step 3 Move slowly to the other side of the subject while recording.
 
 A sample video attached below shows how to record 180 presentation movements.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 ## Tip 5\. Create a Barrel Roll Shot
@@ -218,6 +225,10 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -253,6 +264,21 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-mastering-the-craft-selecting-the-top-5-web-based-title-makers/"><u>[New] 2024 Approved Mastering the Craft Selecting the Top 5 Web-Based Title Makers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-capture-discord-talks-best-ways-to-record-live-streaming-sessions-for-2024/"><u>[New] Capture Discord Talks Best Ways to Record Live Streaming Sessions for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-enhancing-videos-pc-and-mobile-filter-integration-for-2024/"><u>[New] Enhancing Videos PC & Mobile Filter Integration for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-cutting-edge-design-for-beginners-premiere-pro-templates-free-for-2024/"><u>[Updated] Cutting-Edge Design for Beginners Premiere Pro Templates (Free!) For 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-digging-into-sharex-assessment-and-choices/"><u>[Updated] Digging Into ShareX Assessment & Choices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-enablingdisabling-multitasking-in-safari-devices-for-2024/"><u>[Updated] Enabling/Disabling Multitasking in Safari Devices for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-the-experts-path-to-masterful-discord-screen-broadcasting/"><u>[Updated] In 2024, The Expert's Path to Masterful Discord Screen Broadcasting</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-honor-x50-gt-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/advanced-tips-for-professionally-changing-image-hues/"><u>Advanced Tips for Professionally Changing Image Hues</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fix-your-gameplay-decode-and-overcome-destiny-2-weasel-bug/"><u>Fix Your Gameplay: Decode and Overcome Destiny 2 Weasel Bug</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-effortless-soundscape-shaping-techniques-for-pubg-strategists/"><u>In 2024, Effortless Soundscape Shaping Techniques for PUBG Strategists</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-infinix-zero-30-5g-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Infinix Zero 30 5G Phone FRP Lock</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-metrics-of-mastery-assessing-luminances-hdr-capabilities-for-2024/"><u>The Metrics of Mastery Assessing Luminance's HDR Capabilities for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/your-ultimate-compilation-budget-friendly-streamers-for-phones-for-2024/"><u>Your Ultimate Compilation Budget-Friendly Streamers for Phones for 2024</u></a></li>
+</ul></div>
 

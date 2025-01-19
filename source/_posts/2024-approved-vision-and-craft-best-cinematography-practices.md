@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Vision and Craft  Best Cinematography Practices\""
-date: 2024-08-08T17:38:36.614Z
-updated: 2024-08-09T17:38:36.614Z
+date: 2025-01-15T16:27:48.080Z
+updated: 2025-01-19T16:37:00.800Z
 tags: 
   - screen-recording
   - ai video
@@ -23,8 +23,9 @@ Do you want to experience top-tier cinematic effects but are low on budget? Unfo
 You can use common household items to uplift the quality of your videos. But how to use these tricks to get great cinematic shots? Don't worry; this article will guide you about using top cinematic/camera tips to boost your video-making experience. We are starting with the smooth camera movement.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tip 1\. Smooth Camera Movement
 
 Smooth camera movement is the most basic and vital part of the video-making process. Expensive equipment is used to get smooth camera movements on a professional level.
@@ -37,11 +38,23 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 ![smooth camera movement](https://images.wondershare.com/filmora/article-images/2022/12/smooth-camera-movement.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2 Now open and close the door to get smooth camera movement.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### DIY LED Panel
 
@@ -60,6 +73,10 @@ Step 4 Plug in the LED strip and use this LED Panel for a broader light source.
 Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### DIY Light Flag
 
@@ -117,14 +134,15 @@ Step 3 Use the reflector to redirect light to your object.
 
 There is a GIF attached below to understand the steps visually.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 ## Tip 3\. DIY Light Diffuser
 
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Diffuse Lights With a Desk Mat
 
@@ -166,18 +184,6 @@ Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -194,10 +200,11 @@ Step 3 Move slowly to the other side of the subject while recording.
 
 A sample video attached below shows how to record 180 presentation movements.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
 
@@ -218,6 +225,10 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -253,6 +264,22 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-adventure-gear-debate-gopro-hero5-black-and-garmin-virb-2e/"><u>[New] 2024 Approved Adventure Gear Debate GoPro Hero5 Black & Garmin VIRB (2E)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-entering-the-fullscreen-realm-choosing-a-cms/"><u>[New] In 2024, Entering the Fullscreen Realm Choosing a CMS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-youtube-shorts-a-guide-to-music-videos-for-2024/"><u>[New] Mastering YouTube Shorts A Guide to Music Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-render-your-social-media-footage-for-2024/"><u>[New] Render Your Social Media Footage for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cutting-edge-techniques-in-image-fusion/"><u>[Updated] 2024 Approved Cutting-Edge Techniques in Image Fusion</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-spring-screens-reimagined-a-review-of-modern-tech-for-2024/"><u>[Updated] Spring Screens Reimagined A Review of Modern Tech for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-step-by-step-shooting-stunning-timelapse-videos-on-black-hero5/"><u>[Updated] Step by Step Shooting Stunning Timelapse Videos on Black Hero5</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-uncover-the-leading-free-online-subtitle-makers-srt-for-2024/"><u>[Updated] Uncover the Leading Free Online Subtitle Makers (Srt) for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/11-fitness-youtube-video-ideas-to-keep-you-and-your-viewers-moving/"><u>11 Fitness YouTube Video Ideas to Keep You and Your Viewers Moving</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-motorola-moto-g-5g-2023-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Motorola Moto G 5G (2023) to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-premiere-virtual-artist-streams/"><u>In 2024, Premiere Virtual Artist Streams</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/striking-14-text-animation-illustrations/"><u>Striking 14 Text Animation Illustrations</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-reviews-your-ultimate-guide-to-computer-components/"><u>Tom's Tech Reviews: Your Ultimate Guide to Computer Components</u></a></li>
+<li><a href="https://fox-http.techidaily.com/youtube-ringtone-archives-essential-download-sites-revealed/"><u>YouTube Ringtone Archives Essential Download Sites Revealed</u></a></li>
+</ul></div>
 

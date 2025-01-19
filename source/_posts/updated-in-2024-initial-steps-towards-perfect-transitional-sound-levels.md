@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Initial Steps Towards Perfect Transitional Sound Levels"
-date: 2025-01-09T19:30:48.738Z
-updated: 2025-01-12T17:06:12.264Z
+date: 2025-01-12T16:17:23.813Z
+updated: 2025-01-19T16:20:57.677Z
 tags: 
   - screen-recording
   - ai video
@@ -58,10 +58,6 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 
 ![gain envelop adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/gain-envelop-adobe-audition.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now exactly, in the same way, you can go in and begin to make adjustments. Now, when you make a selection here, Audition compresses your adjustments into that selected region. You will need to be a little careful about that when working with these effects. So, you can add fades very easily at any time by clicking on the handles at the top right and left of Waveform Display, or you can use dedicated effects for the purpose.
 
 ## Part 2\. Audition Alternative to Fade Audio
@@ -74,10 +70,6 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -86,7 +78,7 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
@@ -95,13 +87,13 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
@@ -110,6 +102,10 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -122,7 +118,7 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
@@ -132,31 +128,35 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -190,16 +190,19 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-timeliness-using-current-events-to-your-advantage/"><u>[New] In 2024, Mastering Timeliness Using Current Events to Your Advantage</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-post-a-highlight-from-the-latest-audio-show-for-2024/"><u>[New] Post a Highlight From the Latest Audio Show for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ecuring-your-youtube-footage-a-quick-walkthrough/"><u>[New] Securing Your YouTube Footage A Quick Walkthrough</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-video-affiliates-a-roadmap-to-financial-growth-for-2024/"><u>[Updated] Video Affiliates A Roadmap to Financial Growth for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-crafting-captivating-igtv-cover-photos-thumbnails/"><u>2024 Approved Crafting Captivating IGTV Cover Photos (Thumbnails)</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/grab-the-apple-pencil-gen-2-for-just-95-this-labor-day-deals-and-discounts-zdnet/"><u>Grab the Apple Pencil Gen 2 for Just $95 This Labor Day - Deals & Discounts | ZDNET</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-an-mp4-on-motorola-moto-g24-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How to play an MP4 on Motorola Moto G24?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-a-look-inside-magix-pixel-management/"><u>In 2024, A Look Inside MAGIX Pixel Management</u></a></li>
-<li><a href="https://fox-http.techidaily.com/symphony-on-your-phone-best-tone-acquisition-websites/"><u>Symphony on Your Phone Best Tone Acquisition Websites</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-encyclopedia-of-touch-based-gesture-analytics-for-2024/"><u>The Encyclopedia of Touch-Based Gesture Analytics for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/transforming-communication-in-the-boardroom/"><u>Transforming Communication in the Boardroom</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-easy-steps-for-arranging-a-google-meeting/"><u>[New] Easy Steps for Arranging a Google Meeting</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-quick-steps-to-live-stream-youtube-via-obs-for-novices/"><u>[New] Quick Steps to Live Stream Youtube via OBS for Novices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultimate-thirteen-for-professional-cinematic-equipment-for-2024/"><u>[New] Ultimate Thirteen for Professional Cinematic Equipment for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-discover-how-asmr-can-enhance-your-life-quality/"><u>[Updated] Discover How ASMR Can Enhance Your Life Quality</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-actual-fix-for-exporting-srt-from-premiere-not-working/"><u>[Updated] In 2024, The Actual Fix for Exporting SRT From Premiere Not Working</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-understanding-camera-shake-in-photographyvideo/"><u>[Updated] Understanding Camera Shake in Photography/Video</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winx-dvd-ripper-platinum5/"><u>『WinX DVD Ripper Platinum』5分使用期限超え？専門的な修正方法を学ぶ</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Tecno Camon 20? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ce-video-playback-with-av1-on-youtube/"><u>Enhance Video Playback with AV1 on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-revolutionizing-photos-through-automated-hdr-techniques/"><u>In 2024, Revolutionizing Photos Through Automated HDR Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-shaping-viewers-attention-employing-jump-cuts-in-video-editing/"><u>In 2024, Shaping Viewers’ Attention Employing Jump Cuts in Video Editing</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-iphone-se-2022-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your iPhone SE (2022) Properly | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/triumph-in-windows-graphics-with-three-steps/"><u>Triumph in Windows Graphics With Three Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/virtual-efficiency-boosted-setting-up-zoom-right/"><u>Virtual Efficiency Boosted Setting Up Zoom Right</u></a></li>
 </ul></div>
 

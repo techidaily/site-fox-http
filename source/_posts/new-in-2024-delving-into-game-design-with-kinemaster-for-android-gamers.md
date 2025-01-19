@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Delving Into Game Design with KineMaster for Android Gamers"
-date: 2025-01-10T18:56:20.565Z
-updated: 2025-01-13T12:00:36.090Z
+date: 2025-01-15T16:12:44.903Z
+updated: 2025-01-19T16:00:40.292Z
 tags: 
   - screen-recording
   - ai video
@@ -40,10 +40,6 @@ KineMaster is probably the best video editing software for mobile devices having
 
 **Price:** One of the best advantages of KineMaster is that it is available in free and paid versions for its users, but the question arises here. What is the difference between them? Let us tell you if you are using its free version. There are a few restrictions like you cannot access highly advanced editing tools, popular filters, effects, stickers, etc. The biggest con among them is they will put their watermark on your videos, which may affect their looks. But if you are using their paid version, you have unlimited access to everything, and there will also be no watermark on your exported videos. Also, in its free version, you may face some ads, which will not be if you use its paid version. However, you can download its cracked version from [RevDl](https://www.revdl.com/kinemaster-pro-mod-apk-download9.html/)to get unlimited access to everything without ads.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Key features of the KineMaster App on Android
 
 Now let us discuss some of its key features below:
@@ -53,10 +49,6 @@ Now let us discuss some of its key features below:
 Using KineMaster, you guys will get access to a library of unlimited video templates, which you can use in your videos to make them look fascinating, unique, and unforgettable. This feature of KineMaster will surely help you make incredible videos quickly and effectively. One con of this feature is that not all the templates are not available for free. For some, you have to get their premium version.
 
 ![premium version](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Chroma Key:**
 
@@ -70,10 +62,6 @@ The unique filters of this application would be beneficial for those who want to
 
 ![special filters](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. How to use KineMaster App to edit photos?
 
 Now that you have completely understood the KineMaster app, and its key features let us discuss how we can use it.
@@ -84,15 +72,15 @@ First, we will learn how to import the content to KineMaster. For this purpose, 
 
 ![import](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Basic editing tools:**
 
 You can follow these instructions to do the basic video editing of your videos in KineMaster. For cropping and trimming, first, you must select the clip you want to crop or trim by clicking on it. A menu will appear on your right side from which you can choose the pan and zoom or trim and split option which one you want to do. And for adding text or stickers to your videos, you should click on the layer option and then on the text or sticker option. However, to download some more popular stickers, you can use their assets store, but not all of them would be free there. Some are premium also. Rest all these basic editing features are available in its free version.
 
 ![basic editing tools](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **Filters and effects:**
 
@@ -106,15 +94,15 @@ If you want to use this unique feature of the KineMaster app, then, first of all
 
 ![chroma key](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Export:**
 
 We'll talk about exporting your edited films from it now. For this, you must click on the save and share option on the upper right of your mobile's screen. Then it will take you to a menu where you must select your video exporting resolution and bitrate. After adjusting all these according to your choice, you should click on the export button at the bottom. Unlike other applications, KineMaster does not have any restrictions on its exporting feature.
 
 ![export](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4\. Advantages and Disadvantages of KineMaster App for Android
 
@@ -129,10 +117,6 @@ KineMaster has more advanced and professional editing tools than any other mobil
 **Best Export Quality:**
 
 Using KineMaster, you can export your videos in almost all the resolutions you want. Like QHD, FHD, HD, or SD, even if you are using its free version, which most mobile video editing applications do not allow in their free versions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Disadvantages:**
 
@@ -156,7 +140,11 @@ As all of us know that KineMaster is a mobile video editing application and is n
 ![download kinemaster for pc](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6\. The best KineMaster App Alternative on Desktop
@@ -195,15 +183,15 @@ Using KineMaster, you guys will get access to a library of unlimited video templ
 
 ![premium version](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **Chroma Key:**
 
 Using this feature of KineMaster, you can easily change or remove the background of your videos. Content creators widely use this feature to add FX effects to their videos.
 
 ![chroma key](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Special filters:**
 
@@ -221,6 +209,10 @@ First, we will learn how to import the content to KineMaster. For this purpose, 
 
 ![import](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Basic editing tools:**
 
 You can follow these instructions to do the basic video editing of your videos in KineMaster. For cropping and trimming, first, you must select the clip you want to crop or trim by clicking on it. A menu will appear on your right side from which you can choose the pan and zoom or trim and split option which one you want to do. And for adding text or stickers to your videos, you should click on the layer option and then on the text or sticker option. However, to download some more popular stickers, you can use their assets store, but not all of them would be free there. Some are premium also. Rest all these basic editing features are available in its free version.
@@ -228,7 +220,7 @@ You can follow these instructions to do the basic video editing of your videos i
 ![basic editing tools](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Filters and effects:**
@@ -248,6 +240,10 @@ If you want to use this unique feature of the KineMaster app, then, first of all
 We'll talk about exporting your edited films from it now. For this, you must click on the save and share option on the upper right of your mobile's screen. Then it will take you to a menu where you must select your video exporting resolution and bitrate. After adjusting all these according to your choice, you should click on the export button at the bottom. Unlike other applications, KineMaster does not have any restrictions on its exporting feature.
 
 ![export](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4\. Advantages and Disadvantages of KineMaster App for Android
 
@@ -273,10 +269,6 @@ However, KineMaster has the best video editing features, but they are not entire
 
 If you are a free user of it, you have to bear their watermark on your exported videos, which may affect the quality and the looks of your videos. However, using the RevDl website, you can download its apk mod, using which you can export your videos without a watermark.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5\. How to download KineMaster for PC?
 
 As all of us know that KineMaster is a mobile video editing application and is not available for desktops, but still, if you guys want to use it on desktop, then you should follow the following instructions:
@@ -288,6 +280,10 @@ As all of us know that KineMaster is a mobile video editing application and is n
 
 ![download kinemaster for pc](https://images.wondershare.com/filmora/article-images/2022/09/kinemaster-app-on-android-review-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 6\. The best KineMaster App Alternative on Desktop
 
 Although you can also use the KineMaster app on a desktop by following the instructions above, it can still not compete with any desktop video editor as they have much more powerful and advanced editing tools. So, it's better to use any of its alternatives on the desktop instead of using it.
@@ -297,6 +293,10 @@ So, the question now is: Which of its desktop alternatives is the best? It's cal
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -330,24 +330,19 @@ So, in the end, today's article concludes that KineMaster is undoubtedly one of 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-deciphering-average-income-the-podcasters-guide/"><u>[New] Deciphering Average Income The Podcaster's Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-creative-endeavors-while-immersed-in-audio-stories/"><u>[New] In 2024, Creative Endeavors While Immersed in Audio Stories</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-critical-review-of-samsungs-digital-photography-advancements/"><u>[New] In 2024, Critical Review of Samsung's Digital Photography Advancements</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-essential-tips-for-navigating-telegram-web/"><u>[New] In 2024, Essential Tips for Navigating Telegram Web</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-exploring-microsofts-hololens-a-hologram-horizon/"><u>[New] In 2024, Exploring Microsoft's HoloLens A Hologram Horizon</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unlocking-smooth-authentication-on-iphone-x-mending-face-id/"><u>[New] Unlocking Smooth Authentication on iPhone X Mending Face ID</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-insightful-ways-of-gathering-photographic-elements/"><u>[Updated] 2024 Approved Insightful Ways of Gathering Photographic Elements</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-top-picks-superior-iphone-tone-creators-for-2024/"><u>[Updated] Top Picks Superior iPhone Tone Creators for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/apple-discontinues-premium-finewoven-series-embraces-new-era-with-beats-protective-cases-tech-news-by-zdnet/"><u>Apple Discontinues Premium FineWoven Series: Embraces New Era with Beats Protective Cases | Tech News by ZDNet</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-advice-on-how-to-correctly-address-the-phase0exception-code-stop-0x00000078/"><u>Expert Advice on How to Correctly Address the PHASE0_EXCEPTION Code: Stop 0X00000078</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-canvas-clearance-techniques-for-uncluttered-image-frames/"><u>In 2024, Canvas Clearance Techniques for Uncluttered Image Frames</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/reviving-your-pc-with-sfc-and-dism-on-windows-11-expert-tips-for-system-recovery/"><u>Reviving Your PC with SFC & DISM on Windows 11: Expert Tips for System Recovery</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-ultimate-showdown-deciding-between-a-macbook-pro-or-macbook-air-for-your-needs-expert-insights-zdnet/"><u>The Ultimate Showdown: Deciding Between a MacBook Pro or MacBook Air for Your Needs - Expert Insights | ZDNET</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-ultimate-windows-11-video-editing-showcase/"><u>The Ultimate Windows 11 Video Editing Showcase</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-apps-and-online-tools-to-track-poco-x6-pro-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Poco X6 Pro Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-samsung-electronics-bargains-during-prime-shopping-event/"><u>Top Samsung Electronics Bargains During Prime Shopping Event</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/troubleshooting-and-resolving-issues-with-your-lagging-and-stuttering-computer-system/"><u>Troubleshooting and Resolving Issues with Your Lagging and Stuttering Computer System</u></a></li>
-<li><a href="https://fox-http.techidaily.com/xsplit-repository-direct-gaming-analysis/"><u>XSplit Repository Direct Gaming Analysis</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-make-good-youtube-banner-dos-and-donts/"><u>[New] 2024 Approved How To Make Good YouTube Banner - Dos and Don’ts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-lg-27ud68-4k-freesync-monitor-review-for-2024/"><u>[New] LG 27UD68 4K FreeSync Monitor Review for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastery-guide-to-flawless-srt-file-construction/"><u>[New] Mastery Guide to Flawless SRT File Construction</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-a-beginners-manual-for-phantoms-reverse-footage/"><u>[Updated] 2024 Approved A Beginner's Manual for Phantom's Reverse Footage</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-digital-still-extraction-windows-11-guide-for-videos/"><u>[Updated] Digital Still Extraction Windows 11 Guide for Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-from-monochrome-to-vibrancy-top-11-video-coloring-strategies/"><u>[Updated] From Monochrome to Vibrancy Top 11 Video Coloring Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-toolwiz-photos-app-complete-review-2023/"><u>[Updated] Toolwiz Photos App - Complete Review 2023</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/configuring-windows-11-biometrics-permissions/"><u>Configuring Windows 11 Biometrics Permissions</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-maximize-your-youtube-channels-financial-potential/"><u>In 2024, Maximize Your YouTube Channel's Financial Potential</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/private-executives-online-workshop-unlocking-exclusive-strategies-in-the-insurance-sector/"><u>Private Executives' Online Workshop: Unlocking Exclusive Strategies in the Insurance Sector</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionizing-visual-tasks-the-best-of-chatgpt-vision/"><u>Revolutionizing Visual Tasks: The Best of ChatGPT Vision</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-ranking-non-lenovo-non-macbook-laptop-shines-in-productivity-tests-insights/"><u>Top-Ranking Non-Lenovo, Non-MacBook Laptop Shines in Productivity Tests - Insights</u></a></li>
 </ul></div>
 

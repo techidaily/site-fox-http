@@ -1,7 +1,7 @@
 ---
 title: "Subtle Sonic Reduction in the World of Audio Editing for 2024"
-date: 2025-01-10T17:42:12.438Z
-updated: 2025-01-13T13:00:23.177Z
+date: 2025-01-14T16:29:39.107Z
+updated: 2025-01-19T16:15:52.517Z
 tags: 
   - screen-recording
   - ai video
@@ -27,16 +27,12 @@ You can easily apply professional fades to your audio files with Audacity fade o
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Linear Fade in/out
 
 You may apply linear fades, a straightforward fade option, to any segment of your music. Alternatively, you might apply it to the full audio file. Linear fades come in two varieties. Fade-in and Fade-out are the two varieties. Any section of your audio that you apply a fade-in to will get muted and return to its original volume. Additionally, if you activate the fade-out feature in your audio, the audio will transition from its original volume to total quiet.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Steps to Use Linear Fade in/out:**
@@ -49,9 +45,17 @@ By selecting the audio segment, you wish to fade out and selecting Effect > Fade
 
 ![liner fade in audacity](https://images.wondershare.com/filmora/article-images/2022/07/liner-fade-in-audacity.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. Studio Fade Out
 
 This effect is shown by Audacity as a curve that resembles the letter S. It results in a very gentle fading. After the first boom, there is utter quiet. It's a sound that actually gives off the impression of fading away over time. Using the repeat last effect, you can quickly repeat this fading option. Additionally, Ctrl + R serves as the shortcut for the same.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **How to Use Studio Fade Out:**
 
@@ -60,11 +64,7 @@ Choose your audio segment, go to the Effect menu, slide to the bottom, and pick 
 ![studio fade out audacity](https://images.wondershare.com/filmora/article-images/2022/07/studio-fade-out-audacity.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. Adjustable Fade
@@ -79,12 +79,16 @@ A dialog box will show up on the screen when you choose the customizable fade op
 ![adjustable fade audio audacity](https://images.wondershare.com/filmora/article-images/2022/07/adjustable-fade-audio-audacity.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4\. Crossfades Audacity
 
 There are two choices available when using this effect. You have two options: either manually make a crossfade of your own, or utilize one of the pre-existing crossfades in Audacity. In Audacity, there are two crossfades that are accessible. Crossfade clips and Crossfade tracks are what they are. Crossfade clips make it easier to switch between two distinct clips. Additionally, crossfade tracks aid in crossfading between two audio tracks and are more exact.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Steps to Use Crossfades:**
 
@@ -95,10 +99,6 @@ Select the area to be crossfaded using the Selection tool, and then click Effect
 ![crossafade audio with audacity](https://images.wondershare.com/filmora/article-images/2022/07/crossafade-audio-with-audacity.jpg)
 
 Use your Selection tool to organize the clips such that a crossfade will be applied between two clips on different tracks. Go to Effect > Crossfade Songs, place the cursor where you want the fade to begin, then drag it across the tracks you wish to blend.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5\. Alternative Way to Fade Audio
 
@@ -132,6 +132,10 @@ The first step in this process is to learn how to use Filmora to start fading in
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
 
 ##### Step5 Export the Modified File
@@ -170,10 +174,6 @@ The first step in this process is to learn how to use Filmora to start fading in
 
 ![fade in or fade out audio](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To finish the fade-out, click and drag the other icon in Filmora to the necessary duration. You may hear the music by playing the file within the timeline of the Filmora preview layout.
 
 ##### Step5 Export the Modified File
@@ -183,7 +183,7 @@ The last step consists of downloading your modified file to your PC and storing 
 ![export the modified file](https://images.wondershare.com/filmora/guide/get-started-with-filmora-05.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -214,19 +214,20 @@ You may access a variety of tools and services on the platform known as Audacity
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-unparalleled-hands-on-gear-in-the-vr-world/"><u>[New] 2024 Approved Unparalleled Hands-On Gear in the VR World</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-craft-stunning-photos-with-color-correction/"><u>[New] In 2024, Craft Stunning Photos with Color Correction</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-creating-compelling-instagram-puzzles/"><u>[Updated] 2024 Approved A Step-by-Step Guide to Creating Compelling Instagram Puzzles</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-enhance-web-presentations-top-12-html5-video-platforms-for-2024/"><u>[Updated] Enhance Web Presentations Top 12 HTML5 Video Platforms for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-how-to-capture-motion-blur-photos-with-iphone/"><u>[Updated] In 2024, How to Capture Motion Blur Photos with iPhone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-skilled-pilots-choice-selecting-top-5-pro-drones/"><u>In 2024, Skilled Pilots' Choice - Selecting Top 5 Pro Drones</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-speeding-up-your-periscope-streams-effortlessly/"><u>In 2024, Speeding Up Your Periscope Streams Effortlessly</u></a></li>
-<li><a href="https://fox-http.techidaily.com/iphone-and-ipads-best-video-player-compilation-top-10/"><u>IPhone & iPad's Best Video Player Compilation (Top 10)</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/overcoming-non-detectable-obs-camera-link-for-2024/"><u>Overcoming Non-Detectable OBS Camera Link for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/pioneering-visual-stunts-from-the-ground-up/"><u>Pioneering Visual Stunts From the Ground Up</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-infinix-note-30-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/visual-language-warp-the-photographic-transformers-guide-for-2024/"><u>Visual Language Warp The Photographic Transformer's Guide for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://win-best.techidaily.com/pcx-bmp-movavi/"><u>무료 PCX에서 BMP로 쉽게 전환하세요: Movavi의 사용자 친화적인 해상도 제공</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-top-10-apps-for-live-sports-and-football-streaming-for-2024/"><u>[New] Top 10 Apps for Live Sports & Football Streaming for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastering-free-translation-top-8-choices-revealed/"><u>[Updated] 2024 Approved Mastering Free Translation Top 8 Choices Revealed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-discover-a-must-have-voice-transform-tool-no-cost-maximum-impact/"><u>[Updated] Discover a Must-Have Voice Transform Tool - No Cost, Maximum Impact</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-dive-into-camtasias-ken-burns-feature-rich-tutorial/"><u>[Updated] In 2024, Dive Into Camtasia’s Ken Burns Feature-Rich Tutorial</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-mastering-your-photos-a-comprehensive-guide-to-facetune/"><u>[Updated] In 2024, Mastering Your Photos A Comprehensive Guide to Facetune</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-seamless-macos-sierra-integration-techniques/"><u>[Updated] In 2024, Seamless MacOS Sierra Integration Techniques</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-recommendation-best-websites-to-download-game-of-thrones-ringtones/"><u>[Updated] Recommendation Best Websites to Download Game of Thrones Ringtones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-seamless-integration-with-picture-in-picture-mode-for-2024/"><u>[Updated] Seamless Integration with Picture-In-Picture Mode for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-top-10-lifters-drones-that-move-mountains-for-2024/"><u>[Updated] The Top 10 Lifters Drones That Move Mountains for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unleash-creativity-a-comprehensive-guide-to-movie-maker-on-windows-11-for-2024/"><u>[Updated] Unleash Creativity A Comprehensive Guide to Movie Maker on Windows 11 for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/save-big-on-tech-with-a-bundle-deal-iphone-ipad-apple-watch-airpods-and-mac-at-the-cost-of-just-one-vision-pro-discover-now/"><u>Save Big on Tech with a Bundle Deal: IPhone, iPad, Apple Watch, AirPods & Mac at the Cost of Just One Vision Pro - Discover Now!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-6-causes-of-iphone-sluggishness-and-solutions-to-speed-it-up/"><u>Top 6 Causes of iPhone Sluggishness & Solutions to Speed It Up</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-choice-for-capturing-quality-content-on-youtube/"><u>Top Choice for Capturing Quality Content on YouTube</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/vn-video-editor-on-pc-features-pros-and-cons-for-2024/"><u>VN Video Editor on PC Features, Pros, and Cons for 2024</u></a></li>
 </ul></div>
 

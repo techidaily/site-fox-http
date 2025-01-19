@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Key Tactics for Testimonial Videos"
-date: 2025-01-09T00:36:31.256Z
-updated: 2025-01-13T11:52:21.093Z
+date: 2025-01-13T16:29:25.652Z
+updated: 2025-01-19T16:16:54.225Z
 tags: 
   - screen-recording
   - ai video
@@ -26,12 +26,16 @@ If you want to learn how to create video testimonials that convert, then this po
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Identify Your Perfect Customer
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The first key tactic to creating a perfect testimonial video is identifying your perfect customer. The more you know about the type of person who will benefit the most from using your product or service, the better you can tailor your video content to speak directly to them.
 
@@ -39,10 +43,6 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Ask Authentic Questions
 
@@ -67,6 +67,10 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
 
 When asking someone for their thoughts on a topic or issue, there's always going to be some variation in how people respond. Some will talk about personal experiences; others will talk about what they've learned from others' experiences; still, others might share some advice for future generations who might encounter similar problems. The key here is that your main objective is not necessarily the information itself (though this can help), but rather the emotion behind it—what effect does this experience have on your audience?
@@ -77,28 +81,24 @@ Asking open-ended questions allows people greater freedom when responding—and 
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Really Listen to Your Prospects
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Beware of Skeptics and Negative Nellies
@@ -143,18 +143,20 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-arttoon-masterpiece-analysis-and-guidebook-2024/"><u>[New] ArtToon Masterpiece Analysis & Guidebook 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-innovative-question-collection-for-lively-podcast-discussions-for-2024/"><u>[New] Innovative Question Collection for Lively Podcast Discussions for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nsiders-look-at-top-9-free-platforms-for-designing-youtube-logos-for-2024/"><u>[New] Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-premium-hardware-choices-for-uhd-editors-for-2024/"><u>[New] Premium Hardware Choices for UHD Editors for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-finest-5k-monitors-our-choice-8-edition-for-2024/"><u>[New] The Finest 5K Monitors Our Choice, #8 Edition for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-content-strategy-after-the-facebook-revamp-for-2024/"><u>[Updated] Mastering Content Strategy After the Facebook Revamp for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-apple-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your Apple iPhone 15 Pro Max</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-the-ultimate-guide-to-free-video-cutting-and-joining-software/"><u>New The Ultimate Guide to Free Video Cutting and Joining Software</u></a></li>
-<li><a href="https://fox-http.techidaily.com/streamlined-techniques-for-accumulating-large-tiktok-datasets-for-2024/"><u>Streamlined Techniques for Accumulating Large TikTok Datasets for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tp-links-lightweight-and-easy-to-carry-travel-router-wr902ac-uninterrupted-internet-anywhere-anytime/"><u>TP-Link's Lightweight and Easy-to-Carry Travel Router (WR902AC): Uninterrupted Internet Anywhere, Anytime</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/watching-transformers-a-step-by-step-movie-marathon-plan/"><u>Watching Transformers: A Step-by-Step Movie Marathon Plan</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Samsung Galaxy A15 4G? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-meta-favors-a-later-date-for-full-e2e-encryption-by-default/"><u>Why Meta Favors a Later Date for Full E2E Encryption by Default</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-13-ways-to-fine-tune-colors-in-photoshop-effortlessly/"><u>[New] 2024 Approved 13 Ways to Fine-Tune Colors in Photoshop Effortlessly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-best-practices-in-photo-captioning-tools/"><u>[New] 2024 Approved Best Practices in Photo Captioning Tools</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-understanding-the-impact-of-aurora-hdr-on-photography/"><u>[New] In 2024, Understanding the Impact of Aurora HDR on Photography</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insta-flip-techniques-rotate-videos-for-max-impact/"><u>[New] Insta-Flip Techniques Rotate Videos for Max Impact</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-9-key-platforms-for-high-quality-livestreaming/"><u>[Updated] 2024 Approved 9 Key Platforms for High-Quality Livestreaming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-essential-cine-gear-for-every-aspiring-filmmaker/"><u>[Updated] 2024 Approved Essential Cine Gear for Every Aspiring Filmmaker</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-silver-medalists-best-dvd-tools-for-sierra-os/"><u>[Updated] 2024 Approved Silver Medalists Best DVD Tools for Sierra OS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-in-depth-review-mastering-facetunes-complete-features/"><u>[Updated] In 2024, In-Depth Review Mastering Facetune's Complete Features</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/first-impressions-of-apples-m3-macbook-air-top-3-standout-features-i-discovered-techdigest/"><u>First Impressions of Apple's M3 MacBook Air: Top 3 Standout Features I Discovered | TechDigest</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-poco-x6-pro-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Poco X6 Pro FRP Locks</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guide-effortless-installation-of-the-most-recent-ios-system-upgrade/"><u>Guide: Effortless Installation of the Most Recent iOS System Upgrade</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-unleash-creative-potential-the-ultimate-hdr-guide/"><u>In 2024, Unleash Creative Potential The Ultimate HDR Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/in-depth-analysis-of-the-pixio-px277-oled-gaming-display-unearthing-a-hidden-gem/"><u>In-Depth Analysis of the Pixio PX277 OLED Gaming Display: Unearthing a Hidden Gem</u></a></li>
+<li><a href="https://fox-http.techidaily.com/reviewing-the-gopro-hero5-session-series-for-2024/"><u>Reviewing the GoPro Hero5 Session Series for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/trasforma-file-avi-in-disco-dvd-con-metodi-economici-ed-efficienti-incluso-unopzione-gratuita/"><u>Trasforma File AVI in Disco DVD Con Metodi Economici Ed Efficienti, Incluso Un'Opzione Gratuita</u></a></li>
 </ul></div>
 

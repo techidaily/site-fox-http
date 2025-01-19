@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming Windows 10 Photo Viewer Challenges  Quick Fixes\""
-date: 2025-01-10T23:38:11.734Z
-updated: 2025-01-13T03:00:42.024Z
+date: 2025-01-13T16:20:22.188Z
+updated: 2025-01-19T16:10:17.879Z
 tags: 
   - screen-recording
   - ai video
@@ -45,14 +45,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -69,6 +65,10 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -82,10 +82,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -97,7 +93,7 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
@@ -129,10 +125,14 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,19 +159,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-image-innovation-for-windows-and-mac-photo-to-cartoon-software/"><u>[New] 2024 Approved Image Innovation for Windows & Mac Photo-to-Cartoon Software</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-brief-blend-of-film-blueprints/"><u>[New] Brief Blend of Film Blueprints</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-allinone-vmix-companion/"><u>[New] In 2024, AllInOne VMix Companion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-youtube-presence-with-studio-insights/"><u>[New] In 2024, Elevate Your YouTube Presence with Studio Insights</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-exclusive-strategies-for-photovideo-importers-in-win11/"><u>[New] In 2024, Exclusive Strategies for Photo/Video Importers in Win11</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-inshot-free-pc-video-editing-solutions/"><u>[New] In 2024, Inshot-Free PC Video Editing Solutions</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unlock-the-secret-to-insta-cash-with-our-guidebook/"><u>[New] In 2024, Unlock the Secret to Insta Cash with Our Guidebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-sonys-blu-ray-revolution-s6700-updates-for-2024/"><u>[New] Sony's Blu-Ray Revolution S6700 Updates for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-how-to-shoot-underwater-video-easily-with-7-tips/"><u>[Updated] How to Shoot Underwater Video Easily (with 7 Tips)</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-the-latest-sas-driver-version-for-windows-a-step-by-step-guide/"><u>Download the Latest SAS Driver Version for Windows: A Step-by-Step Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/english-word-woes-the-definitive-guide-to-common-mispronunciations-ranked/"><u>English Word Woes - The Definitive Guide to Common Mispronunciations Ranked</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Vivo Y200e 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/shh-9-secrets-of-simple-stock-editing/"><u>Shh! 9 Secrets of Simple Stock Editing</u></a></li>
-<li><a href="https://techidaily.com/things-you-dont-know-about-nokia-c12-plus-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Nokia C12 Plus Reset Code | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-leading-workplace-cloud-reservoirs/"><u>[New] In 2024, Leading Workplace Cloud Reservoirs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-purestream-app-audit-report/"><u>[New] In 2024, PureStream App Audit Report</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-your-videos-potential-with-smooth-narrative-flows/"><u>[New] Unlocking Your Videos' Potential with Smooth Narrative Flows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-streamlining-your-meetings-using-zoom-with-win11/"><u>[Updated] 2024 Approved Streamlining Your Meetings Using Zoom with Win11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-superior-strategies-converting-visual-content-on-pinterest-to-audio/"><u>[Updated] 2024 Approved Superior Strategies Converting Visual Content on Pinterest To Audio</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-understanding-2023s-push-for-shorter-more-impactful-facebook-videos/"><u>[Updated] 2024 Approved Understanding 2023'S Push for Shorter, More Impactful Facebook Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-freememogen-your-guide-to-free-memes/"><u>[Updated] In 2024, FreeMemoGen Your Guide to FREE Memes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-lengthy-video-to-captivating-animation-create-gifs-with-ease/"><u>[Updated] In 2024, From Lengthy Video to Captivating Animation - Create Gifs with Ease</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-path-to-pure-audio-pazera-free-tool-review/"><u>[Updated] In 2024, The Path to Pure Audio Pazera Free Tool Review</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-synchronize-and-schedule-seamless-entry-into-any-zoom-session-from-android/"><u>[Updated] Synchronize and Schedule Seamless Entry Into Any Zoom Session From Android</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveiling-the-secrets-buying-a-high-quality-360-camera-today-for-2024/"><u>[Updated] Unveiling the Secrets Buying a High-Quality 360 Camera Today for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easy-methods-for-converting-dvd-files-to-mp4-on-macos-and-windows-11-platforms/"><u>Easy Methods for Converting DVD Files to MP4 on macOS and Windows 11 Platforms</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigate-your-next-build-with-confidence-using-tips-from-toms-hardware-experts/"><u>Navigate Your Next Build with Confidence Using Tips From Tom's Hardware Experts</u></a></li>
+<li><a href="https://discover-able.techidaily.com/simple-steps-securely-preserve-your-microsoft-outlook-contacts-with-a-reliable-backup-strategy/"><u>Simple Steps: Securely Preserve Your Microsoft Outlook Contacts with a Reliable Backup Strategy</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-guide-how-to-overcome-the-windows-11-update-error-error-code-0x802e8007/"><u>Troubleshooting Guide: How to Overcome the Windows 11 Update Error (Error Code 0X802e8007)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-the-warmth-of-night-a-thorough-analysis-of-minecrafts-campfire-tales-skin-collection/"><u>Unveiling the Warmth of Night: A Thorough Analysis of Minecraft's Campfire Tales Skin Collection</u></a></li>
 </ul></div>
 

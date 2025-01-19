@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Evolution Continues  IPhone X's Photographic Advancements\""
-date: 2024-12-04T16:36:03.854Z
-updated: 2024-12-07T16:02:07.836Z
+date: 2025-01-16T16:41:08.241Z
+updated: 2025-01-19T16:26:05.756Z
 tags: 
   - screen-recording
   - ai video
@@ -38,13 +38,13 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
 
@@ -53,11 +53,11 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -78,20 +78,20 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,18 +127,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-enhance-your-content-strategy-discover-the-power-of-social-blade-and-youtube-data/"><u>[New] Enhance Your Content Strategy - Discover the Power of Social Blade and YouTube Data</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-who-takes-the-crown-in-free-video-playback-vlc-vs-mpc/"><u>[New] In 2024, Who Takes the Crown in Free Video Playback? VLC Vs. MPC</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-the-dark-we-trust-iphone-photography/"><u>[New] In the Dark We Trust, iPhone Photography</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-xbox-gamers-guide-4-proven-screen-recording-methods/"><u>[Updated] 2024 Approved Xbox Gamers' Guide 4 Proven Screen Recording Methods</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-a-step-further-elite-video-editing-hacks-for-tiktok/"><u>[Updated] A Step Further Elite Video Editing Hacks for TikTok</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-acer-display-drivers-step-by-step-guide/"><u>Download Acer Display Drivers: Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-a-beginners-blueprint-for-iphone-reflection-photography/"><u>In 2024, A Beginner's Blueprint for iPhone Reflection Photography</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Tecno Spark Go (2024)? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-nokia-c22-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Nokia C22 Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-illusions-manipulating-past-and-future-events/"><u>In 2024, Illusions Manipulating Past & Future Events</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-windows-10-audio-tips-essential-recording-methods/"><u>In 2024, Windows 10 Audio Tips Essential Recording Methods</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/selecting-superior-free-online-srt-translation-services-tips-and-tricks/"><u>Selecting Superior Free Online SRT Translation Services Tips & Tricks</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/ways-to-stop-parent-tracking-your-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Ways to stop parent tracking your Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-8-virtual-backdrops-for-macbook-upgrades-for-2024/"><u>[Updated] Best 8 Virtual Backdrops for MacBook Upgrades for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-branding-beats-technicalities-focus-on-your-streams-signature-style-for-2024/"><u>[Updated] Branding Beats Technicalities Focus on Your Stream's Signature Style for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-visual-guide-to-subtitling-techniques-for-effective-dialogue-placement/"><u>[Updated] In 2024, A Visual Guide to Subtitling Techniques for Effective Dialogue Placement</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-class-adding-podcasts-to-instagram-features-for-2024/"><u>[Updated] Master Class Adding Podcasts to Instagram Features for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-perfecting-obs-broadcasts-for-facebook-audience/"><u>[Updated] Perfecting OBS Broadcasts for Facebook Audience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-future-is-in-your-cloud-price-rankings-and-bargains-2024/"><u>[Updated] The Future Is in Your Cloud Price Rankings & Bargains 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-equipment-list-for-homebound-filmmakers/"><u>2024 Approved Equipment List for Homebound Filmmakers</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-choice-video-capture-apps-iphone/"><u>2024 Approved Top Choice Video Capture Apps iPhone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/cookiebot-driven-growth-unleashing-potential-through-advanced-marketing-automation-tools/"><u>Cookiebot-Driven Growth: Unleashing Potential Through Advanced Marketing Automation Tools</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-2022-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE (2022) To Others Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-elevate-storytelling-free-soundtrack-options-available/"><u>In 2024, Elevate Storytelling - Free Soundtrack Options Available!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-power-play-joining-a-music-company-network-in-the-age-of-streaming/"><u>In 2024, The Power Play Joining a Music Company Network in the Age of Streaming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-ultimate-checklist-for-finding-film-specialists/"><u>In 2024, The Ultimate Checklist for Finding Film Specialists</u></a></li>
+<li><a href="https://fox-http.techidaily.com/key-top-5-ultra-light-action-recording-models/"><u>Key Top 5 Ultra-Light Action Recording Models</u></a></li>
+<li><a href="https://windows11.techidaily.com/which-browser-takes-up-less-memory-and-cpu-on-windows-macos/"><u>Which Browser Takes Up Less Memory and CPU On Windows, macOS?</u></a></li>
 </ul></div>
 

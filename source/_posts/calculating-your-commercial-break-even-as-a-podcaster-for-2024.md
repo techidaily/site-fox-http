@@ -1,7 +1,7 @@
 ---
 title: "\"Calculating Your Commercial Break-Even as a Podcaster for 2024\""
-date: 2024-08-08T17:37:34.833Z
-updated: 2024-08-09T17:37:34.833Z
+date: 2025-01-15T16:18:40.143Z
+updated: 2025-01-19T16:28:10.155Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ As a bonus, podcasts aren't expensive, and you can produce a high-quality episod
 
 The secret? Make sure your podcast is something that people want to listen to. If people are listening, you can make money selling ads and subscriptions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How Much Money Do Podcasters Make?
 
 Podcaster earnings vary widely. Most people who have made their first million by podcasting make no more than half a million dollars a year.
@@ -78,8 +82,9 @@ Many people would love to get paid to talk about their passions. That's pretty m
 We'll show you a bunch of ways podcasters earn a living doing something they love. Let's take a look…
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Sponsorship
 
 In a podcast, a sponsor is the first thing you need to think about when seeking to make money from your podcast. With so many podcast ad networks, there are many options for advertisers wanting to advertise on podcasts. Podcasters hire networks, negotiate terms, and secure content on their behalf.
@@ -87,6 +92,14 @@ In a podcast, a sponsor is the first thing you need to think about when seeking 
 You need at least 5,000 listeners per month to be accepted by Midroll or Authentic. Suppose you don't have a minimum number of listeners, you can always connect directly with sponsors, but your niche audience must be a perfect fit to get accepted.
 
 ![marketing charts](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Complementary products
 
@@ -107,6 +120,10 @@ Crowdfunding websites such as Kickstarter, GoFundMe, and Indiegogo allow people 
 The downside is that, if you reach your fundraising goal, your funds may run out before you’re ready to launch your project.
 
 ![indiegogo funds](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Affiliate
 
@@ -134,6 +151,10 @@ So many people are trying to figure out the best ways to make money online. So w
 | [Dave Ramsey Show](https://www.ramseysolutions.com/shows/the-ramsey-show)       | $10 million/annually  |
 | [Karen Kilgariff and Georgia Hardstark](https://myfavoritemurder.com/)          | $15 million/annually  |
 | [Joe Rogan](https://open.spotify.com/artist/0bawsIe2P8ykB6psGv81P9)             | $30 million/annually  |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -153,9 +174,6 @@ As a bonus, podcasts aren't expensive, and you can produce a high-quality episod
 
 The secret? Make sure your podcast is something that people want to listen to. If people are listening, you can make money selling ads and subscriptions.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How Much Money Do Podcasters Make?
 
 Podcaster earnings vary widely. Most people who have made their first million by podcasting make no more than half a million dollars a year.
@@ -182,9 +200,6 @@ If you have 5000 download/listeners per episode:
 * $2450/month from course sale
 * **Total = $5000/month**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** These numbers are only speculative and assumptions. Depending on various factors, you could make anywhere from $1,000-$50,000 or more. That includes your reputation, strategy, and niche.
@@ -205,6 +220,10 @@ You need at least 5,000 listeners per month to be accepted by Midroll or Authent
 
 ![marketing charts](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Complementary products
 
 As a podcaster, you are your merchant. There are some obvious items that you need to sell, such as t-shirts, caps, mugs and more.
@@ -215,6 +234,10 @@ It’s important to know the best ways to market your brand through various plat
 
 One thing to keep in mind when selling merchandising is that the more niche your podcast is, the less likely you will be able to sell a lot of it. Instead, focus on making quality items that appeal to your target audience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Listeners' donations
 
 If you don’t have any other income sources, consider crowdfunding and/or donations to help you keep producing high-quality content. Crowdfunding is the act of funding a project or venture by raising funds from a large group of people.
@@ -223,9 +246,6 @@ Crowdfunding websites such as Kickstarter, GoFundMe, and Indiegogo allow people 
 
 The downside is that, if you reach your fundraising goal, your funds may run out before you’re ready to launch your project.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![indiegogo funds](https://images.wondershare.com/filmora/article-images/2022/11/how-much-do-podcasters-make-3.jpg)
 
 ### Affiliate
@@ -254,6 +274,10 @@ So many people are trying to figure out the best ways to make money online. So w
 | [Dave Ramsey Show](https://www.ramseysolutions.com/shows/the-ramsey-show)       | $10 million/annually  |
 | [Karen Kilgariff and Georgia Hardstark](https://myfavoritemurder.com/)          | $15 million/annually  |
 | [Joe Rogan](https://open.spotify.com/artist/0bawsIe2P8ykB6psGv81P9)             | $30 million/annually  |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -287,6 +311,22 @@ Many podcasters start as amateurs and make a living doing what they love. You ca
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-simplified-pubg-voice-alteration-guide/"><u>[New] 2024 Approved Simplified PUBG Voice Alteration Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-asmr-and-wellness-what-are-its-promising-side-effects/"><u>[New] ASMR & Wellness What Are Its Promising Side-Effects?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-proven-pathways-for-sound-alteration-in-pubg-gamers/"><u>[New] In 2024, Proven Pathways for Sound Alteration in PUBG Gamers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-8-virtual-backdrops-for-macbook-upgrades/"><u>[Updated] Best 8 Virtual Backdrops for MacBook Upgrades</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-download-and-keep-your-favorite-fb-stories-for-2024/"><u>[Updated] How to Download and Keep Your Favorite FB Stories for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-follower-deletion-identification/"><u>[Updated] In 2024, Instagram Follower Deletion Identification</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-capture-perfection-on-the-switch-console/"><u>2024 Approved Capture Perfection on the Switch Console</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-maximizing-learning-through-efficient-audio-capture-techniques-mac/"><u>2024 Approved Maximizing Learning Through Efficient Audio Capture Techniques (Mac)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-realme-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Realme Get Deleted photos Back with Ease and Safety?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-expand-your-visual-palette-in-after-effects/"><u>In 2024, Expand Your Visual Palette in After Effects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-joyful-account-access-instructions/"><u>In 2024, Joyful Account Access Instructions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/leading-tools-for-extracting-fb-videos-top-5-for-2024/"><u>Leading Tools for Extracting FB Videos - TOP 5 for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/locate-a-missing-or-stolen-iphone-a-step-by-step-guide-with-find-my/"><u>Locate a Missing or Stolen iPhone: A Step-by-Step Guide with Find My</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-right-way-to-pick-spiritual-phone-tunes-for-2024/"><u>The Right Way to Pick Spiritual Phone Tunes for 2024</u></a></li>
+</ul></div>
 
