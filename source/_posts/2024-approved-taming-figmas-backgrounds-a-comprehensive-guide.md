@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Taming Figma's Backgrounds  A Comprehensive Guide\""
-date: 2024-08-16T09:20:58.969Z
-updated: 2024-08-17T09:20:58.969Z
+date: 2025-01-18T00:13:34.677Z
+updated: 2025-01-25T10:19:31.142Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,10 @@ Step1 First, open a browser, visit the [Figma website](https://www.figma.com), a
 
 ![importing image to figma to remove background](https://images.wondershare.com/filmora/article-images/2023/03/importing-image-to-figma-to-remove-background.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once the import process is complete, click **"Done"** in the pop-up window and open your image. Now, click the "**Main Menu"** icon and choose **"Plugins" > "Find More Plugins"** from the drop-down menu.
 
 Step2 Next, search for **"**[**PixCut Background Remover**](https://www.figma.com/community/plugin/990188175789012011)**"** using the search option and select it from the result. Click **"Run,"** choose the **"Select App key"** option from the drop-down menu, and you will be asked for your **"Appkey."**
@@ -70,14 +74,19 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 ![running the pixcut plugin in figma](https://images.wondershare.com/filmora/article-images/2023/03/running-the-pixcut-plugin-in-figma.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
 
@@ -85,6 +94,10 @@ Follow these tips to remove the background of images with transparent or solid c
 
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### (2) 3 Other Figma Plugins
 
@@ -109,8 +122,9 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -139,14 +153,12 @@ Step2 **Right-click** on the image in the editor and click **"Plugins."**
 
 Step3 Select **"Find More Plugins"** and use the search option in the pop-up window to find the plugin you need.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -187,8 +199,22 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-advanced-inshot-transition-methods-explained-for-2024/"><u>[New] Advanced Inshot Transition Methods Explained for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-explore-the-potential-of-color-grading-through-luts-and-ar-for-2024/"><u>[New] Explore the Potential of Color Grading Through LUTs and AR for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-secret-pathway-to-premium-pristine-pictures/"><u>[Updated] 2024 Approved The Secret Pathway to Premium, Pristine Pictures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ifunny-meme-seamless-download-and-enjoyment-for-2024/"><u>[Updated] IFunny Meme Seamless Download and Enjoyment for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-perfecting-visual-output-integrating-luts-into-ae-projects/"><u>[Updated] Perfecting Visual Output Integrating LUTs Into AE Projects</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-vloggers-ultimate-guide-to-best-gaming-microphones/"><u>2024 Approved Vloggers' Ultimate Guide to Best Gaming Microphones</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-motorola-razr-40-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Motorola Razr 40 FRP Bypass Instantly</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-on-iphone-not-responding-apply-any-of-our-9-proven-strategies/"><u>ChatGPT on iPhone Not Responding? Apply Any of Our 9 Proven Strategies!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/decoding-the-future-of-smartwatches-the-much-awaited-apple-watch-sx-pricing-forecasts-and-speculations-revealed/"><u>Decoding the Future of Smartwatches: The Much-Awaited Apple Watch SX - Pricing Forecasts and Speculations Revealed</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/el-salvadors-bitcoin-integration-paves-path-to-americas-singapore-insights-by-vaneck-advisor-and-yl-tech-solutions/"><u>El Salvador's Bitcoin Integration Paves Path to 'Americas Singapore': Insights by VanEck Advisor and YL Tech Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exclusive-insight-microsofts-revolutionary-ai-chip-poised-to-outshine-apple-macbook-firsthand-experience/"><u>Exclusive Insight: Microsoft's Revolutionary AI Chip Poised to Outshine Apple MacBook - Firsthand Experience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-device-ready-free-sm-bus-controller-drivers-for-windows-operating-systems/"><u>Get Your Device Ready - FREE SM Bus Controller Drivers for Windows Operating Systems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-cut-the-noise-get-smooth-beats-with-our-free-analyzers-today/"><u>In 2024, Cut the Noise - Get Smooth Beats with Our FREE Analyzers Today</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-mastering-cross-platform-video-playback-free-solutions-guide/"><u>In 2024, Mastering Cross-Platform Video Playback Free Solutions Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-perfect-iphone-for-gamers-a-compreh-gropsis-on-the-market-leaders/"><u>The Perfect iPhone for Gamers: A Compreh Gropsis on the Market Leaders</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Quickest Quads  2022 Olympics Skate\""
-date: 2024-08-16T09:18:12.146Z
-updated: 2024-08-17T09:18:12.146Z
+date: 2025-01-20T17:51:58.024Z
+updated: 2025-01-25T08:04:04.581Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ Putting aside the controversy of getting disqualified in 1000 meter short track 
 
 Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -32,6 +36,10 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
@@ -40,11 +48,12 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
@@ -57,9 +66,6 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
@@ -67,8 +73,9 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -99,9 +106,6 @@ For macOS 10.12 or later
 
 Step 1: Download and install Filmora on your computer. Launch the application and click on New Project.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -113,6 +117,10 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,8 +143,22 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-through-lipo-technologies-for-drones-needs/"><u>[New] Navigating Through LiPo Technologies for Drones' Needs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-recommended-frame-rates-for-professional-slow-motion-videos/"><u>[New] Recommended Frame Rates for Professional Slow-Motion Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-premium-audio-playwright-craftsmanship/"><u>[Updated] 2024 Approved Premium Audio Playwright Craftsmanship</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-crafting-attention-grabbing-facebook-giveaways-for-2024/"><u>[Updated] Crafting Attention-Grabbing Facebook Giveaways for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-exclusive-discord-matchmaking-groups/"><u>[Updated] In 2024, Exclusive Discord Matchmaking Groups</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-livestream-audiovideo-creators-hub/"><u>[Updated] LiveStream Audio/Video Creators Hub</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-pioneers-of-possibilities-the-leading-6-in-artistic-realms/"><u>[Updated] Pioneers of Possibilities The Leading 6 in Artistic Realms</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-leveraging-technology-tools-for-accurate-and-efficient-market-analysis/"><u>2024 Approved Leveraging Technology Tools for Accurate and Efficient Market Analysis</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-the-absence-of-msvcr110dll-a-guide/"><u>Addressing the Absence of msvcr110.dll: A Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discover-10-platforms-offering-free-gaming-melodies/"><u>Discover 10 Platforms Offering Free Gaming Melodies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-spherical-videos-on-the-go-iphones-social-media-blueprint/"><u>In 2024, Spherical Videos on the Go IPhone's Social Media Blueprint</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/restoring-voice-over-narration-on-microsofts-document-editor/"><u>Restoring Voice Over Narration on Microsoft's Document Editor</u></a></li>
+<li><a href="https://fox-search.techidaily.com/step-by-step-guide-mastering-the-art-of-downloading-mlb-footage-featuring-famous-pitchers-slider-techniques/"><u>Step-by-Step Guide: Mastering the Art of Downloading MLB Footage Featuring Famous Pitchers' Slider Techniques</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-poco-m6-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Poco M6 5G Device</u></a></li>
+</ul></div>
 

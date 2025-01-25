@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Scope of Motion Tracking  From Simple to Complex\""
-date: 2025-01-16T16:18:09.988Z
-updated: 2025-01-19T16:05:25.660Z
+date: 2025-01-24T03:29:23.866Z
+updated: 2025-01-24T22:17:38.681Z
 tags: 
   - screen-recording
   - ai video
@@ -53,7 +53,7 @@ With Hand Tracking, you can interact with the virtual world more naturally and i
 ![hand tracking technology](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-technology.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Types Of Hand Tracking
@@ -94,10 +94,6 @@ Before we go further about them, let us learn about Python quickly. Python is a 
 
 To get a deeper understanding of OpenCV, please read our article: _Opencv Tracking, a compete review_.（同期交付文章，请插入相关内链\~）
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What Is Media Pipe
 
 Media Pipe is an open-source framework by Google that provides a set of tools for working with multimedia data or media processing. It includes modules for handling audio, video, and images. Media Pipe also supports various codecs and file formats.
@@ -110,7 +106,11 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Guidance With Steps
@@ -131,10 +131,6 @@ Now, to install **MediaPipe**, copy and paste the following command:
 
 ![install mediapipe](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Coding**
 
 A _main.py_ file for writing code will be automatically created in _Pycharm_ app once you create a new project.
@@ -151,10 +147,6 @@ Copy and paste the following line of code to take the image input from your PC w
 
 ![capturing and processing an image input](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The image is converted to RGB from BGR because MediaPipe works with this type of image. The RBG image is then processed to track the hand.
 
 ##### Step3 Working With Both Hands
@@ -167,10 +159,6 @@ Now, create a class for tracking and for the hands function to work, key in the 
 
 ![creating method for tracking hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Afterward, use the above code to create a method for using specifically to identify hands in the input image. The code will also draw hand landmarks and hand connections.
 
 ##### Step5 Locate The ‘X’ and ‘Y’ Coordinates Of Each Hand Point
@@ -178,10 +166,6 @@ Afterward, use the above code to create a method for using specifically to ident
 To create a method for finding the x and y coordinates of the z21 hand points and a list that you will use to keep the values of these, write the code below:
 
 ![locate x and y coordinate of hand point](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In this method, use the code that you used to find the ID and hand landmark of each hand point. Moreover, put the code you will use to circle the hand point.
 
@@ -237,7 +221,7 @@ With Hand Tracking, you can interact with the virtual world more naturally and i
 ![hand tracking technology](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-technology.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Types Of Hand Tracking
@@ -274,6 +258,10 @@ Above we have learned what is Hand Tracking and the two types of it. Now let’s
 
 Before we go further about them, let us learn about Python quickly. Python is a versatile language used for a wide range of tasks, including image processing and computer vision. We will use Python and two Python Libraries: OpenCV and MediaPipe, to create a Hand Tracking module.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What is OpenCV
 
 To get a deeper understanding of OpenCV, please read our article: _Opencv Tracking, a compete review_.（同期交付文章，请插入相关内链\~）
@@ -303,9 +291,17 @@ Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
 ![copy and paste command to install opencv](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, to install **MediaPipe**, copy and paste the following command:
 
 ![install mediapipe](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Coding**
 
@@ -316,6 +312,10 @@ A _main.py_ file for writing code will be automatically created in _Pycharm_ app
 First, import the OpenCV and MediaPipe to use their dependencies. Once done, create an object _cap_ for video capturing and three other objects; _mpHands, hands,_ and _mpDraw_ to manipulate your input using MediaPipe.
 
 ![importing the libraries](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step2 Capturing And Processing An Image Input
 
@@ -332,7 +332,7 @@ Now, create a class for tracking and for the hands function to work, key in the 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step4 Creating Method For Tracking Hands In Input Image
@@ -365,10 +365,6 @@ To execute the main method, copy and paste the following code lines:
 
 The module and output of the program will be the same, and when they are complete without any errors, you will get your output, i.e., the module will track and identify your hand movements without any glitches.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4\. Use Filmora to demonstarte your Hand Tracking skill
 
 After what has been explained above and what you have learned by now, we hope you have been equipped with hand tracking module knowledge and be ready to take action. Here, we will also sincerely recommend you a user-friendly and professional video edtior to show your hand motion scene – [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)!
@@ -380,6 +376,10 @@ Learn more about Filmora:
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -411,20 +411,24 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-affordable-action-camera-excellence-top-6-for-under-100-savings-for-2024/"><u>[New] Affordable Action Camera Excellence – Top 6 for Under $100 Savings for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-affordable-webm-streaming-alternatives-unveiled/"><u>[New] Affordable WebM Streaming Alternatives Unveiled</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-crafting-the-rhythm-adding-beats-and-melodies-to-your-fb-vids-for-2024/"><u>[New] Crafting the Rhythm Adding Beats and Melodies to Your FB Vids for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-audio-log-analysis-guidebook/"><u>[New] In 2024, Audio Log Analysis Guidebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-spin-the-dial-zoom-in-on-vr-samsung-and-lg-compare/"><u>[New] Spin the Dial, Zoom in on VR Samsung & LG Compare</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-in-depth-analysis-of-lgs-latest-360-cameras-for-the-year-2023/"><u>[Updated] 2024 Approved In-Depth Analysis of LG's Latest 360 Cameras for the Year 2023</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-is-there-a-business-model-for-shopping-blog-reviews/"><u>[Updated] In 2024, Is There a Business Model for Shopping Blog Reviews?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-jovial-media-grabber-critique/"><u>[Updated] In 2024, Jovial Media Grabber Critique</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-refining-online-discussions-in-google-meet-for-2024/"><u>[Updated] Refining Online Discussions in Google Meet for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-seamless-scenes-integrating-fade-inout-effects-for-2024/"><u>[Updated] Seamless Scenes Integrating Fade In/Out Effects for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-best-of-ice-artistry-2022-edition/"><u>[Updated] The Best of Ice Artistry 2022 Edition</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-guide-to-simple-iphone-screencasting/"><u>[Updated] The Ultimate Guide to Simple iPhone Screencasting</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-google-pixel-8-pro-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Google Pixel 8 Pro to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/how-to-fix-nvidia-geforce-error-0x0003-a-comprehensive-guide/"><u>How to Fix NVIDIA GeForce Error 0X0003 - A Comprehensive Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-install-the-latest-intel-usb-30-drivers-on-your-windows-11-machine-download-guide/"><u>How to Install the Latest Intel USB 3.0 Drivers on Your Windows 11 Machine (Download Guide)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-simple-guide-making-your-windows-computer-speak-like-a-fish-for-2024/"><u>[New] The Simple Guide Making Your Window's Computer Speak Like a Fish for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-what-to-do-with-icloud-drives-desktop-anddocuments-access-in-sierra/"><u>[New] What to Do with iCloud Drive’s Desktop &Documents Access in Sierra</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-freelancers-guide-to-affordable-animation-methods/"><u>[Updated] 2024 Approved The Freelancer's Guide to Affordable Animation Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-boost-creativity-and-production-in-movies-xp-software/"><u>[Updated] Boost Creativity and Production in Movies XP Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-cyberspace-celebs-top-youtube-personalities-by-views/"><u>2024 Approved Cyberspace Celebs Top YouTube Personalities by Views</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unlocking-full-potential-with-facebook-interaction/"><u>2024 Approved Unlocking Full Potential with Facebook Interaction</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-a-course-for-cash-flows-the-3-step-methodology-for-measuring-youtube-earnings-for-2024/"><u>Charting a Course for Cash Flows The 3-Step Methodology for Measuring YouTube Earnings for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/create-awe-inspiring-gopro-time-lapse-cinematography-for-2024/"><u>Create Awe-Inspiring GoPro Time-Lapse Cinematography for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/free-picture-perfection-the-finest-10-sites-reviewed/"><u>Free Picture Perfection The Finest 10 Sites Reviewed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-a-complete-guide-to-soundtracks-instagrams-legalities-explained/"><u>In 2024, A Complete Guide To Soundtracks Instagram’s Legalities Explained</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-future-of-storage-top-picks-and-prices-in-clouds/"><u>In 2024, Future of Storage Top Picks and Prices in Clouds</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-google-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Google Phone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Xiaomi Redmi K70E? | Dr.fone</u></a></li>
+<li><a href="https://win-latest.techidaily.com/mastering-motherboard-configurations-raid-vs-ahci-detailed-analysis-for-enhanced-speed/"><u>Mastering Motherboard Configurations: RAID Vs. AHCI Detailed Analysis for Enhanced Speed</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-14-plus-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-singular-adventure-in-3dr-an-insightful-look/"><u>The Singular Adventure in '3DR' An Insightful Look</u></a></li>
+<li><a href="https://fox-http.techidaily.com/todays-vr-hardware-review-for-2024/"><u>Today's VR Hardware Review for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/total-war-warhammer-3-crash-no-more-fixed-optimized-gaming-experience-on-pcs/"><u>Total War: Warhammer 3 - Crash No More ([FIXED]) Optimized Gaming Experience on PCs!</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-forget-the-sony-xperia-10-v-password-or-pattern-lock-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you forget the Sony Xperia 10 V password or pattern lock</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Troubleshooting Tips for a Stable Windows 11 Photo Experience\""
-date: 2024-08-16T09:16:36.146Z
-updated: 2024-08-17T09:16:36.146Z
+date: 2025-01-20T20:56:05.052Z
+updated: 2025-01-25T07:40:22.075Z
 tags: 
   - screen-recording
   - ai video
@@ -40,19 +40,12 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 **You may also like:** [How to Solve Windows 10 Photos App Crashes Effectively >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -62,10 +55,11 @@ Here is how to troubleshoot –
    1. Press the ‘Windows’ key + ‘X’ for launching the ‘Control Panel. Alternatively, type ‘Control Panel’ in the search box.
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -81,11 +75,12 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -95,6 +90,10 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -117,6 +116,10 @@ Here is how to reinstall the Windows 10 Photos App –
 1. You have to wait a while to complete the process and reboot the Windows 10 system.
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -149,8 +152,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-photographers-guide-to-online-image-editing-and-cropping/"><u>[New] In 2024, The Photographer's Guide to Online Image Editing and Cropping</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-skys-biggest-load-carriers-drones-ranked/"><u>[New] Sky's Biggest Load Carriers Drones Ranked</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-cutting-edge-4k-panels-top-10-revealed-list/"><u>2024 Approved Cutting-Edge 4K Panels Top 10 Revealed List</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fundamentals-of-hue-adjustments-in-photoshop/"><u>2024 Approved Fundamentals of Hue Adjustments in Photoshop</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211135238-9798888326008-a-widows-guide/"><u>A Widow's Guide | Free Book</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-guide-to-fixing-high-resource-usage-by-service-host-on-win10-pcs/"><u>Comprehensive Guide to Fixing High Resource Usage by Service Host on Win10 PCs</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-oppo-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Oppo Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/no-budget-no-problem-free-animation-software-for-windows-and-mac/"><u>No Budget? No Problem! Free Animation Software for Windows and Mac</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quickcastpro-a-step-by-step-guide-for-flawless-podcast-streaming-for-2024/"><u>QuickCastPro A Step-by-Step Guide for Flawless Podcast Streaming for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solve-your-morning-problems-fixing-the-iphone-alarm-not-going-off-issue/"><u>Solve Your Morning Problems: Fixing the 'iPhone Alarm Not Going Off' Issue</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamline-audio-podcasts-made-easy-for-iphones-for-2024/"><u>Streamline Audio Podcasts Made Easy for iPhones for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tactics-to-expose-youtubes-well-guarded-videotapes/"><u>Tactics to Expose YouTube's Well-Guarded Videotapes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/transform-and-edit-videos-like-a-pro-with-these-iphonepc-tools/"><u>Transform and Edit Videos Like a Pro With These iPhone/PC Tools</u></a></li>
+</ul></div>
 

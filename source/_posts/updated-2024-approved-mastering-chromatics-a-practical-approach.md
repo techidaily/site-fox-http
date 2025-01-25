@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Chromatics  A Practical Approach\""
-date: 2025-01-18T16:24:58.263Z
-updated: 2025-01-19T16:20:40.172Z
+date: 2025-01-18T17:32:32.783Z
+updated: 2025-01-25T09:37:38.722Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
@@ -43,10 +39,14 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Color Harmony
@@ -55,10 +55,6 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
 These colors always work as they create contrast and stability.
@@ -66,6 +62,10 @@ These colors always work as they create contrast and stability.
 The blue lines represent what is known as split contrasting colors and these will create balance with each other.
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## But How Do I Use This
 
@@ -80,13 +80,13 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,18 +123,18 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-10-android-and-ios-timers-for-effortless-wedding-countdown-management/"><u>[New] 2024 Approved Top 10 Android and iOS Timers for Effortless Wedding Countdown Management</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-ultimate-vsco-editors-handbook/"><u>[New] The Ultimate VSCO Editor's Handbook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-vmix-vs-wirecast-which-is-the-best-professional-live-streaming-software-in-2024/"><u>[New] VMix VS Wirecast Which Is the Best Professional Live Streaming Software, In 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-rise-of-a-new-player-an-introduction-to-triller/"><u>[Updated] In 2024, The Rise of a New Player An Introduction to Triller</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-ultimate-guide-to-collaborative-chats-in-skype-windows-mac/"><u>[Updated] The Ultimate Guide to Collaborative Chats in Skype (Windows, Mac)</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/2024-approved-do-you-want-to-rotate-your-tiktok-video-to-stylize-it-more-this-article-will-provide-simple-methods-of-rotating-tiktok-videos-to-improve-the-a/"><u>2024 Approved Do You Want to Rotate Your TikTok Video to Stylize It More? This Article Will Provide Simple Methods of Rotating TikTok Videos to Improve the Audience Viewing Experience</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-tecno-spark-go-2023-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Tecno Spark Go (2023)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/learning-the-art-of-soundshaping-in-audacity-for-2024/"><u>Learning the Art of Soundshaping in Audacity for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-the-art-of-reversed-color-photography/"><u>Mastering the Art of Reversed Color Photography</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/pc-strategies-and-tips-for-becoming-a-pokemon-unite-champion/"><u>PC Strategies and Tips for Becoming a Pokémon Unite Champion</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/speakers-vs-headphones-in-gaming-why-i-choose-the-room-filling-audio-experience/"><u>Speakers Vs. Headphones in Gaming: Why I Choose the Room-Filling Audio Experience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/top-10-editing-wizards-fcps-must-have-plugins/"><u>Top 10 Editing Wizards FCP's Must-Have Plugins</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/top-methods-for-detecting-and-diagnosing-hardware-issues-insights-from-yl-computing/"><u>Top Methods for Detecting and Diagnosing Hardware Issues - Insights From YL Computing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-expert-advice-best-mobile-melody-crafters/"><u>[New] 2024 Approved Expert Advice Best Mobile Melody Crafters</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-fainter-frequencies-for-pc-and-mac-harmony-for-2024/"><u>[New] Fainter Frequencies for PC & Mac Harmony for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leading-10-lenses-revolutionizing-photography/"><u>[New] In 2024, Leading 10 Lenses Revolutionizing Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-integrate-video-content-for-playlist-building-for-2024/"><u>[New] Integrate Video Content for Playlist Building for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-melody-on-calls-the-complete-guide-to-downloading-and-editing-tamil-tracks/"><u>[New] Melody on Calls The Complete Guide to Downloading & Editing Tamil Tracks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-accessing-premium-clip-art-at-no-expense/"><u>2024 Approved Accessing Premium Clip-Art at No Expense</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-stop-facebook-video-pause-during-streaming/"><u>2024 Approved Stop Facebook Video Pause During Streaming</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-tips-on-reviewing-your-web-pages-before-publishing-online/"><u>Essential Tips on Reviewing Your Web Pages Before Publishing Online</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-masterful-techniques-to-alter-facial-gender-in-instagram-snapchat-and-facebook-pictures/"><u>In 2024, Masterful Techniques to Alter Facial Gender in Instagram, Snapchat & Facebook Pictures</u></a></li>
+<li><a href="https://fox-http.techidaily.com/smartphone-lighting-kits-for-improved-footage-for-2024/"><u>Smartphone Lighting Kits for Improved Footage for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/the-easy-steps-to-computer-lullaby/"><u>The Easy Steps to Computer Lullaby</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-infinix-note-30-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Infinix Note 30 Location | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-itel-a60-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Itel A60? | Dr.fone</u></a></li>
 </ul></div>
 

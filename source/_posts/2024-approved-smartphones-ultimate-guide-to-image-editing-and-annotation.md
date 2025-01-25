@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Smartphones' Ultimate Guide to Image Editing & Annotation\""
-date: 2024-08-16T09:18:15.862Z
-updated: 2024-08-17T09:18:15.862Z
+date: 2025-01-23T13:01:10.291Z
+updated: 2025-01-24T16:39:04.981Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,10 @@ To add text to a photo using iPhone (Version: iOS 11 and later), you can follow 
 
 ![clicking the font button](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Click it to make desirable changes in the text, and a popup menu will appear. Now select the edit option to enter your text.
 
 ![make desirable changes in the text](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-3.jpg)
@@ -146,6 +150,10 @@ Pic Monkey Photo Editor comes with free but In-App purchases option. The app can
 
 ![picmonkey photo editor](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Key features:**
 
 * Write on photos
@@ -194,9 +202,6 @@ Caption is a simple app for writing over photos. You only need to choose an imag
 
 This app works for both photos and videos. You can add text to them. This is also another free app with premium subscriptions.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![watermark](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-13.jpg)
 
 **Key features:**
@@ -215,6 +220,10 @@ This app is especially for those friends who want to add Arabic text to photos. 
 
 ![new designs](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-14.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Key features:**
 
 * Text on photos.
@@ -230,10 +239,11 @@ This app is especially for those friends who want to add Arabic text to photos. 
 
 Text Over photo is another great app with several tools. Using it, you can write on your photos or the app's backgrounds, emoji, etc., provided. It offers collages and grids options too. It's also freemium with paid features in-app.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![text over photo](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-15.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Key features:**
 
@@ -245,6 +255,10 @@ Text Over photo is another great app with several tools. Using it, you can write
 **Download:** **Text Over Photo for**
 
 [Android](https://play.google.com/store/apps/details?id=com.km.textoverphoto&hl=en%5FGB) (Contain ads, In-App purchases)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -266,15 +280,27 @@ To add text to a photo using iPhone (Version: iOS 11 and later), you can follow 
 
 ![tap the edit button](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Just click on the plus button (+)at the bottom.
 2. Now choose the Text option. It's all done. However, if you want to resize or rotate the text, it can be done quickly through dragging.
 3. You can also change the font by clicking the font button, which appears small, and the capital A rounded by a circle(aA).
 
 ![clicking the font button](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Click it to make desirable changes in the text, and a popup menu will appear. Now select the edit option to enter your text.
 
 ![make desirable changes in the text](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Android:**
 
@@ -292,6 +318,10 @@ Aren't you an iPhone user? No worries! Here is how to write over photoson mobile
 ![tap the done button](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-5.jpg)
 
 ## Best 10 Apps for writing on photos
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Phonto - Text on photos
 
@@ -326,6 +356,10 @@ PicLab - Photo Editor will be the right fit for you if you are someone who wants
 **Download: PicLab - Photo Editor for**
 
 [Android](https://play.google.com/store/apps/details?id=com.apperto.piclabapp&hl=en) (Contain ads, In-App purchases) | [iOS](https://apps.apple.com/us/app/photo-editor/id597851882) (Free, Offers In-App purchases)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Word Swag - Add Text on Photos
 
@@ -417,14 +451,6 @@ Caption is a simple app for writing over photos. You only need to choose an imag
 
 This app works for both photos and videos. You can add text to them. This is also another free app with premium subscriptions.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![watermark](https://images.wondershare.com/filmora/article-images/2022/07/write-on-photos-for-ios-and-android-13.jpg)
 
 **Key features:**
@@ -454,9 +480,6 @@ This app is especially for those friends who want to add Arabic text to photos. 
 
 [Android](https://play.google.com/store/apps/details?id=com.rashadandhamid.designs1&hl=en) (Contain ads, In-App purchases)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 10\. Text Over Photo
 
 Text Over photo is another great app with several tools. Using it, you can write on your photos or the app's backgrounds, emoji, etc., provided. It offers collages and grids options too. It's also freemium with paid features in-app.
@@ -504,8 +527,21 @@ It's now a difficult task if you want to add text to your photos. Instead, it's 
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-swift-shift-from-srt-to-text-your-modern-guide-for-speed/"><u>[New] 2024 Approved Swift Shift From SRT to Text Your Modern Guide for Speed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-a-comprehensive-guide-to-implementing-and-using-high-dynamic-range-auto-hdr-in-windows-11/"><u>[New] In 2024, A Comprehensive Guide to Implementing and Using High Dynamic Range (Auto HDR) in Windows 11</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-from-screens-to-spreads-the-dos-and-donts-of-live-blogging/"><u>[New] In 2024, From Screens to Spreads The Do's and Don'ts of Live Blogging</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-newbies-guide-to-av1-codec/"><u>[New] In 2024, The Newbie's Guide to AV1 Codec</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-transforming-dull-interviews-into-engaging-assessments/"><u>[Updated] In 2024, Transforming Dull Interviews Into Engaging Assessments</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/easy-fixes-for-your-tvs-frequent-malfunctions-a-step-by-step-guide/"><u>Easy Fixes for Your TV's Frequent Malfunctions – A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exceptional-power-for-gopro-hero5-official-sources-and-alternatives-for-2024/"><u>Exceptional Power for GoPro Hero5 Official Sources & Alternatives for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-ios-of-apple-iphone-xs-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS of Apple iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/rank-the-best-tools-top-8-apps-to-increase-likes-on-fb/"><u>Rank the Best Tools Top 8 Apps to Increase Likes on FB</u></a></li>
+<li><a href="https://win11.techidaily.com/reinstating-synapse-seamlessly-on-windows-1110-systems/"><u>Reinstating Synapse Seamlessly on Windows 11/10 Systems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-art-of-package-revelation-amplifying-initial-impressions-for-2024/"><u>The Art of Package Revelation Amplifying Initial Impressions for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/transform-photos-create-masterpieces-with-leading-apps-for-2024/"><u>Transform Photos, Create Masterpieces with Leading Apps for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/vapor-3-showdown-shade-4-advances-for-2024/"><u>Vapor 3 Showdown Shade 4 Advances for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/vlc-player-issue-resolved-restoring-video-capability-on-desktop-and-laptop-computers/"><u>VLC Player Issue Resolved: Restoring Video Capability on Desktop and Laptop Computers</u></a></li>
+</ul></div>
 

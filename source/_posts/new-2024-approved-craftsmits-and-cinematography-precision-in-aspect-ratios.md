@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Craftsmits and Cinematography  Precision in Aspect Ratios\""
-date: 2025-01-16T16:43:04.768Z
-updated: 2025-01-19T16:10:53.482Z
+date: 2025-01-20T13:00:47.488Z
+updated: 2025-01-24T22:59:20.165Z
 tags: 
   - screen-recording
   - ai video
@@ -29,10 +29,6 @@ With that said, let's dive right into it!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. What is a video aspect ratio?
 
 Aspect ratio is a digital image projection attribute describing the distance between the width and the height of an image. The dimensions are also defined as shapes such as a square which is 4:3\. A rectangle represents the 16:9 standard high definition aspect ratio, and inverted what you see on phones, that will be 9:16\. 9 refers to the width and 16 to the height.
@@ -40,6 +36,10 @@ Aspect ratio is a digital image projection attribute describing the distance bet
 ## 2\. Commonly used aspect ratios
 
 There is no same aspect ratio that is used across all social media platforms. Depending on which social media platform you are planning to upload, you have to make sure you have the correct aspect ratio for your target audience. The optimal viewing experience is what matters.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 16:9 Widescreen
 
@@ -49,10 +49,6 @@ This aspect ratio is recognized as the worldwide reference format for film, mobi
 
 This resolution is originally used in older television screens, which transformed into mobile use as this aspect ratio works really well for Instagram and Facebook videos, referring to the 9:16 phone resolution making a square video more pleasant to watch and to be featured in in-feed videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9:16 Vertical
 
 The 9:16 aspect ratio has become the mainstream resolution for smartphones for easier viewing of videos. This resolution allows for the vertical display of videos on tablets and phones, meaning that it allows videos to play while the device is being held in its upright position. This works ideally for Facebook, Instagram, Snapchat, YouTube Shorts, and more.
@@ -61,17 +57,9 @@ The 9:16 aspect ratio has become the mainstream resolution for smartphones for e
 
 The 21:9 resolution is designed for filming ultra-wide screen movies that gives the viewer a theater-like feeling. It's mostly used to display films and movies in anamorphic formats. Just like on ultra-wide monitors, it allows the video to be shown across the entire screen, giving you a cinema-like experience. This resolution contributes to a broader viewing experience in any shape or form.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Which aspect ratio should I choose?
 
 Depending on your project, broadcast location and filming options, here you can find an overview of which platforms are using which resolutions and how you can use that to improve your filming and viewer experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Facebook
 
@@ -98,7 +86,7 @@ To this day, it's safe to say that YouTube is the leading platform in the video 
 21:9 for cinematic videos/shortfilms
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Instagram
@@ -119,6 +107,10 @@ When talking about Instagram, which is very similar to Facebook, use these aspec
 
 9:16 for IGTV
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### TikTok
 
 Before Musical.ly users were migrated to a new platform called TikTok in 2018, it has been the leader on the board for a long time, and here are the recommended resolutions we think give the best results. Tik Tok allows you to share short videos, and is used by young people as an outlet to show their talents whether it's dancing, singing, cooking, comedy or any other form of entertainment they can express and use on the platform. There's also a feature to work together and collaborate with other Tik Tok creators across the globe.
@@ -137,9 +129,17 @@ A very important point we'd like to mention is that we don't recommend changing 
 
 When editing your video, adding black bars is not changing the aspect ratio as you are just adding black bars to the screen. What we do recommend is cropping the video until you get the desired result. Adding black bars won't automatically make the platform adjust the video and it will affect the viewer experience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Cropping
 
 Cropping your video will allow you to remove a section from your video, which works perfect for unwanted objects or people. While cropping the video, you are forced to pick the essential part of your video and disregard the rest of the video and to remove distraction from the frame.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -175,24 +175,18 @@ Having your video tested on multiple devices will allow you to see a preview of 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-zoom-for-effective-fb-live-broadcasts/"><u>[New] 2024 Approved Mastering Zoom for Effective FB Live Broadcasts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-uncovering-every-shared-element-in-a-chat-on-messenger/"><u>[New] 2024 Approved Uncovering Every Shared Element in a Chat on Messenger</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-achieving-sonic-harmony-advanced-crossfading-in-audacity-for-2024/"><u>[New] Achieving Sonic Harmony Advanced Crossfading in Audacity for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-a-look-into-magix-graphic-designer/"><u>[New] In 2024, A Look Into MAGIX Graphic Designer</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-roadmap-how-to-make-your-covers-shine/"><u>[New] In 2024, The Roadmap How To Make Your Covers Shine</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-storage-analysis-videography-on-64128gb-hardware-for-2024/"><u>[New] Storage Analysis Videography on 64/128GB Hardware for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-windows-media-creator-alternatives/"><u>[New] Windows Media Creator Alternatives</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-crafting-captivating-livestreams-with-zoom-for-youtube-audiences/"><u>[Updated] 2024 Approved Crafting Captivating Livestreams with Zoom for YouTube Audiences</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-effortless-guide-to-adding-banners-on-gaming-channels/"><u>[Updated] 2024 Approved Effortless Guide to Adding Banners on Gaming Channels</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-superheroes-clash-black-vs-silver/"><u>[Updated] 2024 Approved Superheroes Clash BLACK vs SILVER</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-discover-the-affordable-superiority-in-asmr-gear-for-2024/"><u>[Updated] Discover the Affordable Superiority in ASMR Gear for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-initiate-impact-a-strategic-blueprint-for-setting-up-a-tech-reviews-channel/"><u>[Updated] In 2024, Initiate Impact A Strategic Blueprint for Setting Up a Tech Reviews Channel</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-family-spandex-speakers-countries/"><u>Global Family: Spandex Speakers' Countries</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-12-mini-when-phone-is-broken-drfone-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 12 mini when Phone is Broken? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reliability-trial-jabras-steel-tier-audio-devices/"><u>Reliability Trial: Jabra's Steel-Tier Audio Devices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/simplifying-gif-design-for-beginners/"><u>Simplifying GIF Design for Beginners</u></a></li>
-<li><a href="https://games-able.techidaily.com/strategies-to-optimize-controllers-battery-performance/"><u>Strategies to Optimize Controllers' Battery Performance</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Where Is the Best Place to Catch Dratini On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-chromes-picture-in-picture-capabilities-explained/"><u>[New] 2024 Approved Chrome's Picture-In-Picture Capabilities Explained</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-new-face-of-sony-updates-to-s6500-blu-rayhd-player/"><u>[New] In 2024, The New Face of Sony Updates to S6500 Blu-Ray/HD Player</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-cyber-conference-capture/"><u>[Updated] Cyber Conference Capture</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-precision-flight-the-new-era-with-yuneec-drone-review/"><u>[Updated] Precision Flight The New Era with Yuneec Drone Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-perfect-guide-to-assembling-a-top-tier-4k-video-editor-pc/"><u>[Updated] The Perfect Guide to Assembling a Top-Tier 4K Video Editor PC</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-virtual-symposium-streams-for-2024/"><u>[Updated] Virtual Symposium Streams for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/complete-guide-setup-and-download-windows-drivers-for-brother-hl-l2-2340dw-inkjet-multifunction-printer/"><u>Complete Guide: Setup & Download Windows Drivers for Brother HL-L2 2340DW Inkjet Multifunction Printer</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-still-using-pattern-locks-with-huawei-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Huawei? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premium-6-networks-maximizing-biz-potential/"><u>Premium 6 Networks Maximizing Biz Potential</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-motorola-moto-g-stylus-5g-2023-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Motorola Moto G Stylus 5G (2023) FRP Bypass</u></a></li>
+<li><a href="https://fox-http.techidaily.com/visual-symphony-the-best-in-the-field-of-photo-and-video-makers-with-beats-for-2024/"><u>Visual Symphony The Best in the Field of Photo & Video Makers with Beats for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/which-recording-tool-excels-more-bandicam-vs-camtasia/"><u>Which Recording Tool Excels More? - Bandicam Vs. Camtasia</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-studios-pathway-to-high-quality-videography-for-2024/"><u>YouTube Studio's Pathway to High-Quality Videography for 2024</u></a></li>
 </ul></div>
 

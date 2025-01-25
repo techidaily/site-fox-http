@@ -1,7 +1,7 @@
 ---
 title: "Precise Image Selection From Clips via Photo App for 2024"
-date: 2025-01-15T16:40:43.184Z
-updated: 2025-01-19T16:27:39.849Z
+date: 2025-01-23T10:25:22.742Z
+updated: 2025-01-25T00:46:46.833Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -52,6 +56,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -63,10 +71,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
@@ -74,7 +78,7 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -82,7 +86,7 @@ We are explaining the solutions here –
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
@@ -90,7 +94,7 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
@@ -107,10 +111,6 @@ Here comes the guide –
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,20 +143,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-professional-photogridding-services-to-polish-your-art/"><u>[New] 2024 Approved Professional Photogridding Services to Polish Your Art</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-seamless-sonic-connector-a-casters-companion-for-2024/"><u>[New] Seamless Sonic Connector A Caster's Companion for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-straightforward-strategies-accessing-appreciated-comments-on-youtube/"><u>[New] Straightforward Strategies Accessing Appreciated Comments on YouTube</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-best-webp-converter-how-to-convert-webp-to-jpg/"><u>[Updated] 2024 Approved Best WebP Converter How to Convert WebP to JPG</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-how-to-shoot-vertical-panorama-photos-with-your-mobile-phone/"><u>[Updated] 2024 Approved How to Shoot Vertical Panorama Photos with Your Mobile Phone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-behind-the-scenes-unveiling-the-best-9-camera-additions-for-mobile-films-for-2024/"><u>[Updated] Behind the Scenes Unveiling the Best 9 Camera Additions for Mobile Films for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-discover-the-leading-15-cost-effective-online-photo-editors-2023/"><u>[Updated] Discover the Leading 15 Cost-Effective Online Photo Editors, 2023</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-ranking-the-best-8-websites-with-shimmering-3d-and-text/"><u>2024 Approved Ranking the Best 8 Websites with Shimmering 3D & Text</u></a></li>
-<li><a href="https://win-best.techidaily.com/il-migliore-software-di-clonazione-gpt-per-sistemi-operativi-windows-tutorial-iniziale/"><u>Il Migliore Software Di Clonazione GPT per Sistemi Operativi Windows: Tutorial Iniziale</u></a></li>
-<li><a href="https://some-tips.techidaily.com/1726220252063-movavi/"><u>Movavi 소프트웨어: 최고의 리뷰와 추천을 위해 선택하세요!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/um-youtube-insights-everything-you-must-know/"><u>Premium YouTube Insights Everything You Must Know</u></a></li>
-<li><a href="https://program-issues.techidaily.com/stop-the-disruption-a-step-by-step-guide-to-preventing-google-chrome-crashes/"><u>Stop the Disruption: A Step-by-Step Guide to Preventing Google Chrome Crashes</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/taking-your-photos-to-new-heights-mastering-ios-11s-features/"><u>Taking Your Photos to New Heights Mastering iOS 11'S Features</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-enhancing-videos-with-online-filters-for-2024/"><u>The Ultimate Guide to Enhancing Videos with Online Filters for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-apple-iphone-x-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On Apple iPhone X?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/21-edition-exploration-mastering-vegas-pro-for-gambling-for-2024/"><u>'21 Edition Exploration – Mastering Vegas Pro for Gambling for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-iphone-pro-photography-mastery-of-leading-lines/"><u>[New] IPhone Pro Photography Mastery of Leading Lines</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-visionsonic-vsdc-review-ideal-substitutes/"><u>[Updated] 2024 Approved VisionSonic VSDC Review - Ideal Substitutes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-tricks-and-secrets-for-gaining-more-likes-in-tiktok-unboxings-for-2024/"><u>[Updated] Tricks & Secrets for Gaining More 'Likes' In TikTok Unboxings for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-essential-android-photography-tools/"><u>2024 Approved Essential Android Photography Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-guide-to-the-lg-bp350-visual-experience/"><u>2024 Approved Ultimate Guide to the LG BP350 Visual Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/action-camera-showdown-2022-gopro-vs-garmin-virb-face-off/"><u>Action Camera Showdown 2022 GoPro Vs. Garmin VIRB Face-Off</u></a></li>
+<li><a href="https://fox-http.techidaily.com/best-ever-5-mobile-photo-editing-tools-background-shifters/"><u>Best-Ever 5 Mobile Photo Editing Tools Background Shifters</u></a></li>
+<li><a href="https://fox-http.techidaily.com/budget-friendly-airborision-top-5-under-500-drone-picks-for-2024/"><u>Budget-Friendly Airborision Top 5 Under $500 Drone Picks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/decoding-video-cropping-within-imovie-for-2024/"><u>Decoding Video Cropping Within iMovie for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/empower-your-site-with-cookiebots-advanced-tracking-solutions/"><u>Empower Your Site with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-tecno-spark-20-proplus-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Tecno Spark 20 Pro+ Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-nokia-g22-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Nokia G22 FRP Bypass</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/master-unlocking-iphones-secret-powers-a-guide-to-exclusive-voice-shortcuts/"><u>Master Unlocking iPhone's Secret Powers: A Guide to Exclusive Voice Shortcuts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlock-unbeatable-deal-buy-any-iphone-case-and-score-another-for-free-with-our-nomad-selection-limited-time-sale/"><u>Unlock Unbeatable Deal: Buy Any iPhone Case & Score Another for Free with Our Nomad Selection | Limited Time Sale!</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-2024-approved-a-complete-guide-of-top-7-video-language-translators/"><u>Updated 2024 Approved A Complete Guide of Top 7 Video Language Translators</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlocking the Potential of Closeup Cinematography\""
-date: 2024-08-16T09:15:49.744Z
-updated: 2024-08-17T09:15:49.744Z
+date: 2025-01-20T21:38:47.672Z
+updated: 2025-01-25T08:59:41.971Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
 
 # Videography: 6 Tips for Making Macro Video
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -67,13 +64,14 @@ Try to get great visual perspectives or angles by bracing the camera on the tree
 
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Background
 
 The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
 #### 4\. DSLR Cameras
@@ -84,9 +82,6 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
 #### 5\. Depth of Field
@@ -99,6 +94,10 @@ But, you must remember that when the opening of the lens is small, the light req
 
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Composition
 
 When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
@@ -108,13 +107,22 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -139,8 +147,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-download-free-preview-clip-kits/"><u>[New] Download Free Preview Clip Kits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngaging-stories-expanding-audiences-top-three-methods-for-2024/"><u>[New] Engaging Stories, Expanding Audiences Top Three Methods for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-powerful-films-for-purpose-and-positivity/"><u>[New] Powerful Films for Purpose and Positivity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-a-closer-look-at-the-m1-pro-versus-m1-max-in-apple-devices/"><u>[Updated] 2024 Approved A Closer Look at the M1 Pro Versus M1 Max in Apple Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-syncopated-sound-understanding-ip-rules-on-instagram/"><u>[Updated] 2024 Approved Syncopated Sound Understanding IP Rules on Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-prevent-youtube-from-starting-video-before-you-watch/"><u>How to Prevent YouTube From Starting Video Before You Watch</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-beyond-the-basics-non-inshot-pc-video-tools/"><u>In 2024, Beyond the Basics Non-Inshot PC Video Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-select-guide-17-chosen-software-for-smooth-image-cleanup/"><u>In 2024, Select Guide 17 Chosen Software for Smooth Image Cleanup</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-samsung-galaxy-m14-4g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Samsung Galaxy M14 4G Phones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/luxury-in-logistics-top-travel-tech-to-haves/"><u>Luxury in Logistics: Top Travel Tech To-Haves</u></a></li>
+<li><a href="https://games-able.techidaily.com/scrutinizing-microsofts-alliance-with-games-industry-leaders-activision-and-blizzard/"><u>Scrutinizing Microsoft's Alliance with Games Industry Leaders Activision & Blizzard</u></a></li>
+<li><a href="https://fox-http.techidaily.com/srt-playback-guide-on-different-os-platforms/"><u>SRT Playback Guide on Different OS Platforms</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlock-productivity-perks-and-score-big-savings-exclusive-93-off-flip-out-monitor-offer-for-prime-day-shoppers/"><u>Unlock Productivity Perks & Score Big Savings: Exclusive $93 Off Flip-Out Monitor Offer for Prime Day Shoppers!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/vector-database-explained-elevating-artificial-intelligence/"><u>Vector Database Explained: Elevating Artificial Intelligence</u></a></li>
+</ul></div>
 

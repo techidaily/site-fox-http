@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Top Picks  Timeless Melodies From Iconic Animes\""
-date: 2025-01-12T16:38:56.413Z
-updated: 2025-01-19T16:24:30.891Z
+date: 2025-01-20T21:56:02.844Z
+updated: 2025-01-25T12:42:34.596Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ So, without further ado, here are the 20 best anime opening songs of all time:
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 20\. Guren no Yumiya - Attack on Titan
 
 Guren no Yumiya is the first opening song of the popular anime series, Attack on Titan. The song is sung by Linked Horizon and it is incredibly catchy. It perfectly sets the tone for the dark and intense story of Attack on Titan.
@@ -45,17 +49,21 @@ Unravel is the first opening song of Tokyo Ghoul. It is sung by TK from Ling Tos
 
 Ignite is the first opening song of Sword Art Online II. It is sung by Eir Aoi and it is an incredibly catchy and upbeat song. It perfectly captures the excitement and adventure of Sword Art Online.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 16\. Northern Lights (Shaman King)
 
 Northern Lights is the second opening song of Shaman King. It is sung by Hayashibara Megumi and it is a very catchy and upbeat song. It perfectly captures the fun and adventurous spirit of Shaman King.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 15\. The World - Death Note
 
 The World is the second opening song of Death Note. It is sung by Nightmare band and it is a very dark and intense song. It perfectly sets the tone for the dark and suspenseful story of Death Note.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 14\. Stray - Wolf's Rain
 
@@ -66,20 +74,20 @@ Lately is the first opening song of Wolf's Rain. It is sung by Steve Conte and i
 Ignited is the first opening song of Gundam SEED Destiny. It is sung by T.M. Revolution and it is an incredibly catchy and upbeat song. It perfectly captures the excitement and adventure of Gundam SEED Destiny.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 12\. Let Me Hear - Parasyte
 
 Let Me Hear is the first opening song of Parasyte. It is sung by Fear, and Loathing in Las Vegas and it is a very catchy and intense song. It perfectly encapsulates the dark and horrific story of Parasyte.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 11\. Catch You Catch Me - Card Captor Sakura
 
 Catch You Catch Me is the first opening song of Card Captor Sakura. It is sung by Megumi Hinata and it is a very catchy and upbeat song. It perfectly captures the magical and whimsical world of Card Captor Sakura.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10\. Butter-Fly - Digimon Adventure
 
@@ -93,10 +101,6 @@ Brave Shine is the second opening song of Fate/stay night: Unlimited Blade Works
 
 Wild Drive is the fourth opening song of Yu-Gi-Oh! Duel Monsters. It is sung by Masato Nagai and it is a very catchy and upbeat song. It perfectly captures the excitement and adventure of Yu-Gi-Oh! Duel Monsters.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Cruel Angel's Thesis - Neon Genesis Evangelion
 
 Cruel Angel's Thesis is the first opening song of Neon Genesis Evangelion. It is sung by Yoko Takahashi and it is a very catchy and intense song. It perfectly sets the tone for the dark and depressing story of Neon Genesis Evangelion.
@@ -104,10 +108,6 @@ Cruel Angel's Thesis is the first opening song of Neon Genesis Evangelion. It is
 ## 6\. “We Are!” “One Piece”
 
 "We Are!" "One Piece" is the first opening song of One Piece. It is sung by Hiroshi Kitadani and it is a very catchy and upbeat song. It perfectly encapsulates the adventure and excitement of One Piece.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Moonlight Densetsu (Sailor Moon)
 
@@ -120,6 +120,10 @@ Moonlight Densetsu is the second opening song of Sailor Moon. It is sung by DALI
 ## 3\. “Colors” “Code Geass”
 
 "Colors" "Code Geass" is the first opening song of Code Geass. It is sung by FLOW and it is a very catchy and intense song. It perfectly sets the tone for the dark and exciting story of Code Geass.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. “The Hero!!” “One-Punch Man”
 
@@ -141,6 +145,10 @@ In this list, we gathered the top 20 Anime Opening songs. Some of these songs ar
 
 Again is the second opening song of Full Metal Alchemist: Brotherhood. It is sung by Yui and it is a very upbeat and catchy song. It is one of the most popular anime openings of all time and for good reason.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 18\. Unravel - Tokyo Ghoul
 
 Unravel is the first opening song of Tokyo Ghoul. It is sung by TK from Ling Tosite Sigure and it is a very haunting and beautiful song. It perfectly encapsulates the dark and eerie atmosphere of Tokyo Ghoul.
@@ -149,13 +157,13 @@ Unravel is the first opening song of Tokyo Ghoul. It is sung by TK from Ling Tos
 
 Ignite is the first opening song of Sword Art Online II. It is sung by Eir Aoi and it is an incredibly catchy and upbeat song. It perfectly captures the excitement and adventure of Sword Art Online.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 16\. Northern Lights (Shaman King)
 
 Northern Lights is the second opening song of Shaman King. It is sung by Hayashibara Megumi and it is a very catchy and upbeat song. It perfectly captures the fun and adventurous spirit of Shaman King.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 15\. The World - Death Note
 
@@ -177,6 +185,10 @@ Let Me Hear is the first opening song of Parasyte. It is sung by Fear, and Loath
 
 Catch You Catch Me is the first opening song of Card Captor Sakura. It is sung by Megumi Hinata and it is a very catchy and upbeat song. It perfectly captures the magical and whimsical world of Card Captor Sakura.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Butter-Fly - Digimon Adventure
 
 Butter-Fly is the first opening song of Digimon Adventure. It is sung by Koji Wada and it is a very catchy and upbeat song. It perfectly encapsulates the adventure and excitement of Digimon Adventure.
@@ -185,16 +197,12 @@ Butter-Fly is the first opening song of Digimon Adventure. It is sung by Koji Wa
 
 Brave Shine is the second opening song of Fate/stay night: Unlimited Blade Works. It is sung by Aimer and it is a very catchy and intense song. It perfectly sets the tone for the dark and exciting story of Fate/stay night.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 8\. Wild Drive (Yu-Gi-Oh! Duel Monsters)
 
 Wild Drive is the fourth opening song of Yu-Gi-Oh! Duel Monsters. It is sung by Masato Nagai and it is a very catchy and upbeat song. It perfectly captures the excitement and adventure of Yu-Gi-Oh! Duel Monsters.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Cruel Angel's Thesis - Neon Genesis Evangelion
@@ -217,10 +225,6 @@ Moonlight Densetsu is the second opening song of Sailor Moon. It is sung by DALI
 
 "Colors" "Code Geass" is the first opening song of Code Geass. It is sung by FLOW and it is a very catchy and intense song. It perfectly sets the tone for the dark and exciting story of Code Geass.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. “The Hero!!” “One-Punch Man”
 
 "The Hero!!" "One-Punch Man" is the first opening song of One-Punch Man. It is sung by JAM Project and it is a very catchy and intense song. It perfectly sets the tone for the dark and exciting story of One-Punch Man.
@@ -228,10 +232,6 @@ Moonlight Densetsu is the second opening song of Sailor Moon. It is sung by DALI
 ## 1\. Cha-La Head-Cha-La (Dragon Ball Z)
 
 Cha-La Head-Cha-La is the first opening song of Dragon Ball Z. It is sung by Hironobu Kageyama and it is a very catchy and upbeat song. It perfectly encapsulates the adventure and excitement of Dragon Ball Z.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -265,20 +265,24 @@ In this list, we gathered the top 20 Anime Opening songs. Some of these songs ar
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-exclusive-selection-of-high-caliber-free-luts/"><u>[New] Exclusive Selection of High-Caliber Free LUTs</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-aviation-gaming-the-ultimate-drone-race-course-and-best-models/"><u>[New] In 2024, Aviation Gaming The Ultimate Drone Race Course and Best Models</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-revolutionize-online-transmission-essential-browsers-screen-capture-vendors/"><u>[New] In 2024, Revolutionize Online Transmission Essential Browsers' Screen Capture Vendors</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-superior-strategies-for-unrestricted-space-allocation/"><u>[New] Superior Strategies for Unrestricted Space Allocation</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-from-daily-use-to-extraordinary-experiences-phones-into-vr/"><u>[Updated] 2024 Approved From Daily Use to Extraordinary Experiences Phones Into VR</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-make-profitable-youtube-ads-for-free-in-2024/"><u>[Updated] How To Make Profitable YouTube Ads for Free, In 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-guide-to-using-snapchats-influencer-showcase/"><u>[Updated] In 2024, A Guide to Using Snapchat's Influencer Showcase</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-in-depth-shots-the-art-of-closing-in-on-movies/"><u>[Updated] In 2024, In-Depth Shots The Art of Closing in on Movies</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-swift-windows-document-reviewing-techniques/"><u>[Updated] Swift Windows Document Reviewing Techniques</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-chasing-deals-on-vr-gear-in-china/"><u>2024 Approved Chasing Deals on VR Gear in China</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/essential-techniques-for-efficient-iphone-7-recording-for-2024/"><u>Essential Techniques for Efficient iPhone 7 Recording for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/funnybox-simple-setup-for-content-creators-for-2024/"><u>FunnyBox Simple Setup for Content Creators for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Samsung Galaxy A14 4G | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/pc-no-sound-problem-heres-how-you-can-fix-it-fast/"><u>PC No Sound Problem? Here's How You Can Fix It Fast!</u></a></li>
-<li><a href="https://win-forum.techidaily.com/social-networking-giants-faceoff-exploring-facebook-twitter-instagram-and-youtubes-roles/"><u>Social Networking Giants FaceOff: Exploring Facebook, Twitter, Instagram and YouTube's Roles</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-enhancing-video-content-step-by-step-cropping-and-export-guide-for-2024/"><u>[New] Enhancing Video Content Step-by-Step Cropping & Export Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-free-online-compilation-of-copyright-free-charts-for-2024/"><u>[New] Free Online Compilation of Copyright-Free Charts for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pivotal-ideas-behind-digital-tale-weaving/"><u>[New] Pivotal Ideas Behind Digital Tale Weaving</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enabling-creativity-with-free-online-and-offline-animation-methods/"><u>[Updated] 2024 Approved Enabling Creativity with Free Online & Offline Animation Methods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-essential-seo-handbook-for-podcast-success/"><u>[Updated] 2024 Approved The Essential Seo Handbook for Podcast Success</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-audience-hooks-writing-captivating-podcast-descriptions/"><u>[Updated] Audience Hooks Writing Captivating Podcast Descriptions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-building-blocks-to-successful-video-editing-on-windows-8-for-2024/"><u>[Updated] Building Blocks to Successful Video Editing on Windows 8 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-kinemasters-blueprint-for-smooth-video-flow-and-continuity/"><u>[Updated] In 2024, Kinemaster's Blueprint for Smooth Video Flow and Continuity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-pathway-to-delicate-audible-reduction-within-lumafusion/"><u>[Updated] In 2024, The Pathway to Delicate Audible Reduction Within Lumafusion</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-k11-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Oppo K11 5G</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/adapting-to-the-end-of-adobe-flash-solutions-for-unsupported-content/"><u>Adapting to the End of Adobe Flash: Solutions for Unsupported Content</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/capturing-authenticity-voice-overs-that-resonate-with-audiences-for-2024/"><u>Capturing Authenticity Voice Overs That Resonate with Audiences for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fb-sensation-strategies-for-marketers-and-influencers/"><u>Fb Sensation Strategies for Marketers and Influencers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-complete-analysis-gopro-silver-edition-hero4-assessment/"><u>In 2024, Complete Analysis GoPro Silver Edition HERO4 Assessment</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-crafting-the-ideal-whatsapp-ringtone-ios-and-android-guide/"><u>In 2024, Crafting the Ideal WhatsApp Ringtone - iOS & Android Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-visual-cutting-edge-extracting-frames-from-films-on-windows-10/"><u>In 2024, Visual Cutting Edge Extracting Frames From Films on Windows 10</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Oppo F25 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/rhythmic-recording-music-infused-snapchat-adventures/"><u>Rhythmic Recording Music-Infused Snapchat Adventures</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-laptops-for-professional-video-editors-comprehensive-reviews-by-tech-experts-gizmodo/"><u>Top-Rated Laptops for Professional Video Editors: Comprehensive Reviews by Tech Experts | Gizmodo</u></a></li>
 </ul></div>
 

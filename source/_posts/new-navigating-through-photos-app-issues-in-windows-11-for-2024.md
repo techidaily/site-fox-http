@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating Through Photos App Issues in Windows 11 for 2024"
-date: 2025-01-16T16:30:32.412Z
-updated: 2025-01-19T16:29:05.156Z
+date: 2025-01-19T18:25:50.996Z
+updated: 2025-01-24T19:12:47.996Z
 tags: 
   - screen-recording
   - ai video
@@ -46,13 +46,13 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -65,10 +65,6 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -85,14 +81,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -132,7 +124,15 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,22 +159,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-mastering-low-light-captures-on-your-iphone/"><u>[New] 2024 Approved Mastering Low-Light Captures on Your IPhone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-avoiding-camera-induced-image-disruption/"><u>[New] Avoiding Camera-Induced Image Disruption</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-creating-a-channel-focused-on-reviewing-marketplace-items-for-2024/"><u>[New] Creating a Channel Focused on Reviewing Marketplace Items for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-youtube-srt-mastery-a-comprehensive-guide-with-3-downloading-strategies/"><u>[New] In 2024, YouTube SRT Mastery A Comprehensive Guide with 3 Downloading Strategies</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-seamless-changeover-a-comprehensive-list-of-free-transformer-tools/"><u>[New] Seamless Changeover A Comprehensive List of Free Transformer Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-big-sur-specifications-system-and-hardware-required/"><u>[Updated] 2024 Approved Big Sur Specifications System & Hardware Required</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-building-a-brand-through-effective-live-streaming-practices-for-2024/"><u>[Updated] Building a Brand Through Effective Live Streaming Practices for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-snappers-playbook-advanced-tactics-for-filter-fun/"><u>[Updated] In 2024, The Snapper's Playbook Advanced Tactics for Filter Fun</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Vivo T2x 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-exploring-the-field-gear-vs-lgcam-comparison/"><u>In 2024, Exploring the Field Gear vs LGCam Comparison</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/inhibiting-factors-using-ai-for-analyzing-digital-coins/"><u>Inhibiting Factors: Using AI for Analyzing Digital Coins</u></a></li>
-<li><a href="https://fox-http.techidaily.com/prime-biz-vault-services-for-data-for-2024/"><u>Prime Biz Vault Services for Data for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-fix-guide-resolve-error-code-0x800f0831-using-windows-updates/"><u>Quick Fix Guide: Resolve Error Code 0X800f0831 Using Windows Updates</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/section-4c-qanda-with-solutions/"><u>Section 4C: Q&A with Solutions</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/solving-the-dilemma-my-printer-isnt-working-expert-advice-from-yl-computing-and-software/"><u>Solving the Dilemma: My Printer Isn't Working - Expert Advice From YL Computing & Software</u></a></li>
-<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-xiaomi-redmi-note-12-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unlocking-the-potential-effective-use-of-split-screen-on-facebook/"><u>Unlocking the Potential Effective Use of Split-Screen on Facebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-next-level-in-monitor-technology-a-deep-dive-into-p2715qs-wonders/"><u>[New] The Next Level in Monitor Technology - A Deep Dive Into P2715Q's Wonders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-game-changing-screens-and-tvs-discover-the-best-for-your-xbox-series-x/"><u>[Updated] In 2024, Game-Changing Screens & TVs - Discover the Best For Your Xbox Series X</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-archiving-your-favorites-the-complete-list-of-9-podcast-recording-steps/"><u>2024 Approved Archiving Your Favorites The Complete List of 9 Podcast Recording Steps</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/are-users-experiencing-issues-with-aol-email-service/"><u>Are Users Experiencing Issues with AOL Email Service?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gopros-priciest-yet-best-camera-the-hero9-black/"><u>GoPro's Priciest Yet Best Camera - The HERO9 Black</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-division-2-not-launching-2024-tips/"><u>How to Fix Division 2 Not Launching – 2024 Tips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/master-photographers-tale-assembly-tool-for-2024/"><u>Master Photographer's Tale Assembly Tool for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/music-management-made-simple-in-inshot-for-2024/"><u>Music Management Made Simple in InShot for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/pinnacle-20-anime-songs-to-start-with/"><u>Pinnacle 20 Anime Songs to Start With</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-facebook-interaction-maximizing-impact-responsibly/"><u>The Art of Facebook Interaction: Maximizing Impact Responsibly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-rise-of-popular-images-a-deep-dive-into-meme-culture/"><u>The Rise of Popular Images A Deep Dive Into Meme Culture</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-ultimate-list-of-exciting-pc-clickers-you-cant-miss-for-2024/"><u>The Ultimate List of Exciting PC Clickers You Can't Miss for 2024</u></a></li>
 </ul></div>
 

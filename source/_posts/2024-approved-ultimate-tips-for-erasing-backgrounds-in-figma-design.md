@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ultimate Tips for Erasing Backgrounds in Figma Design\""
-date: 2024-08-23T17:50:46.535Z
-updated: 2024-08-24T17:50:46.535Z
+date: 2025-01-17T17:37:37.078Z
+updated: 2025-01-24T16:30:58.815Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,10 @@ This function lets you use brushstrokes to remove watermarks from your target pi
 
 With its Image Englargement feature, you can expand the size of your picture up to 400% without losing the quality.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to use PixCut to remove the background in Figma
 
 Here's how you can get the PixCut plugin in Figma and use it to remove the background in just three simple steps:
@@ -59,6 +63,10 @@ Here's how you can get the PixCut plugin in Figma and use it to remove the backg
 Step1 First, open a browser, visit the [Figma website](https://www.figma.com), and sign in to your account. On the main page, click **"Import File,"** select your image from your PC and click **"Open"** to upload it.
 
 ![importing image to figma to remove background](https://images.wondershare.com/filmora/article-images/2023/03/importing-image-to-figma-to-remove-background.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Once the import process is complete, click **"Done"** in the pop-up window and open your image. Now, click the "**Main Menu"** icon and choose **"Plugins" > "Find More Plugins"** from the drop-down menu.
 
@@ -72,9 +80,6 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
@@ -87,8 +92,9 @@ Follow these tips to remove the background of images with transparent or solid c
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (2) 3 Other Figma Plugins
 
 You can use the following **Figma plugins to remove the image background**:
@@ -112,13 +118,18 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
@@ -145,8 +156,9 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -187,8 +199,24 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-beyond-reality-boundaries-the-vr-journey-continues/"><u>[New] Beyond Reality Boundaries The VR Journey Continues</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-effortless-windows-11-must-know-essentials-for-2024/"><u>[New] Effortless Windows 11 Must-Know Essentials for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-next-gen-escapades-upcoming-best-playstation-vr-games-to-try/"><u>[New] Next-Gen Escapades Upcoming Best PlayStation VR Games to Try</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-iphoneandroid-screen-capture-for-google-meet-participants/"><u>[Updated] 2024 Approved IPhone/Android Screen Capture for Google Meet Participants</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-exploring-syma-x8c-battery-life/"><u>[Updated] Exploring Syma X8C Battery Life</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-non-gta-narratives-exploring-alternative-stories/"><u>[Updated] In 2024, Non-GTA Narratives Exploring Alternative Stories</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-strategies-for-hiring-superior-cinematographers/"><u>[Updated] Strategies for Hiring Superior Cinematographers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-choreographing-ideal-canon-time-lapse-shots/"><u>2024 Approved Choreographing Ideal Canon Time-Lapse Shots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-selecting-ideal-fpv-propellers-a-comprehensive-guide/"><u>2024 Approved Selecting Ideal FPV Propellers A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/charting-a-new-course-for-creative-vr-content-for-2024/"><u>Charting a New Course for Creative VR Content for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/diagnosing-and-repairing-issues-in-your-clownfish-speech-changer/"><u>Diagnosing and Repairing Issues in Your Clownfish Speech Changer</u></a></li>
+<li><a href="https://win11.techidaily.com/essential-tips-to-rescue-deskanywhere-on-win11/"><u>Essential Tips to Rescue DeskAnywhere on Win11</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-converting-video-content-from-twitter-to-an-audiophile-written-mp3-format/"><u>In 2024, Converting Video Content From Twitter to an Audiophile' Written MP3 Format</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-essential-gif-tools-for-x876-owners/"><u>In 2024, Essential GIF Tools for X/8/7/6 Owners</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location on Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-samsung-galaxy-m34-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Samsung Galaxy M34 Phones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-outdoor-adventures-with-garmins-gpsmap-64st-a-comprehensive-review/"><u>Mastering Outdoor Adventures with Garmin's GPSMAP 64St - A Comprehensive Review</u></a></li>
+</ul></div>
 
