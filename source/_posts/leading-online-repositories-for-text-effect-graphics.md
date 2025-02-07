@@ -1,7 +1,7 @@
 ---
 title: "Leading Online Repositories for Text Effect Graphics"
-date: 2025-01-23T23:09:40.329Z
-updated: 2025-01-25T11:19:11.424Z
+date: 2025-02-03T06:36:29.873Z
+updated: 2025-02-04T17:40:05.951Z
 tags: 
   - screen-recording
   - ai video
@@ -39,10 +39,6 @@ Using downloaded text effects not only saves time but also helps in achieving pe
 
 You will come across unlimited number of websites to download text effects for the popular photo and video editors belonging to Adobe. We have handpicked the best websites out of them that have a great collection of text effects that you can download as per your application.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Freepik
 
 <https://www.freepik.com/psd/text-effect>
@@ -50,10 +46,6 @@ You will come across unlimited number of websites to download text effects for t
 Freepik is one of the most popular sites for Adobe Photoshop text effect PPSD download. Therefore, if you want to add amazing texts and titles to your photos, posters, or flyers on Photoshop, Freepik is your destination. The site contains both free and premium text effects. You can view the popular text effects that most people use as well as the recent text effects to get the modern ones.
 
 ![freepik text effect](https://images.wondershare.com/filmora/article-images/2022/09/freepik-text-effect.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can also search different categories of text effects such as 3D text effect, neon effect, gold effect, and much more. You can also sort the text effects by their color and orientation so that you can choose as per your project requirements. You get exactly what you see in the mock typography and you can download PSD file instantly and edit everything as per your preference. The website is particularly popular for its 3D text effects, text effect fonts, and gold text effects.
 
@@ -65,10 +57,14 @@ If you are an Adobe Illustrator user and you are looking for illustrator text ef
 
 ![graphics family text effect](https://images.wondershare.com/filmora/article-images/2022/09/graphics-family-text-effect.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 These are static text effects and you download them in EPS file format that Illustrator supports. You can edit the text effects as per your project requirements. There are free as well as premium effects available and you can search by newest items, cheapest items as well as best sellers. The glowing blue effect, the modern purple gradient, retro layer text effects are some of its popular text effects that you can try out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Dribble
@@ -81,10 +77,6 @@ Dribble is another text effect PSD download platform where you get out of the bo
 
 Starting from underwater and neon text effects to glitch and broken text effects, you can download free as well as premium effects instantly. There are over 10,000+ text effects available to choose from. You can search by tags, text color, as well as timeframe to get the desired text effect for your graphics project.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Envato Elements
 
 <https://elements.envato.com/all-items/text+effect>
@@ -92,10 +84,6 @@ Starting from underwater and neon text effects to glitch and broken text effects
 Envato Elements is the most popular platform when it comes to downloading static and video text effect templates. You can go for Photoshop text effects download, Illustrator, and After Effects text effects. If you want to include stunning titles and texts in your video, there are over 10,000+ video templates available.
 
 ![envato elements text effect](https://images.wondershare.com/filmora/article-images/2022/09/envato-elements-text-effect.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Starting from glitch and simple motion video text effects to 3D text effects and retro text effects, you get everything under one platform. Besides, there are beautiful graphics templates available with text effects as well as stock text effect templates. You can browse the text effects by category and one template has different variations of text effects to suit your requirements.
 
@@ -107,7 +95,15 @@ If you are looking for funky Photoshop text effect PSD download, Behance is a gr
 
 ![behance text effect](https://images.wondershare.com/filmora/article-images/2022/09/behance-text-effect.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There are also text effects related to games such as Minecraft as well as flashy and funny typography. Select the color from the filters and you will get to see text effects related to the color so that you can place it suitably on your project. Apart from Photoshop, there are text effect templates available for Illustrator, InDesign, After Effects as well as Lightroom.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Edit Text Effects in Video
 
@@ -141,10 +137,6 @@ Part 1\. Best Sites to Download Text Effects
 
 You will come across unlimited number of websites to download text effects for the popular photo and video editors belonging to Adobe. We have handpicked the best websites out of them that have a great collection of text effects that you can download as per your application.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Freepik
 
 <https://www.freepik.com/psd/text-effect>
@@ -153,14 +145,10 @@ Freepik is one of the most popular sites for Adobe Photoshop text effect PPSD do
 
 ![freepik text effect](https://images.wondershare.com/filmora/article-images/2022/09/freepik-text-effect.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also search different categories of text effects such as 3D text effect, neon effect, gold effect, and much more. You can also sort the text effects by their color and orientation so that you can choose as per your project requirements. You get exactly what you see in the mock typography and you can download PSD file instantly and edit everything as per your preference. The website is particularly popular for its 3D text effects, text effect fonts, and gold text effects.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. GraphicsFamily
@@ -173,10 +161,6 @@ If you are an Adobe Illustrator user and you are looking for illustrator text ef
 
 These are static text effects and you download them in EPS file format that Illustrator supports. You can edit the text effects as per your project requirements. There are free as well as premium effects available and you can search by newest items, cheapest items as well as best sellers. The glowing blue effect, the modern purple gradient, retro layer text effects are some of its popular text effects that you can try out.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Dribble
 
 <https://dribbble.com/tags/psd\_text\_effect>
@@ -186,6 +170,10 @@ Dribble is another text effect PSD download platform where you get out of the bo
 ![dribble text effect](https://images.wondershare.com/filmora/article-images/2022/09/dribble-text-effect.jpg)
 
 Starting from underwater and neon text effects to glitch and broken text effects, you can download free as well as premium effects instantly. There are over 10,000+ text effects available to choose from. You can search by tags, text color, as well as timeframe to get the desired text effect for your graphics project.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Envato Elements
 
@@ -197,6 +185,10 @@ Envato Elements is the most popular platform when it comes to downloading static
 
 Starting from glitch and simple motion video text effects to 3D text effects and retro text effects, you get everything under one platform. Besides, there are beautiful graphics templates available with text effects as well as stock text effect templates. You can browse the text effects by category and one template has different variations of text effects to suit your requirements.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Behance
 
 <https://www.behance.net/?tracking\_source=typeahead\_search\_direct&search=text%20effect>
@@ -204,6 +196,10 @@ Starting from glitch and simple motion video text effects to 3D text effects and
 If you are looking for funky Photoshop text effect PSD download, Behance is a great platform. Most of the text effects are available for free and you can search for text effects and select different filters to get the desired text effect for your project. Starting from smoke and cloud text effect to gel and metal text effects, the platform has all the out of the box text effect that will make your text stand out.
 
 ![behance text effect](https://images.wondershare.com/filmora/article-images/2022/09/behance-text-effect.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There are also text effects related to games such as Minecraft as well as flashy and funny typography. Select the color from the filters and you will get to see text effects related to the color so that you can place it suitably on your project. Apart from Photoshop, there are text effect templates available for Illustrator, InDesign, After Effects as well as Lightroom.
 
@@ -221,6 +217,10 @@ Step1 Download and install Wondershare Filmora on your computer. Launch Filmora 
 
 ![download and install filmora](https://images.wondershare.com/filmora/guide/startup-window-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Import your video clip under Project Media folder. Drag and drop the clip onto the timeline and go to Titles option located at the top. Check out the different categories of text effects on the left panel.
 
 ![import video clip under project media folder](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -232,7 +232,7 @@ Step3 Select a text effect template and drop it onto the timeline. Place the tex
 Edit the style of the text as well as other settings as you think fit. You can even go to Advanced section to customize the effect minutely as per your requirements.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -263,14 +263,24 @@ If texts and titles are an important part of your graphics or videos, you should
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-unmatched-5-apps-for-harmonious-photoplussound-creation-for-2024/"><u>[New] Unmatched 5 Apps for Harmonious Photo+Sound Creation for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-synchronizing-teams-mastering-device-agnostic-zoom-events-for-2024/"><u>[Updated] Synchronizing Teams Mastering Device-Agnostic Zoom Events for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-optimal-strategies-for-youtube-to-mpeg-conversion/"><u>2024 Approved Optimal Strategies for YouTube-to-MPEG Conversion</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-record-and-upload-speeches-to-powerpoint/"><u>2024 Approved Record and Upload Speeches to PowerPoint</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-less-loved-aspects-of-virtual-worlds/"><u>2024 Approved The Less-Loved Aspects of Virtual Worlds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/apex-design-studio-examination-for-2024/"><u>Apex Design Studio Examination for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-samsung-galaxy-xcover-7-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Samsung Galaxy XCover 7</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-series-exceptional-5-slow-mo-tech/"><u>Ultimate Series Exceptional 5 Slow Mo Tech</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-registration-and-login/"><u>Updated In 2024, Registration and Login</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-windowsmac-guide-to-opening-srt-audio-cues/"><u>[New] 2024 Approved Windows/Mac Guide to Opening SRT Audio Cues</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-elevate-hd-imagery-comprehensive-guide-for-windows-enthusiasts/"><u>[New] Elevate HD Imagery Comprehensive Guide for Windows Enthusiasts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-best-tvs-to-accompany-your-highest-rated-consoles/"><u>[New] In 2024, Best TVs to Accompany Your Highest Rated Consoles</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-quick-recording-trick-webcam-plus-display-on-the-fly/"><u>[New] In 2024, Quick Recording Trick Webcam + Display on the Fly</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-unlocking-windows-10-seamless-media-importation-techniques/"><u>[New] In 2024, Unlocking Windows 10 Seamless Media Importation Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-sierras-complete-access-to-cloud-documentationdrive-for-2024/"><u>[New] Sierra's Complete Access to Cloud Documentation/Drive for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-zoo-matic-guide-to-improved-snapchat-media/"><u>[New] The Zoo-Matic Guide to Improved Snapchat Media</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlocking-creative-power-for-youtube-intros-in-imovie-for-2024/"><u>[New] Unlocking Creative Power for YouTube Intros in iMovie for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-perfecting-iphone-images-in-dim-light/"><u>[Updated] In 2024, Perfecting iPhone Images in Dim Light</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mixed-reality-blending-physical-and-virtual-worlds-for-2024/"><u>[Updated] Mixed Reality Blending Physical and Virtual Worlds for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-lens-on-innovation-how-hdri-redefines-video-production-standards/"><u>2024 Approved A Lens on Innovation How HDRI Redefines Video Production Standards</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-infinite-rotation-video-anchors/"><u>2024 Approved Infinite Rotation Video Anchors</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/complete-walkthrough-for-snapping-screenshots-on-microsofts-latest-os/"><u>Complete Walkthrough for Snapping Screenshots on Microsoft's Latest OS</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-poco-x5-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Poco X5 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-latest-mpow-bluetooth-driver-update-for-windows-download-now/"><u>Get Latest MPOW Bluetooth Driver Update for Windows - Download Now</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-12-mini-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 12 mini Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevate-sound-recording-on-windows-the-ultimate-guide/"><u>In 2024, Elevate Sound Recording on Windows The Ultimate Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-mastery-guide-to-flawless-srt-file-construction/"><u>In 2024, Mastery Guide to Flawless SRT File Construction</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-windows-1011s-dxgi-disconnection-issues/"><u>Resolving Windows 10/11'S DXGI Disconnection Issues</u></a></li>
 </ul></div>
 

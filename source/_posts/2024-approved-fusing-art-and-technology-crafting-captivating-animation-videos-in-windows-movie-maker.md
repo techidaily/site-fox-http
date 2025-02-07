@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Fusing Art & Technology  Crafting Captivating Animation Videos in Windows Movie Maker\""
-date: 2024-08-23T17:54:13.715Z
-updated: 2024-08-24T17:54:13.715Z
+date: 2025-01-31T03:51:07.554Z
+updated: 2025-02-05T13:21:48.552Z
 tags: 
   - screen-recording
   - ai video
@@ -42,13 +42,14 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
 
 ##### Step4Add Transitions
@@ -57,13 +58,14 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
 ## Part 2\. Movie Maker Alternative to Add Animations
@@ -92,9 +94,6 @@ Filmora helps you create your text animation using the controller window as seen
 
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. Related FAQs about Windows Movie Maker
 
 1. **Where is the Visual Effects tab in Movie Maker?**
@@ -127,14 +126,19 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step5Save the Video
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Movie Maker Alternative to Add Animations
 
@@ -161,6 +165,10 @@ Filmora helps you create your text animation using the controller window as seen
 ##### Step4Export the Project
 
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about Windows Movie Maker
 
@@ -198,8 +206,22 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/nicker-sounds-hilarious-song-imitations-for-2024/"><u>[New] Snicker Sounds Hilarious Song Imitations for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-free-facebook-management-smart-post-scheduling-tips/"><u>[Updated] Free Facebook Management Smart Post Scheduling Tips</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-review-of-fintie-macbook-pro-13-inch-case-striking-the-perfect-balance-between-strength-and-cost-efficiency/"><u>Comprehensive Review of Fintie MacBook Pro 13 Inch Case: Striking the Perfect Balance Between Strength & Cost-Efficiency</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/easy-ways-to-link-your-device-to-a-network-through-the-control-panel-tips-from-yl-software-experts/"><u>Easy Ways to Link Your Device to a Network Through the Control Panel - Tips From YL Software Experts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevating-live-tiktok-content-via-zoom/"><u>Elevating Live TikTok Content via Zoom</u></a></li>
+<li><a href="https://fox-http.techidaily.com/essential-iphone-applications-for-clearing-photos-of-obstacles-for-2024/"><u>Essential iPhone Applications for Clearing Photos of Obstacles for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-the-best-of-gopro-cameras-side-by-side-for-2024/"><u>Exploring the Best of GoPro Cameras Side by Side for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/free-online-image-perfection-at-your-fingertips-for-2024/"><u>Free Online Image Perfection at Your Fingertips for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-flat-to-360-comparing-googles-cardboard-and-samsungs-gear-for-2024/"><u>From Flat to 360 Comparing Google's Cardboard & Samsung's Gear for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/from-novice-to-expert-a-guide-for-effective-single-stream-livestreams/"><u>From Novice to Expert A Guide for Effective Single-Stream Livestreams</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/fujitsus-leading-desktop-scanner-reviewed-the-exceptional-ix1600-for-efficient-document-management/"><u>Fujitsu's Leading Desktop Scanner Reviewed: The Exceptional iX1600 for Efficient Document Management</u></a></li>
+<li><a href="https://fox-http.techidaily.com/guide-to-optimal-audio-changer-tools-for-vtubers-for-2024/"><u>Guide to Optimal Audio Changer Tools for VTubers for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revamping-the-undead-a-comprehensive-7-days-to-die-game-overview/"><u>Revamping the Undead: A Comprehensive 7 Days to Die Game Overview</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-seekers-manual-a-comprehensive-approach-to-purchasing-high-definition-monitors-for-2024/"><u>The Seeker's Manual A Comprehensive Approach to Purchasing High-Definition Monitors for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/winning-over-common-mmc-snapshot-glitches/"><u>Winning Over Common MMC Snapshot Glitches</u></a></li>
+</ul></div>
 

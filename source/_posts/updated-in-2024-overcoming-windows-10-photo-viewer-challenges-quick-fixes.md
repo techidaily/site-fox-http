@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming Windows 10 Photo Viewer Challenges  Quick Fixes\""
-date: 2025-01-23T09:44:38.930Z
-updated: 2025-01-25T08:41:20.132Z
+date: 2025-02-02T17:55:43.732Z
+updated: 2025-02-05T11:15:25.278Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -63,14 +59,14 @@ Here is how to troubleshoot –
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
@@ -85,10 +81,14 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -99,10 +99,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -132,6 +128,10 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -159,24 +159,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-calls-recorded-and-saved-iphone-24-sound-guide-for-2024/"><u>[New] Calls Recorded & Saved IPhone '24 Sound Guide for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-chromatic-excellence-program-for-2024/"><u>[New] Chromatic Excellence Program for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-immersive-image-tech-best-10-phone-cameras-for-stunning-4k-visuals/"><u>[New] Immersive Image Tech Best 10 Phone Cameras for Stunning 4K Visuals</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-professional-premiere-practices-implementing-inout-effects/"><u>[New] Professional Premiere Practices Implementing In/Out Effects</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-a-beginners-guide-to-advanced-techniques-in-gopro-studio/"><u>[Updated] 2024 Approved A Beginner's Guide to Advanced Techniques in GoPro Studio</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-essential-techniques-in-producing-persuasive-video-testimonials-for-2024/"><u>[Updated] Essential Techniques in Producing Persuasive Video Testimonials for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-navigate-iphones-dual-task-capabilities-effortlessly-for-2024/"><u>[Updated] Navigate iPhone's Dual-Task Capabilities Effortlessly for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-redesigned-look-at-s3700-sony-entertainment-for-2024/"><u>[Updated] Redesigned Look at S3700 Sony Entertainment for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-nighttime-action-gopro-hero5-vs-star-sj7/"><u>2024 Approved Nighttime Action GoPro Hero5 vs Star SJ7</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-real-time-capture-from-obs-to-instagram/"><u>2024 Approved Real-Time Capture From OBS to Instagram</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-lava-blaze-curve-5g-frp-bypass-by-drfone-android/"><u>About Lava Blaze Curve 5G FRP Bypass</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-6s-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-huawei-nova-y71-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Huawei Nova Y71 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-address-the-situation-when-you-cant-find-mss32dll-file/"><u>How To Address The Situation When You Can't Find mss32.dll File</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6-passcode-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 6 Passcode without Computer?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Motorola Moto G84 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/keeping-memories-afloat-unlimited-free-photo-stash-plus-charged-backups/"><u>Keeping Memories Afloat Unlimited Free Photo Stash + Charged Backups</u></a></li>
-<li><a href="https://fox-http.techidaily.com/mastering-flight-control-best-motor-selections-unveiled/"><u>Mastering Flight Control Best Motor Selections Unveiled</u></a></li>
-<li><a href="https://network-issues.techidaily.com/transform-your-monitors-layout-on-w11/"><u>Transform Your Monitor's Layout on W11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ivot-points-revolutionize-your-youtube-angles-with-ease/"><u>[New] Pivot Points Revolutionize Your YouTube Angles with Ease</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-prime-windows-10-photo-display/"><u>[Updated] 2024 Approved Prime Windows 10 Photo Display</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-comprehen-word-limit-reached-continuation-in-the-next-step/"><u>[Updated] 2024 Approved The Comprehen... (Word Limit Reached, Continuation in the Next Step)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-digitizing-creativity-prime-nft-generating-platforms-revealed/"><u>[Updated] In 2024, Digitizing Creativity Prime NFT-Generating Platforms Revealed</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-elevate-your-visual-content-a-guide-to-videoleap-zooming/"><u>[Updated] In 2024, Elevate Your Visual Content A Guide to Videoleap Zooming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unlocking-secrets-the-battle-of-biometric-systems-in-phones-for-2024/"><u>[Updated] Unlocking Secrets The Battle of Biometric Systems in Phones for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-groundbreaking-footage-starts-here-basics-for-novice-filmmakers/"><u>2024 Approved Groundbreaking Footage Starts Here Basics for Novice Filmmakers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comparing-macbooks-with-desktops-understanding-their-true-differences/"><u>Comparing MacBooks with Desktops: Understanding Their True Differences</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/converter-gratuitamente-imagens-ppm-em-bmp-on-line-com-a-ferramenta-grafica-da-movavi-nao-ha-custo-envolvido/"><u>Converter Gratuitamente Imagens PPM Em BMP On-Line Com a Ferramenta Gráfica Da Movavi – Não Há Custo Envolvido!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-xiaomi-civi-3-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-reframe-twitter-video-box-icon/"><u>In 2024, Reframe Twitter Video Box Icon</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-transition-techniques-decreasing-volume-gradually-in-pp/"><u>In 2024, Transition Techniques Decreasing Volume Gradually in PP</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-fix-for-everyday-iphone-12-challenges-discover-how-to-overcome-them/"><u>Ultimate Fix for Everyday iPhone 12 Challenges: Discover How to Overcome Them</u></a></li>
 </ul></div>
 
