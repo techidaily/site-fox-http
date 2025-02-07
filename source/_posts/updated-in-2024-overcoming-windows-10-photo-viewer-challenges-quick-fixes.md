@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming Windows 10 Photo Viewer Challenges  Quick Fixes\""
-date: 2025-02-02T17:55:43.732Z
-updated: 2025-02-05T11:15:25.278Z
+date: 2025-02-03T05:37:19.123Z
+updated: 2025-02-07T07:59:24.490Z
 tags: 
   - screen-recording
   - ai video
@@ -58,16 +58,8 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -81,14 +73,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -99,6 +87,10 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -111,6 +103,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -122,6 +118,10 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -129,7 +129,7 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -159,18 +159,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ivot-points-revolutionize-your-youtube-angles-with-ease/"><u>[New] Pivot Points Revolutionize Your YouTube Angles with Ease</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-prime-windows-10-photo-display/"><u>[Updated] 2024 Approved Prime Windows 10 Photo Display</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-comprehen-word-limit-reached-continuation-in-the-next-step/"><u>[Updated] 2024 Approved The Comprehen... (Word Limit Reached, Continuation in the Next Step)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-digitizing-creativity-prime-nft-generating-platforms-revealed/"><u>[Updated] In 2024, Digitizing Creativity Prime NFT-Generating Platforms Revealed</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-elevate-your-visual-content-a-guide-to-videoleap-zooming/"><u>[Updated] In 2024, Elevate Your Visual Content A Guide to Videoleap Zooming</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unlocking-secrets-the-battle-of-biometric-systems-in-phones-for-2024/"><u>[Updated] Unlocking Secrets The Battle of Biometric Systems in Phones for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-groundbreaking-footage-starts-here-basics-for-novice-filmmakers/"><u>2024 Approved Groundbreaking Footage Starts Here Basics for Novice Filmmakers</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comparing-macbooks-with-desktops-understanding-their-true-differences/"><u>Comparing MacBooks with Desktops: Understanding Their True Differences</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/converter-gratuitamente-imagens-ppm-em-bmp-on-line-com-a-ferramenta-grafica-da-movavi-nao-ha-custo-envolvido/"><u>Converter Gratuitamente Imagens PPM Em BMP On-Line Com a Ferramenta Gráfica Da Movavi – Não Há Custo Envolvido!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-xiaomi-civi-3-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-reframe-twitter-video-box-icon/"><u>In 2024, Reframe Twitter Video Box Icon</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-transition-techniques-decreasing-volume-gradually-in-pp/"><u>In 2024, Transition Techniques Decreasing Volume Gradually in PP</u></a></li>
-<li><a href="https://fox-that.techidaily.com/ultimate-fix-for-everyday-iphone-12-challenges-discover-how-to-overcome-them/"><u>Ultimate Fix for Everyday iPhone 12 Challenges: Discover How to Overcome Them</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-design-and-produce-your-fb-profile-vids/"><u>[New] Design and Produce Your FB Profile Vids</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-free-frame-conversion-tweeting-vids-into-animated-gifs/"><u>[New] Free Frame Conversion Tweeting Vids Into Animated GIFs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-precise-methods-for-recording-your-facetime-communication/"><u>[New] Precise Methods for Recording Your FaceTime Communication</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-metaverse-makeover-easy-avatar-construction/"><u>[New] The Metaverse Makeover Easy Avatar Construction</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-discover-easy-free-video-transformation-platforms-with-unmatched-features/"><u>[Updated] Discover Easy, Free Video Transformation Platforms with Unmatched Features</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-tutorial-for-posting-pics-on-ig/"><u>[Updated] In 2024, The Ultimate Tutorial for Posting Pics on IG</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-xsplit-free-splitting-tools-for-modern-viewers/"><u>[Updated] In 2024, Xsplit-Free Splitting Tools for Modern Viewers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mindful-moments-elite-yoga-routines-for-serenity/"><u>[Updated] Mindful Moments Elite Yoga Routines for Serenity</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-transcendence-in-music-mixing-crossfade-unveiled/"><u>2024 Approved Transcendence in Music Mixing Crossfade Unveiled</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-interactive-learning-strategies-in-video-editing/"><u>In 2024, Interactive Learning Strategies in Video Editing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/perfect-pathway-setting-up-movie-maker-6/"><u>Perfect Pathway Setting Up Movie Maker 6</u></a></li>
 </ul></div>
 
