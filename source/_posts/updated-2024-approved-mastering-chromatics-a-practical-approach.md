@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Chromatics  A Practical Approach\""
-date: 2025-02-02T20:45:01.443Z
-updated: 2025-02-07T03:43:14.277Z
+date: 2025-02-15T16:08:50.312Z
+updated: 2025-02-16T16:09:04.678Z
 tags: 
   - screen-recording
   - ai video
@@ -27,15 +27,15 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Color Theory
 
 Color theory consists of many elements that could fill a library on its own but for this guide we will focus on two key elements. The color wheel and color harmony. By understanding the color wheel and color harmony you can hand pick which colors to add or use in your pieces to create a well-balanced viewing experience which can help in viewer engagement and enjoyment.
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Color Wheel
 
@@ -43,11 +43,11 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 ## Color Harmony
 
@@ -56,7 +56,7 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
@@ -73,20 +73,20 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,22 +123,16 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-cutting-edge-video-techniques-with-apple-music/"><u>[New] 2024 Approved Cutting-Edge Video Techniques with Apple Music</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/omedy-in-a-click-best-funny-short-video-suggestions-for-youtubers/"><u>[New] Comedy in a Click Best Funny Short Video Suggestions for YouTubers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-diy-meme-magic-perfecting-the-art-of-gifs-for-2024/"><u>[New] DIY Meme Magic Perfecting the Art of GIFs for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-pioneering-playlists-transitioning-with-confidence/"><u>[New] Pioneering Playlists Transitioning with Confidence</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-film-making-mastery-guidebook/"><u>[Updated] 2024 Approved Film Making Mastery Guidebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-strategic-spending-to-skyrocket-your-video-views/"><u>[Updated] 2024 Approved Strategic Spending to Skyrocket Your Video Views</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-engaging-audiences-youtube-shorts-vs-tiktok-trends/"><u>[Updated] In 2024, Engaging Audiences Youtube Shorts Vs. TikTok Trends</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-key-frames-per-second-in-superior-slow-motion-imaging/"><u>[Updated] Key Frames per Second in Superior Slow Motion Imaging</u></a></li>
-<li><a href="https://win11.techidaily.com/compreehing-window-10-closed-caption-problems-a-quick-fix/"><u>Compreehing Window 10 Closed Caption Problems: A Quick Fix</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-pro-max-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 Pro Max without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-on-your-apple-iphone-11-pro-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card on Your Apple iPhone 11 Pro Apple ID and Apple Pay</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-screen-selection-simplified-ultrawide-versus-uhd-4k-demystified/"><u>In 2024, Screen Selection Simplified UltraWide Versus UHD 4K Demystified</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unplug-and-laugh-select-the-best-15-funny-youtube-sources/"><u>In 2024, Unplug and Laugh Select the Best 15 Funny YouTube Sources</u></a></li>
-<li><a href="https://fox-http.techidaily.com/legacy-in-pixels-iphone-x-memories-photography/"><u>Legacy in Pixels IPhone X Memories Photography</u></a></li>
-<li><a href="https://article-posts.techidaily.com/nostalgia-revue-old-school-review-of-the-goofys-for-2024/"><u>Nostalgia Revue Old-School Review of The Goofys for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/ultimate-guide-to-budget-friendly-4k-cameras-for-2024/"><u>Ultimate Guide to Budget-Friendly 4K Cameras for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-discreetly-share-life-with-instagram-live-for-2024/"><u>[New] Discreetly Share Life with Instagram Live for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-essential-tips-for-photosvideos-in-windows-10-for-2024/"><u>[New] Essential Tips for Photos/Videos in Windows 10 for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-ghostly-pause-recorder-tutorial/"><u>[New] Ghostly Pause Recorder Tutorial</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-puns-and-plots-developing-7-funny-video-storylines/"><u>[New] In 2024, Puns & Plots Developing 7 Funny Video Storylines</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-puzzle-prints-crafting-hilarity-in-minutes/"><u>[New] In 2024, Puzzle Prints Crafting Hilarity in Minutes</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/onetize-like-a-pro-how-to-use-youtube-studio-on-any-device-for-2024/"><u>[New] Monetize Like a Pro How to Use Youtube Studio on Any Device for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-get-loved-fast-essential-bio-hacks-that-work-on-every-version-of-tinder/"><u>[Updated] Get Loved, Fast Essential Bio Hacks that Work on Every Version of Tinder</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/essential-guide-to-cheap-video-conferencing-tools-for-computers-for-2024/"><u>Essential Guide to Cheap Video Conferencing Tools for Computers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/navigating-iphone-camera-not-auto-focusing-woes/"><u>Navigating iPhone Camera Not Auto-Focusing Woes</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/step-by-step-instructions-for-opening-device-manager-in-windows-tips-from-yl-computer-experts/"><u>Step-by-Step Instructions for Opening Device Manager in Windows - Tips From YL Computer Experts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-on-adding-soundtracks-to-insta-clips/"><u>Step-by-Step Tutorial on Adding Soundtracks to Insta Clips</u></a></li>
 </ul></div>
 

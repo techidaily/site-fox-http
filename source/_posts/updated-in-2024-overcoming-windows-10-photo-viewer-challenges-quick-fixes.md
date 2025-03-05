@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming Windows 10 Photo Viewer Challenges  Quick Fixes\""
-date: 2025-02-03T05:37:19.123Z
-updated: 2025-02-07T07:59:24.490Z
+date: 2025-02-11T16:12:39.035Z
+updated: 2025-02-16T16:09:32.147Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -57,6 +61,10 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -73,7 +81,7 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
@@ -88,10 +96,6 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -104,7 +108,7 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -119,7 +123,7 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,10 +131,6 @@ Here is how to reinstall the Windows 10 Photos App –
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -159,17 +159,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-design-and-produce-your-fb-profile-vids/"><u>[New] Design and Produce Your FB Profile Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-free-frame-conversion-tweeting-vids-into-animated-gifs/"><u>[New] Free Frame Conversion Tweeting Vids Into Animated GIFs</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-precise-methods-for-recording-your-facetime-communication/"><u>[New] Precise Methods for Recording Your FaceTime Communication</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-metaverse-makeover-easy-avatar-construction/"><u>[New] The Metaverse Makeover Easy Avatar Construction</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-discover-easy-free-video-transformation-platforms-with-unmatched-features/"><u>[Updated] Discover Easy, Free Video Transformation Platforms with Unmatched Features</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-tutorial-for-posting-pics-on-ig/"><u>[Updated] In 2024, The Ultimate Tutorial for Posting Pics on IG</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-xsplit-free-splitting-tools-for-modern-viewers/"><u>[Updated] In 2024, Xsplit-Free Splitting Tools for Modern Viewers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mindful-moments-elite-yoga-routines-for-serenity/"><u>[Updated] Mindful Moments Elite Yoga Routines for Serenity</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-transcendence-in-music-mixing-crossfade-unveiled/"><u>2024 Approved Transcendence in Music Mixing Crossfade Unveiled</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-interactive-learning-strategies-in-video-editing/"><u>In 2024, Interactive Learning Strategies in Video Editing</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Vivo V27 | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/perfect-pathway-setting-up-movie-maker-6/"><u>Perfect Pathway Setting Up Movie Maker 6</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-instagram-music-copyright-rules/"><u>[New] 2024 Approved Instagram Music Copyright Rules</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-art-of-influence-essential-marketing-expressions-explained/"><u>[New] The Art of Influence Essential Marketing Expressions Explained</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-illuminating-images-techniques-in-color-science/"><u>[Updated] Illuminating Images Techniques in Color Science</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-become-a-kinemaster-wizard-essentials-techniques-and-10-top-online-contenders/"><u>[Updated] In 2024, Become a KineMaster Wizard Essentials, Techniques & 10 Top Online Contenders</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-navigating-video-chats-zooming-in-on-xbox/"><u>[Updated] In 2024, Navigating Video Chats Zooming In on Xbox</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-unleashing-your-gaming-potential-with-win10-recordings/"><u>[Updated] In 2024, Unleashing Your Gaming Potential with Win10 Recordings</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-journey-from-content-creator-to-money-maker-on-youtube-for-2024/"><u>[Updated] The Journey From Content Creator to Money-Maker on YouTube for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-xiaomi-redmi-note-12-proplus-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Xiaomi Redmi Note 12 Pro+ 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/karaoki-updates-unveiled-beta-v09amo-improved-scrolling-new-features-for-djing-enthusiasts/"><u>Karaoki Updates Unveiled - Beta v0.9.amo Improved Scrolling, New Features for DJing Enthusiasts!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/successful-steps-installing-and-opening-mov-videos-in-windows-media-player/"><u>Successful Steps: Installing and Opening .MOV Videos in Windows Media Player</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ree-software-for-turning-videos-into-files/"><u>Top Free Software for Turning Videos Into Files</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Samsung Galaxy S24 | Dr.fone</u></a></li>
 </ul></div>
 

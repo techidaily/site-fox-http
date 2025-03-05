@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Key Tactics for Testimonial Videos"
-date: 2025-01-20T17:57:09.398Z
-updated: 2025-01-25T11:11:14.651Z
+date: 2025-02-14T16:04:23.694Z
+updated: 2025-02-16T16:10:34.389Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ If you want to learn how to create video testimonials that convert, then this po
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Identify Your Perfect Customer
 
 ![identify your perfect customer](https://images.wondershare.com/filmora/article-images/2022/07/identify-your-perfect-customer.jpg)
@@ -36,22 +40,18 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If possible, talk with current customers and ask them what they love about their experience with your business.
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Include Strong Opinions
 
@@ -64,7 +64,7 @@ It may seem like a daunting task, but there are several ways you can go about de
 * Please avoid saying the word "me" because this makes it sound like you're speaking in the third person—which can come across as unnatural and pretentious.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Keep it All Short and Sweet
@@ -90,7 +90,7 @@ This is a given. If you want your testimonial videos to be effective and believa
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
@@ -102,7 +102,7 @@ If someone says "I love this product," but then shows their eyes darting around 
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
@@ -143,22 +143,24 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-engage-and-enthrall-viewers-gaming-via-obs-studio/"><u>[New] 2024 Approved Engage and Enthrall Viewers Gaming via OBS Studio</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-zenful-beats-top-10-free-downloads-for-serene-meditation/"><u>[New] In 2024, Zenful Beats - Top 10 Free Downloads for Serene Meditation</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-supreme-storytelling-spanning-eight-movie-types/"><u>[Updated] Supreme Storytelling Spanning Eight Movie Types</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-discover-the-leading-livestream-service-sites/"><u>2024 Approved Discover the Leading Livestream Service Sites</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-maximizing-4k-quality-selecting-between-projection-and-television-screens/"><u>2024 Approved Maximizing 4K Quality Selecting Between Projection and Television Screens</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-realtime-hd-uplift-for-pc-mac-and-online-devices/"><u>2024 Approved RealTime HD Uplift for PC, Mac & Online Devices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-techniques-for-accelerating-playback-on-spotify/"><u>2024 Approved Techniques for Accelerating Playback on Spotify</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-lgs-monitor-magic-a-comprehensible-review-of-4k-tech/"><u>2024 Approved Unveiling LG's Monitor Magic A Comprehensible Review of 4K Tech</u></a></li>
-<li><a href="https://fox-http.techidaily.com/bringing-history-alive-old-images-in-new-video-formats/"><u>Bringing History Alive Old Images in New Video Formats</u></a></li>
-<li><a href="https://fox-http.techidaily.com/budget-friendly-drone-picks-best-bargains-for-less-than-500-for-2024/"><u>Budget-Friendly Drone Picks Best Bargains for Less than $500 for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/discreetly-conceal-identity-photo-edit-tip/"><u>Discreetly Conceal Identity Photo Edit Tip</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-watch-nba-live-streams-ultimate-top-10-sites-list-for-basketball-fans/"><u>Free Watch NBA Live Streams - Ultimate Top 10 Sites List for Basketball Fans</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/heartfelt-algorithms-deciphering-the-language-of-emotions/"><u>Heartfelt Algorithms: Deciphering the Language of Emotions</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-connectivity-problems-in-the-steam-user-community-interface/"><u>Overcoming Connectivity Problems in the Steam User Community Interface</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/say-goodbye-to-system-freezes-fixed-version-of-gameappservice/"><u>Say Goodbye to System Freezes - Fixed Version of [Game/App/Service]</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-ultimate-strategy-for-google-podcast-uploads/"><u>The Ultimate Strategy for Google Podcast Uploads</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-elevate-your-vlog-game-the-top-10-mobile-video-editing-apps-for-2024/"><u>Updated Elevate Your Vlog Game The Top 10 Mobile Video Editing Apps for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-satire-software-studio/"><u>[New] 2024 Approved Satire Software Studio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-sound-streaming-showdown-which-is-the-better-choice-podcast-or-youtube/"><u>[New] 2024 Approved Sound Streaming Showdown Which Is the Better Choice, Podcast or YouTube?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-reimagining-creation-in-the-crypto-world-a-guide-to-top-nft-generating-platforms-for-2024/"><u>[New] Reimagining Creation in the Crypto World - A Guide to Top NFT-Generating Platforms for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-10-step-plan-thriving-in-social-media-management/"><u>[New] The Ultimate 10-Step Plan Thriving in Social Media Management</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-10-best-flash-and-fly-player-for-pc-and-mobile/"><u>[Updated] 10 Best Flash and Fly Player for PC and Mobile</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-androids-lightroom-app-a-complete-evaluation/"><u>[Updated] 2024 Approved Android's Lightroom App A Complete Evaluation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-nikons-journey-to-excellence-the-4k-camera-review/"><u>[Updated] 2024 Approved Nikon's Journey to Excellence The 4K Camera Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-auditory-ambiance-elevating-your-instagram-creations/"><u>[Updated] Auditory Ambiance Elevating Your Instagram Creations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-ignite-your-artistic-spirit-find-the-premier-android-drawing-tools/"><u>[Updated] Ignite Your Artistic Spirit Find the Premier Android Drawing Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-real-time-chromebook-display-logger-for-2024/"><u>[Updated] Real-Time Chromebook Display Logger for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-elite-choices-a-guide-to-hdr-cameras/"><u>2024 Approved Unveiling Elite Choices A Guide to HDR Cameras</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/expert-tips-for-efficient-music-integration-in-premiere-pro/"><u>Expert Tips for Efficient Music Integration in Premiere Pro</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expertise-in-cutting-edge-encoders-for-live-media/"><u>Expertise in Cutting-Edge Encoders for Live Media</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719170860868-gamers-delight-classic-retro-games-for-your-ios-device/"><u>Gamers Delight: Classic Retro Games for Your iOS Device</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-a1x-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Oppo A1x 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/iphone-vs-android-costs-are-smartphones-really-equal-in-price/"><u>IPhone Vs. Android Costs: Are Smartphones Really Equal in Price?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-break-free-from-sony-vegas-explore-these-exceptional-windows-alternatives/"><u>New 2024 Approved Break Free From Sony Vegas Explore These Exceptional Windows Alternatives</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-therere-two-ways-to-create-the-ken-burns-effect-in-final-cut-pro-using-the-automated-ken-burns-effect-tools-or-keyframes-check-this-article-to-find-out-/"><u>New Therere Two Ways to Create the Ken Burns Effect in Final Cut Pro Using the Automated Ken Burns Effect Tools or Keyframes. Check This Article to Find Out How-To</u></a></li>
+<li><a href="https://fox-http.techidaily.com/snicker-studio-cybernetic-cackles-for-2024/"><u>Snicker Studio Cybernetic Cackles for 2024</u></a></li>
 </ul></div>
 

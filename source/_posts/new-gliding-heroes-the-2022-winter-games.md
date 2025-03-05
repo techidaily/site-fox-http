@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Gliding Heroes  The 2022 Winter Games\""
-date: 2024-09-06T18:18:44.127Z
-updated: 2024-09-07T18:18:44.127Z
+date: 2025-02-14T16:02:27.714Z
+updated: 2025-02-16T16:06:54.344Z
 tags: 
   - screen-recording
   - ai video
@@ -23,11 +23,9 @@ Winter Olympics is synonymous with Figure Skating as it is the oldest sports eve
 Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter Olympics. Yuma Kagiyama of Japan won the silver medal while the bronze medal went to Shoma Uno in Men's singles figure skating competition. On the other hand, the gold medal of the team event went to ROC while the silver medal went to United Stated and the bronze medal went to Japan. Here are all the figure skating highlights 2022 Beijing Winter Olympics. We will also illustrate how to create the highlights of figure skating in a video in simple steps.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
 
 In Olympic competition, skaters need to perform two minutes and 40 seconds short program and four minutes free skate and the winner is decided based on combined score.
@@ -36,12 +34,6 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
@@ -55,14 +47,16 @@ Shoma Uno of Japan won the bronze medal with a combined score of 293 points and 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
@@ -94,12 +88,6 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
@@ -107,11 +95,9 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
@@ -119,11 +105,9 @@ Step 5: Select individual or multiple slides and add Transitions, Effects, Title
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Figure skating is undoubtedly one of the most followed sport events in the Winter Olympics. Naturally, there is a huge demand for figure skating highlights across the Winter Olympics fans and followers. We have provided figure skating highlights 2022 and we have illustrated the steps to create a highlight video of figure skating easily.
@@ -145,8 +129,19 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-visual-vibrancy-a-step-by-step-on-animating-story-captions/"><u>[New] 2024 Approved Visual Vibrancy A Step-by-Step on Animating Story Captions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-achieving-high-quality-tiktok-videos-the-zoom-method-for-2024/"><u>[New] Achieving High-Quality TikTok Videos The Zoom Method for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-proven-practice-for-preserving-playthroughs-tips-and-tricks-for-recording-roblox-gameplay-on-a-mac-for-2024/"><u>[New] Proven Practice for Preserving Playthroughs Tips & Tricks for Recording Roblox Gameplay on a Mac for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-masterclasses-in-applying-online-vhs-filters-and-graphics/"><u>[Updated] 2024 Approved Masterclasses in Applying Online VHS Filters and Graphics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-dji-phantom-3-professional-review-for-2024/"><u>[Updated] DJI Phantom 3 Professional Review for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-tailoring-trailer-music-to-evoke-emotion/"><u>[Updated] Tailoring Trailer Music to Evoke Emotion</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-traverse-times-tapestry-with-public-domain-art/"><u>2024 Approved Traverse Time's Tapestry with Public Domain Art</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-photographic-prose-weaving-words-into-images-across-operating-systems/"><u>In 2024, Photographic Prose Weaving Words Into Images Across Operating Systems</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/innovate-your-online-research-choose-perplexity-ai/"><u>Innovate Your Online Research – Choose Perplexity AI</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-solution-to-fixing-compatibility-challenges-with-hp-laserjet-p2035-drivers-on-pcs/"><u>Step-by-Step Solution to Fixing Compatibility Challenges with HP LaserJet P2035 Drivers on PCs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-network-attached-storage-solutions-the-ultimate-guide-to-selecting-the-ideal-nas-device/"><u>Top Network-Attached Storage Solutions: The Ultimate Guide to Selecting the Ideal NAS Device</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unlocking-cross-device-connectivity-easy-steps-to-view-icloud-photos-and-files-everywhere/"><u>Unlocking Cross-Device Connectivity: Easy Steps to View iCloud Photos and Files Everywhere</u></a></li>
+</ul></div>
 

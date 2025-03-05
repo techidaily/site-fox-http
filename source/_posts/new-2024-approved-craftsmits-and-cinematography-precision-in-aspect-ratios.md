@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Craftsmits and Cinematography  Precision in Aspect Ratios\""
-date: 2025-02-05T03:03:51.890Z
-updated: 2025-02-06T18:55:09.796Z
+date: 2025-02-10T16:09:51.271Z
+updated: 2025-02-16T16:16:07.072Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ With that said, let's dive right into it!
 
 Aspect ratio is a digital image projection attribute describing the distance between the width and the height of an image. The dimensions are also defined as shapes such as a square which is 4:3\. A rectangle represents the 16:9 standard high definition aspect ratio, and inverted what you see on phones, that will be 9:16\. 9 refers to the width and 16 to the height.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Commonly used aspect ratios
 
 There is no same aspect ratio that is used across all social media platforms. Depending on which social media platform you are planning to upload, you have to make sure you have the correct aspect ratio for your target audience. The optimal viewing experience is what matters.
@@ -45,21 +41,29 @@ There is no same aspect ratio that is used across all social media platforms. De
 
 This aspect ratio is recognized as the worldwide reference format for film, mobile devides, DSLR cameras, streaming platforms, social media platforms, and many more. It is known as landscape viewing which include 720p, 1080p HD and 4K resolution.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4:3 Standard
 
 This resolution is originally used in older television screens, which transformed into mobile use as this aspect ratio works really well for Instagram and Facebook videos, referring to the 9:16 phone resolution making a square video more pleasant to watch and to be featured in in-feed videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9:16 Vertical
 
 The 9:16 aspect ratio has become the mainstream resolution for smartphones for easier viewing of videos. This resolution allows for the vertical display of videos on tablets and phones, meaning that it allows videos to play while the device is being held in its upright position. This works ideally for Facebook, Instagram, Snapchat, YouTube Shorts, and more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 21:9 Cinematic Widescreen
 
 The 21:9 resolution is designed for filming ultra-wide screen movies that gives the viewer a theater-like feeling. It's mostly used to display films and movies in anamorphic formats. Just like on ultra-wide monitors, it allows the video to be shown across the entire screen, giving you a cinema-like experience. This resolution contributes to a broader viewing experience in any shape or form.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Which aspect ratio should I choose?
 
@@ -89,6 +93,10 @@ To this day, it's safe to say that YouTube is the leading platform in the video 
 
 21:9 for cinematic videos/shortfilms
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Instagram
 
 When talking about Instagram, which is very similar to Facebook, use these aspect ratios to ensure that your quality will be the best of the best.
@@ -107,10 +115,6 @@ When talking about Instagram, which is very similar to Facebook, use these aspec
 
 9:16 for IGTV
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### TikTok
 
 Before Musical.ly users were migrated to a new platform called TikTok in 2018, it has been the leader on the board for a long time, and here are the recommended resolutions we think give the best results. Tik Tok allows you to share short videos, and is used by young people as an outlet to show their talents whether it's dancing, singing, cooking, comedy or any other form of entertainment they can express and use on the platform. There's also a feature to work together and collaborate with other Tik Tok creators across the globe.
@@ -125,21 +129,17 @@ Before Musical.ly users were migrated to a new platform called TikTok in 2018, i
 
 A very important point we'd like to mention is that we don't recommend changing the aspect ratio after filming, because it could harm the video quality and we think it's best to choose the aspect ratio on your phone or camera before filming, besides that we have some great tips for optimizing your video for the watching experience below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Black bars
 
 When editing your video, adding black bars is not changing the aspect ratio as you are just adding black bars to the screen. What we do recommend is cropping the video until you get the desired result. Adding black bars won't automatically make the platform adjust the video and it will affect the viewer experience.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Cropping
 
 Cropping your video will allow you to remove a section from your video, which works perfect for unwanted objects or people. While cropping the video, you are forced to pick the essential part of your video and disregard the rest of the video and to remove distraction from the frame.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -175,22 +175,16 @@ Having your video tested on multiple devices will allow you to see a preview of 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-fcp-download-hack-get-it-for-free-in-2024/"><u>[New] FCP Download Hack Get It for Free, In 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-navigating-the-netizens-realm-youtube-videos-fb/"><u>[Updated] 2024 Approved Navigating the Netizen's Realm YouTube Videos FB</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-expanding-screen-coverage-of-youtube-videos/"><u>[Updated] In 2024, Expanding Screen Coverage of YouTube Videos</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-learn-the-tricks-of-the-trade-for-flipping-films-in-vlc/"><u>[Updated] In 2024, Learn the Tricks of the Trade for Flipping Films in VLC</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-8-best-authentic-youtube-growth-tactics/"><u>[Updated] In 2024, The 8 Best Authentic Youtube Growth Tactics</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-master-content-creation-video-and-photo-synergy-for-2024/"><u>[Updated] Master Content Creation Video & Photo Synergy for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-refining-images-how-to-use-the-eraser-tool-in-psx/"><u>[Updated] Refining Images How to Use the Eraser Tool in PSX</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-reviewers-guide-to-yuneec-typhoon-h-performance-for-2024/"><u>[Updated] Reviewer’s Guide to Yuneec Typhoon H Performance for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-playlist-15-ways-to-revamp-a-live-stream/"><u>2024 Approved The Ultimate Playlist 15 Ways to Revamp a Live Stream</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/harmonious-hearing-eargasm-review-of-earmuffs/"><u>Harmonious Hearing: Eargasm Review of Earmuffs</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-itel-p55-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Itel P55 5G in Minutes | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-ultra-30-action-cam-the-essential-review-of-the-virb-series/"><u>In 2024, Ultra 30 Action Cam The Essential Review of the VIRB Series</u></a></li>
-<li><a href="https://program-issues.techidaily.com/rainbow-six-extraction-optimization-resolving-fps-drop-problems-effectively/"><u>Rainbow Six Extraction Optimization: Resolving FPS Drop Problems Effectively</u></a></li>
-<li><a href="https://fox-http.techidaily.com/tune-sharing-compliance-instagram-ip-codex/"><u>Tune-Sharing Compliance Instagram IP Codex</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/unlock-hidden-potential-boost-productivity-essential-multitasking-tips-for-podcast-lovers-for-2024/"><u>Unlock Hidden Potential, Boost Productivity Essential Multitasking Tips for Podcast Lovers for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unveiling-the-secrets-of-professional-srt-file-generation-for-2024/"><u>Unveiling the Secrets of Professional SRT File Generation for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-high-capacity-card-for-a7s-professional-use-for-2024/"><u>[New] High-Capacity Card for A7S Professional Use for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-seamless-image-files-management-on-ios-jpegpng-to-pdf/"><u>[New] In 2024, Seamless Image Files Management on IOS JPEG/PNG to PDF</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-conquering-live-broadcast-a-comprehensive-guide-for-youtube-and-twitch/"><u>[Updated] In 2024, Conquering Live Broadcast A Comprehensive Guide for YouTube & Twitch</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-top-10-vrvirtual-reality-apps-for-iphoneandroid/"><u>[Updated] In 2024, Top 10 VR/Virtual Reality Apps for iPhone/Android</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-transform-video-quality-on-tiktok-2-ways/"><u>[Updated] Transform Video Quality on TikTok (2 Ways)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-unlock-your-tech-potential-mastering-macs-screen-capturing-with-just-shortcuts/"><u>[Updated] Unlock Your Tech Potential Mastering Mac's Screen Capturing with Just Shortcuts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-chat-to-tune-downloader-for-fb/"><u>2024 Approved Chat to Tune Downloader for FB</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-samsung-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Samsung</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-vivo-x100-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Vivo X100 Pro Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/tech-battle-royale-how-the-iphone-15-pro-max-stacks-up-against-the-samsung-galaxy-s24-ultra/"><u>Tech Battle Royale: How the iPhone 15 Pro Max Stacks Up Against the Samsung Galaxy S24 Ultra</u></a></li>
 </ul></div>
 

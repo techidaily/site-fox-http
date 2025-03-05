@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unraveling Virtual-Physical Coexistence  What Is Mixed Reality?\""
-date: 2024-09-02T08:32:25.027Z
-updated: 2024-09-03T08:32:25.027Z
+date: 2025-02-12T16:10:47.286Z
+updated: 2025-02-16T16:06:39.681Z
 tags: 
   - screen-recording
   - ai video
@@ -27,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  Mar 27, 2024• Proven solutions
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Definition of MR
 
 [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) and [Augmented Reality](https://filmora.wondershare.com/virtual-reality/what-is-augmented-reality.html) are terms relatively known in the simulation world. Mixed reality is the third term which is increasingly becoming popular and it refers to the merging or combination of virtual environments and real environments where both worlds can exist together. In other quarters, mixed reality is also known as “Hybrid Reality”.
@@ -36,15 +37,17 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  In mixed reality, the user is given the ability to explore the virtual environment and the real world seamlessly at the same time. Through the use space and coordinates, the virtual objects will be positioned on the real world and whenever you move towards the virtual objects, they become larger while moving away from them makes them smaller. Moving around the virtual objects will also give you different angles and perspectives. Additionally, mixed reality will allow users to manipulate the virtual objects and interact with them as if they were with them in the same place.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How does Mixed Reality work
 
  With the development of the technology is shrouded in secrecy by the major players, all that is known on the operations of the technology is that it uses virtual reality and augmented reality as well as space and coordinates. Magic Leap is the company at the forefront in the development of mixed reality and they have remained tight lipped about the finer details of what they are doing or developing. The scanty details we know however, suggests that just like Hololens, mixed reality will use a projector for displaying images on semi transparent materials which will then be reflected to the eye with the help of beam-splitting technology.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Applications of Mixed Reality
 
  Due to the unique features and experiences offered by mixed reality, businesses, developers and the world in general is beginning to explore the various ways to utilize the technology for the best possible results. Currently, fields such as medicine, architecture and urban planning and education and training appear to be the greatest beneficiary of mixed reality technology.
@@ -56,11 +59,16 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  Sharing real world virtual spaces through mixed reality can be especially beneficial for sales team when making a pitch for a new offer. For instance, a pharmaceutical sales rep can carry along two mixed reality devices to an appointment with the doctor. The doctor and the sales rep can then both wear the devices and see a model of the new drug as explained by the sales rep. Through this, they can then visualize the chemical composition of the drug and also simulate how the drug will move in the body to fight diseases. Through such a shared experience, the sales rep will not only build deeper connections with the doctor, but also offer a more detailed explanation on the product being offered.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Mixed reality for remote experts – over the shoulder coaching
 
  Most enterprises usually find it difficult to address all the support requests from all the clients in need of expert advice. It is not only costly to fly in specialists to fix things in different locations, but also time consuming. Besides, it is never adequate to troubleshoot an issue over the phone and video conferencing in such situations also have its limitations. But all these can now be avoided through the application of mixed reality for offering over the shoulder coaching remotely. With mixed reality, access to experts can be done quickly and inexpensively. For example, doctors in the healthcare industry can offer guidance and decisions to students or other doctors without the need of being in the actual locations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The future of mixed reality
 
@@ -95,8 +103,17 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-leading-gallery-archive-services/"><u>[New] 2024 Approved Leading Gallery Archive Services</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-pioneering-virtual-experiences-a-report/"><u>[New] 2024 Approved Pioneering Virtual Experiences A Report</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/levate-audience-reach-through-collaborative-youtube-videos-for-2024/"><u>[New] Elevate Audience Reach Through Collaborative YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unmatched-document-enhancements-for-2024/"><u>[New] Unmatched Document Enhancements for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-precision-zooms-for-peak-snapchat-performance/"><u>[Updated] In 2024, Precision Zooms for Peak Snapchat Performance</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deconstructing-the-microsoft-surface-go-a-comprehensive-look-at-its-price-point-and-ambiguous-persona/"><u>Deconstructing the Microsoft Surface Go - A Comprehensive Look at Its Price-Point and Ambiguous Persona</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-xiaomi-redmi-k70e-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Xiaomi Redmi K70E</u></a></li>
+<li><a href="https://win-dash.techidaily.com/microsofts-solution-for-optimizing-battery-drivers-based-on-acpi-compliance-specifications/"><u>Microsoft’s Solution for Optimizing Battery Drivers Based on ACPI-Compliance Specifications</u></a></li>
+<li><a href="https://fox-http.techidaily.com/pro-4k-capture-the-definitive-seven-cameras-for-2024/"><u>Pro 4K Capture The Definitive Seven Cameras for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/transformative-audio-techniques-for-media-professionals/"><u>Transformative Audio Techniques for Media Professionals</u></a></li>
+</ul></div>
 

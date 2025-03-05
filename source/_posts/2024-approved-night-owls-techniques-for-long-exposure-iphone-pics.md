@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Night Owls' Techniques for Long-Exposure iPhone Pics\""
-date: 2024-09-02T08:29:55.710Z
-updated: 2024-09-03T08:29:55.710Z
+date: 2025-02-11T16:03:58.321Z
+updated: 2025-02-16T16:06:09.432Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 # How to Take Long Exposure Shots with iPhone in iOS 11 or previous
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -40,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
@@ -79,8 +73,9 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What should you capture with your long exposure iPhone shots?
 
  Long exposure shots are magical, giving a dreamy, almost ethereal quality to everyday situations. No doubt you'll find your own amazing things to shoot, but to get you started, why not try a long exposure iPhone shot of:
@@ -89,11 +84,19 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 ![flowing-water-long-exposure](https://images.wondershare.com/filmora/article-images/flowing-water-long-exposure.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Photography Mad
 
 * **Light trails:** Light is everywhere, and if you take your iPhone camera long exposure trick out of the house at night, you'll find some amazing opportunities to shoot. Cars on the highway, Ferris wheels at the fair and even the stars in the sky can become something amazing with a longer exposure.
 
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: WallDevil
 
@@ -105,14 +108,19 @@ thumbnail: https://thmb.techidaily.com/cd918524a7d7688c6ef6414ad8dfa9dc1bddfeb0b
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: Nikonites
 
  Play around, try different things and get to know how variations in settings can change the outcome of your shots. Tinkering with exposure length is great fun, and will almost certainly result in some totally Facebook-worthy additions to your gallery.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## To conclude
 
@@ -145,8 +153,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-tier-auditory-theatre-plays/"><u>[New] 2024 Approved Top-Tier Auditory Theatre Plays</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-digital-choices-for-content-creators-sound-or-sight-focus-for-2024/"><u>[New] Digital Choices for Content Creators Sound or Sight Focus for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-digital-visuals-8-creative-color-grading-ideas/"><u>[New] Digital Visuals 8 Creative Color Grading Ideas</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-expert-review-of-bandicams-efficacy-in-multimedia-projects/"><u>[Updated] Expert Review of Bandicam's Efficacy in Multimedia Projects</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-crafting-cinematic-magic-advanced-kinemaster-techniques/"><u>[Updated] In 2024, Crafting Cinematic Magic Advanced Kinemaster Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-professional-gimbals-and-tripods-for-youtube-starters/"><u>[Updated] In 2024, Professional Gimbals & Tripods for YouTube Starters</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-scrutinizing-vidmas-latest-screen-recording-tech/"><u>[Updated] In 2024, Scrutinizing Vidma’s Latest Screen Recording Tech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-starting-a-vlog-the-must-have-equipmentsoftware/"><u>[Updated] In 2024, Starting a Vlog The Must-Have Equipment/Software</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ultimate-7-virtual-marksmen-battles/"><u>[Updated] In 2024, Ultimate 7 Virtual Marksmen Battles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-kinetic-control-on-android-the-kinemaster-dive-for-2024/"><u>[Updated] Kinetic Control on Android The KineMaster Dive for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-phone-lens-magic-creating-high-horizons/"><u>[Updated] Phone Lens Magic Creating High Horizons</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/avi-video-cutting-made-easy-top-16-tools-for-windows-mac-android-iphone-and-online/"><u>AVI Video Cutting Made Easy Top 16 Tools for Windows, MAC, Android, iPhone, and Online</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-depth-analysis-our-selection-of-premium-21-hdmi-tvs-for-2024/"><u>In-Depth Analysis Our Selection of Premium 2.1 HDMI TVs for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/initiating-understanding-of-screen-resolution-and-quality-for-2024/"><u>Initiating Understanding of Screen Resolution and Quality for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/shielding-game-progress-a-comprehensive-backup-approach/"><u>Shielding Game Progress: A Comprehensive Backup Approach</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-oneplus-11r-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your OnePlus 11R Phone Network-Ready</u></a></li>
+</ul></div>
 

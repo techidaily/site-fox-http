@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Perfect Fisheye Sphere Shots"
-date: 2024-09-02T08:32:47.844Z
-updated: 2024-09-03T08:32:47.844Z
+date: 2025-02-11T16:04:16.944Z
+updated: 2025-02-16T16:07:46.155Z
 tags: 
   - screen-recording
   - ai video
@@ -26,30 +26,33 @@ thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079d
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Shooting 360 degrees panoramas with fisheye lens
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1. The equipment and setup
 
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
 
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3. The actual shooting
 
@@ -71,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079d
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What's fisheye lenses
 
  Fisheye lens refers to an ultra wide angle lens used to produce strong visual distortions with the aim of creating a wide hemispherical or panoramic image. Fisheye lenses are able to achieve very wide angles of view not through the production of straight lines of perspectives, but through a special mapping which makes the resulting images have the characteristic convex non-rectilinear appearance.
@@ -81,13 +88,14 @@ thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079d
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 Benjamin Arango
@@ -113,8 +121,19 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-finding-purpose-in-film-our-selection-of-top-motivational-titles-for-2024/"><u>[New] Finding Purpose in Film Our Selection of Top Motivational Titles for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-a-comprehensive-guide-to-interoperable-playlists/"><u>[New] In 2024, A Comprehensive Guide to Interoperable Playlists</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-starting-simple-how-to-create-your-own-twitter/"><u>[New] In 2024, Starting Simple How to Create Your Own Twitter</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-nostalgia-frame-portraits-on-the-x-phone/"><u>[New] Nostalgia Frame Portraits on the X Phone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unleash-clarity-in-depth-tutorial-on-video-enhancer-22/"><u>[Updated] 2024 Approved Unleash Clarity In-Depth Tutorial on Video Enhancer 2.2</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-azure-speech-to-text-your-ultimate-development-toolkit-for-2024/"><u>[Updated] Azure Speech-to-Text Your Ultimate Development Toolkit for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-boosting-videos-the-best-5-tech-aids-for-2024/"><u>[Updated] Boosting Videos The Best 5 Tech Aids for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-streaming-success-how-to-keep-a-record-of-live-tv/"><u>[Updated] Streaming Success How to Keep a Record of Live TV</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-earnings-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>2024 Approved Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/how-will-us-import-duties-impact-the-cost-of-electronic-components-and-personal-computers-unraveling-the-complexity/"><u>How Will US Import Duties Impact the Cost of Electronic Components & Personal Computers? Unraveling the Complexity</u></a></li>
+<li><a href="https://win-trending.techidaily.com/passato-a-windows-10-ecco-come-risolvere-i-problemi-di-ripristino-del-sistema/"><u>Passato a Windows 10? Ecco Come Risolvere I Problemi Di Ripristino Del Sistema!</u></a></li>
+<li><a href="https://fox-making.techidaily.com/understanding-flipbuilders-comprehensive-refunds-strategy-find-out-how-we-protect-our-customers/"><u>Understanding FlipBuilder's Comprehensive Refunds Strategy – Find Out How We Protect Our Customers</u></a></li>
+</ul></div>
 

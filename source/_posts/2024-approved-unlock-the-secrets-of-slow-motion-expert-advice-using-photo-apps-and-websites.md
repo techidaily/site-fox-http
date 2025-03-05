@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlock the Secrets of Slow Motion  Expert Advice Using Photo Apps & Websites\""
-date: 2024-09-06T18:20:27.196Z
-updated: 2024-09-07T18:20:27.196Z
+date: 2025-02-15T16:14:52.248Z
+updated: 2025-02-16T16:02:54.815Z
 tags: 
   - screen-recording
   - ai video
@@ -16,24 +16,12 @@ keywords: "\"Slow Mo Tips,Photo Slow-Motion,Editing Slow Motion,Slow Video Techn
 thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d45741490d50d66c52b24ae9074.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unlock the Secrets of Slow Motion: Expert Advice Using Photo Apps & Websites
 
 # How to make slow motion video with Photos App and Online
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -44,6 +32,10 @@ While the [Photos app in Windows 10](https://www.microsoft.com/en-us/p/microsoft
 * [**Part2: Customizing the Slow Motion Effect**](#part2)
 * [**Part3: How to Edit in Slow Motion Online**](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1：How to Use Slow Motion in Windows 10
 
 There is no need to spend hundreds of dollars on a video program if you need to perform some basic editing and effects on your videos. For instance, you can add the slow motion effect using the Photos app that comes pre-installed on Windows 10 computers.
@@ -52,12 +44,6 @@ Navigate to the folder where your video file is located and right click on it. Y
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/slow-motion-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
 
 ## Part 2：Customizing the Slow Motion Effect
@@ -70,12 +56,6 @@ Now you can select the beginning and end point using the bottom slider on the Ph
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
 
 You can even create multiple versions of the file with the slow motion effect applied in different ways. Then you can watch the videos you just created to decide on the best version.
@@ -85,6 +65,10 @@ You can even create multiple versions of the file with the slow motion effect ap
 ## Part 3: How to Edit in Slow Motion Online
 
 If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/) to add a slow motion effect to your content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### EZGif
 
@@ -98,6 +82,10 @@ Click on the “upload video” button so that it can be added into the database
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Output**
 
 The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
@@ -105,23 +93,19 @@ The program will let you adjust the video speed to your liking. Then you will ge
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Now that you have understood how to add the effect of slow motion in Windows 10 Photos, you will be able to tweak your videos even more. The Photos application has many other features that you may want to check out, which will help you edit images and videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -145,8 +129,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-editing-excess-strategies-to-clean-up-oversized-tiktok-drafts/"><u>[New] 2024 Approved Editing Excess Strategies to Clean Up Oversized TikTok Drafts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-gopro-v5-edge-versus-nikon-km-170-ultimate-comparison/"><u>[New] 2024 Approved GoPro V5 Edge Versus Nikon KM-170 Ultimate Comparison</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-aural-elegance-selecting-high-quality-ringtones-online-for-2024/"><u>[New] Aural Elegance Selecting High-Quality Ringtones Online for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-streams-weighing-xsplit-against-obs-capabilities/"><u>[New] Mastering Streams Weighing XSplit Against OBS Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-pivotal-vr-films-for-your-watchlist/"><u>[New] Pivotal VR Films for Your Watchlist</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-screenplay-sensation-roundup/"><u>[New] Screenplay Sensation Roundup</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/our-path-forward-on-youtube-self-publishing-vs-major-label-partnership-for-2024/"><u>[New] Your Path Forward on YouTube Self-Publishing vs Major Label Partnership for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-8-metaverse-vr-experiences-and-headsets/"><u>[Updated] 2024 Approved Top 8 Metaverse VR Experiences & Headsets</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-hands-on-instructions-for-iphone-content-syncing-for-2024/"><u>[Updated] Hands-On Instructions for iPhone Content Syncing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-pocketsized-skies-budget-large-data-haven-for-2024/"><u>[Updated] PocketSized Skies - Budget Large Data Haven for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-heres-how-you-can-ace-the-tiktok-photo-editing-hacks/"><u>2024 Approved Here’s How You Can Ace the TikTok Photo Editing Hacks</u></a></li>
+<li><a href="https://fox-search.techidaily.com/expert-tutorial-for-transferring-data-from-hdd-to-intel-solid-state-drives-in-various-windows-environments/"><u>Expert Tutorial for Transferring Data From HDD to Intel Solid State Drives in Various Windows Environments</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fortnite-voice-chat-troubles-heres-how-to-get-your-mic-working-again/"><u>Fortnite Voice Chat Troubles? Here's How to Get Your Mic Working Again</u></a></li>
+<li><a href="https://blog-min.techidaily.com/gratis-online-f4v-naar-avi-converteren-met-movavi-konvertierer/"><u>Gratis Online F4V Naar AVI Converteren Met Movavi Konvertierer</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-capturing-role-playing-roblox-and-mac-techniques/"><u>In 2024, Capturing Role-Playing Roblox & Mac Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-co-marketing-brands-and-youtubes-dynamic-duo/"><u>In 2024, Co-Marketing Brands and YouTube's Dynamic Duo</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-tecno-spark-10-4g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Tecno Spark 10 4G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/sharpening-screen-views-for-improved-virtual-interactions/"><u>Sharpening Screen Views for Improved Virtual Interactions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/xsplit-reviews-in-depth-game-split-analysis/"><u>XSplit Reviews In-Depth Game Split Analysis</u></a></li>
+</ul></div>
 

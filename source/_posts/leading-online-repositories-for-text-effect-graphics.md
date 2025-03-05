@@ -1,7 +1,7 @@
 ---
 title: "Leading Online Repositories for Text Effect Graphics"
-date: 2025-02-04T02:30:16.769Z
-updated: 2025-02-07T03:32:29.691Z
+date: 2025-02-13T16:00:33.844Z
+updated: 2025-02-16T16:14:53.168Z
 tags: 
   - screen-recording
   - ai video
@@ -49,10 +49,6 @@ Freepik is one of the most popular sites for Adobe Photoshop text effect PPSD do
 
 You can also search different categories of text effects such as 3D text effect, neon effect, gold effect, and much more. You can also sort the text effects by their color and orientation so that you can choose as per your project requirements. You get exactly what you see in the mock typography and you can download PSD file instantly and edit everything as per your preference. The website is particularly popular for its 3D text effects, text effect fonts, and gold text effects.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. GraphicsFamily
 
 <https://graphicsfamily.com/downloads/category/text-effects/>
@@ -62,10 +58,6 @@ If you are an Adobe Illustrator user and you are looking for illustrator text ef
 ![graphics family text effect](https://images.wondershare.com/filmora/article-images/2022/09/graphics-family-text-effect.jpg)
 
 These are static text effects and you download them in EPS file format that Illustrator supports. You can edit the text effects as per your project requirements. There are free as well as premium effects available and you can search by newest items, cheapest items as well as best sellers. The glowing blue effect, the modern purple gradient, retro layer text effects are some of its popular text effects that you can try out.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Dribble
 
@@ -96,10 +88,14 @@ If you are looking for funky Photoshop text effect PSD download, Behance is a gr
 ![behance text effect](https://images.wondershare.com/filmora/article-images/2022/09/behance-text-effect.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There are also text effects related to games such as Minecraft as well as flashy and funny typography. Select the color from the filters and you will get to see text effects related to the color so that you can place it suitably on your project. Apart from Photoshop, there are text effect templates available for Illustrator, InDesign, After Effects as well as Lightroom.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Edit Text Effects in Video
 
@@ -119,15 +115,23 @@ Step2 Import your video clip under Project Media folder. Drag and drop the clip 
 
 ![import video clip under project media folder](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Select a text effect template and drop it onto the timeline. Place the text layer where you want the text to appear in the video. Go to Viewer and reposition the text on the video frame. Double-click on the text layer and type in your text words.
 
 ![select a text effect template](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Edit the style of the text as well as other settings as you think fit. You can even go to Advanced section to customize the effect minutely as per your requirements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -137,10 +141,6 @@ Part 1\. Best Sites to Download Text Effects
 
 You will come across unlimited number of websites to download text effects for the popular photo and video editors belonging to Adobe. We have handpicked the best websites out of them that have a great collection of text effects that you can download as per your application.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Freepik
 
 <https://www.freepik.com/psd/text-effect>
@@ -149,14 +149,10 @@ Freepik is one of the most popular sites for Adobe Photoshop text effect PPSD do
 
 ![freepik text effect](https://images.wondershare.com/filmora/article-images/2022/09/freepik-text-effect.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also search different categories of text effects such as 3D text effect, neon effect, gold effect, and much more. You can also sort the text effects by their color and orientation so that you can choose as per your project requirements. You get exactly what you see in the mock typography and you can download PSD file instantly and edit everything as per your preference. The website is particularly popular for its 3D text effects, text effect fonts, and gold text effects.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. GraphicsFamily
@@ -169,6 +165,10 @@ If you are an Adobe Illustrator user and you are looking for illustrator text ef
 
 These are static text effects and you download them in EPS file format that Illustrator supports. You can edit the text effects as per your project requirements. There are free as well as premium effects available and you can search by newest items, cheapest items as well as best sellers. The glowing blue effect, the modern purple gradient, retro layer text effects are some of its popular text effects that you can try out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Dribble
 
 <https://dribbble.com/tags/psd\_text\_effect>
@@ -176,10 +176,6 @@ These are static text effects and you download them in EPS file format that Illu
 Dribble is another text effect PSD download platform where you get out of the box as well as the popular text effects. The platform has text effects from the best designers in the world and all the modern text effects that you see on social media and video streaming platforms are available on Dribble. Apart from Photoshop text effects, you also get text effects for Illustrator, XD, Figma, and Invision Studio.
 
 ![dribble text effect](https://images.wondershare.com/filmora/article-images/2022/09/dribble-text-effect.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Starting from underwater and neon text effects to glitch and broken text effects, you can download free as well as premium effects instantly. There are over 10,000+ text effects available to choose from. You can search by tags, text color, as well as timeframe to get the desired text effect for your graphics project.
 
@@ -190,6 +186,10 @@ Starting from underwater and neon text effects to glitch and broken text effects
 Envato Elements is the most popular platform when it comes to downloading static and video text effect templates. You can go for Photoshop text effects download, Illustrator, and After Effects text effects. If you want to include stunning titles and texts in your video, there are over 10,000+ video templates available.
 
 ![envato elements text effect](https://images.wondershare.com/filmora/article-images/2022/09/envato-elements-text-effect.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Starting from glitch and simple motion video text effects to 3D text effects and retro text effects, you get everything under one platform. Besides, there are beautiful graphics templates available with text effects as well as stock text effect templates. You can browse the text effects by category and one template has different variations of text effects to suit your requirements.
 
@@ -217,16 +217,12 @@ Step1 Download and install Wondershare Filmora on your computer. Launch Filmora 
 
 ![download and install filmora](https://images.wondershare.com/filmora/guide/startup-window-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Import your video clip under Project Media folder. Drag and drop the clip onto the timeline and go to Titles option located at the top. Check out the different categories of text effects on the left panel.
 
 ![import video clip under project media folder](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 Select a text effect template and drop it onto the timeline. Place the text layer where you want the text to appear in the video. Go to Viewer and reposition the text on the video frame. Double-click on the text layer and type in your text words.
@@ -234,6 +230,10 @@ Step3 Select a text effect template and drop it onto the timeline. Place the tex
 ![select a text effect template](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
 
 Edit the style of the text as well as other settings as you think fit. You can even go to Advanced section to customize the effect minutely as per your requirements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -263,24 +263,17 @@ If texts and titles are an important part of your graphics or videos, you should
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-into-the-virtual-epoch-analyzing-present-state-and-ahead/"><u>[New] In 2024, Into the Virtual Epoch Analyzing Present State and Ahead</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-the-ultimate-guide-to-streamlined-ocean-video-capture/"><u>[New] In 2024, The Ultimate Guide to Streamlined Ocean Video Capture</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-microdrama-writers-guide-for-2024/"><u>[New] Microdrama Writers Guide for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-tech-tailored-using-apple-watch-for-macopening-for-2024/"><u>[New] Tech Tailored Using Apple Watch for MacOpening for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unveiling-the-secrets-of-crafting-perfect-audio-for-videos/"><u>[Updated] 2024 Approved Unveiling the Secrets of Crafting Perfect Audio for Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-utilizing-snapchats-prominent-personalities-highlight/"><u>[Updated] In 2024, Utilizing Snapchat's Prominent Personalities Highlight</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-best-of-the-best-reddits-all-time-favorites-for-2024/"><u>[Updated] The Best of the Best Reddit's All-Time Favorites for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamline-your-viewing-experience-with-accelerated-or-slowed-videos/"><u>2024 Approved Streamline Your Viewing Experience with Accelerated or Slowed Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/camera-woes-over-obs-now-functioning-for-2024/"><u>Camera Woes Over OBS Now Functioning for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-edge-mobile-apps-for-stellar-intros/"><u>Cutting-Edge Mobile Apps for Stellar Intros</u></a></li>
-<li><a href="https://solve-help.techidaily.com/effortless-mp3-upload-tutorial-for-iphone-users/"><u>Effortless MP3 Upload Tutorial for iPhone Users</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/gradual-volume-reduction-in-studio-projects-using-logic-pro/"><u>Gradual Volume Reduction in Studio Projects Using Logic Pro</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-itel-a60-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Itel A60? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-recovery-or-dfu-mode-on-iphone-15-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery or DFU Mode on iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-stop-sea-of-thieves-from-crashing-on-your-pc-or-console/"><u>How To Stop Sea of Thieves From Crashing on Your PC or Console</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-top-storytelling-screenplays-that-transcend-genres/"><u>In 2024, Top Storytelling Screenplays that Transcend Genres</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/start-your-adventure-in-pandora-fixing-launch-issues-with-avatars-latest-expansion/"><u>Start Your Adventure in Pandora: Fixing Launch Issues with Avatar’s Latest Expansion</u></a></li>
-<li><a href="https://fox-http.techidaily.com/transform-your-digital-works-into-blockchain-treasures-with-these-tools/"><u>Transform Your Digital Works Into Blockchain Treasures with These Tools</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-your-youtube-shorts-into-earnings-what-you-need-and-how-much/"><u>Turning Your YouTube Shorts Into Earnings What You Need & How Much?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-visioncaptor-new-era-of-screen-recorders-unveiled/"><u>[Updated] 2024 Approved 'VisionCaptor' New Era of Screen Recorders Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-scrutinizing-the-most-accessible-affordable-lut-collections/"><u>[Updated] 2024 Approved Scrutinizing the Most Accessible, Affordable LUT Collections</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-illuminating-the-sensor-rich-world-of-iphone-x-photos-for-2024/"><u>[Updated] Illuminating the Sensor-Rich World of iPhone X Photos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-examination-of-xcreative-vision-studio-a-complete-guide-for-2024/"><u>[Updated] In-Depth Examination of XCreative Vision Studio - A Complete Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-the-art-of-canvas-with-these-top-10-secrets-for-2024/"><u>[Updated] Master the Art of Canvas with These Top 10 Secrets for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-excellence-range-highest-quality-webcam-grips/"><u>2024 Approved Excellence Range Highest Quality Webcam Grips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-transforming-perceptions-with-virtual-tour-experiences/"><u>2024 Approved Transforming Perceptions with Virtual Tour Experiences</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-xr-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone XR without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/invisible-viewers-of-fb-episodes-for-2024/"><u>Invisible Viewers of Fb Episodes for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-on-your-iphone-15-pro-max-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status On Your iPhone 15 Pro Max</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-text-tilt-treasures-for-2024/"><u>Top Text Tilt Treasures for 2024</u></a></li>
 </ul></div>
 

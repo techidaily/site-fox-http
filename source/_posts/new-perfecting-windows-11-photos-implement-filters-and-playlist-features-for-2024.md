@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfecting Windows 11 Photos  Implement Filters and Playlist Features for 2024\""
-date: 2024-09-06T18:19:58.874Z
-updated: 2024-09-07T18:19:58.874Z
+date: 2025-02-09T16:03:58.303Z
+updated: 2025-02-16T16:10:58.619Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/33c48593ec0173b68a8667f248e53142d39bc8c36
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -40,11 +34,9 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -57,6 +49,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -64,11 +60,9 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -83,22 +77,14 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 ## Conclusion
@@ -108,17 +94,9 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -142,8 +120,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-from-novice-to-maestro-professional-photography-and-cinematography-techniques/"><u>[New] 2024 Approved From Novice to Maestro Professional Photography & Cinematography Techniques</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-pic-perfect-ranking-the-best-photo-stickering-apps-for-iphonesandroids/"><u>[New] In 2024, Pic Perfect Ranking the Best Photo Stickering Apps for iPhones/Androids</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-obs-and-zoom-synchronization-techniques/"><u>[Updated] 2024 Approved OBS & Zoom Synchronization Techniques</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-up-your-media-game-with-xps-movie-editor/"><u>[Updated] Step Up Your Media Game with XP's Movie Editor</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-role-of-arvr-in-medical-training/"><u>[Updated] The Role of AR/VR in Medical Training</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-guide-to-adding-linktree-to-tiktok-bios-for-2024/"><u>[Updated] The Ultimate Guide to Adding Linktree to TikTok Bios for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-video-editing-tips-tips-for-making-a-better-home-movie/"><u>2024 Approved Video Editing Tips - Tips for Making a Better Home Movie</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/beware-no-authentic-chatgpt-app-available-on-windows-avoid-illicit-software-replicas/"><u>Beware: No Authentic ChatGPT App Available on Windows – Avoid Illicit Software Replicas!</u></a></li>
+<li><a href="https://win-docs.techidaily.com/depannage-complet-pour-lappareil-de-stockage-wd-my-book-non-affiche-dans-windows-10/"><u>Dépannage Complet Pour L'Appareil De Stockage WD My Book Non Affiché Dans Windows 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-mastering-aerial-footage-a-guide-to-drone-video-editing/"><u>In 2024, Mastering Aerial Footage A Guide to Drone Video Editing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-content-dilemma-deciding-on-the-best-platform-igtv-or-youtube/"><u>In 2024, The Content Dilemma Deciding on the Best Platform - IGTV or YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/optimizing-latency-for-real-time-obs-viewing/"><u>Optimizing Latency for Real-Time OBS Viewing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quick-guide-bypassing-edgenuity-courses-seamlessly/"><u>Quick Guide Bypassing Edgenuity Courses Seamlessly</u></a></li>
+</ul></div>
 

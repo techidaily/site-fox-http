@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Crafting Immersive VR Experiences with Adobe Premiere's 360° Editing Features"
-date: 2024-09-06T18:19:52.035Z
-updated: 2024-09-07T18:19:52.035Z
+date: 2025-02-09T16:13:38.887Z
+updated: 2025-02-16T16:08:11.010Z
 tags: 
   - screen-recording
   - ai video
@@ -31,11 +31,9 @@ thumbnail: https://thmb.techidaily.com/9ed1822c884a606f5ae36981b782d8b43a1eaddd1
 **Related article:** [How to Stitch GoPro Clips into 360 Videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Editing 360 degrees videos in Premiere Pro
 
  Consider the following steps when editing 360 degree videos using Premiere Pro from Adobe-:
@@ -49,17 +47,9 @@ thumbnail: https://thmb.techidaily.com/9ed1822c884a606f5ae36981b782d8b43a1eaddd1
 ![Edit 360 videos with Premiere Pro - Settings](https://images.wondershare.com/filmora/article-images/360-editing-settings.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Premiere Pro allows you to view any video by double clicking on the video in the project panel. Be default, the equirectanglular video clips will appear on the preview panel, but they will be distorted. To change how the videos appear on the preview panel, it is imperative to adjust the settings. This is done by clicking on the wrench icon located at the bottom right of window then navigating to VR Video>Settings. This will pull up the menu to let you adjust the various settings you need to proceed with the editing.
 
 #### 3. Set the Preview Window to VR Mode
@@ -82,37 +72,25 @@ thumbnail: https://thmb.techidaily.com/9ed1822c884a606f5ae36981b782d8b43a1eaddd1
 ![Edit 360 videos with Premiere Pro - Export VR footage](https://images.wondershare.com/filmora/article-images/export-vr-footage.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  A while back, exporting VR footages to YouTube was possible only through third party applications. But now, such capabilities have been included in Adobe Premiere Pro and you can now apply all the Meta data directly inside the application. To export your edited footage, navigate to File>Export>Media or simply hit Command + M to pop up the export window. Select your desired codecs and navigate to the video tab and ensure that you have selected the VR Video Checkbox.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Video Editor: Wondershare Filmora
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -136,8 +114,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transforming-visual-narratives-with-creative-use-of-luts-in-pro/"><u>[New] In 2024, Transforming Visual Narratives with Creative Use of LUTs in Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-colorful-world-of-chroma-key-artistry-explained-for-newcomers/"><u>[New] The Colorful World of Chroma Key Artistry Explained for Newcomers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-drone-photography-faceoff-dji-mavic-x-and-hero-4-silver/"><u>[Updated] 2024 Approved Drone Photography Faceoff DJi Mavic X & Hero 4 Silver</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-essential-scripts-for-advanced-affects-workflows/"><u>[Updated] Essential Scripts for Advanced Affects Workflows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-instantaneous-effortless-podcast-live/"><u>[Updated] In 2024, Instantaneous Effortless Podcast Live</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-tecno-camon-20-pro-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Tecno Camon 20 Pro 5G</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/elite-performance-meets-luxury-design-comprehensive-review-of-the-gigabyte-aorus-fo32u2p-oled-monitor-for-gamers/"><u>Elite Performance Meets Luxury Design: Comprehensive Review of the Gigabyte AORUS FO32U2P OLED Monitor for Gamers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ensuring-secure-windows-tcpip-network-configuration/"><u>Ensuring Secure Windows TCP/IP Network Configuration</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-xcom-2-game-crashes-in-windows-a-comprehensive-guide/"><u>Fixing the 'XCOM 2' Game Crashes in Windows: A Comprehensive Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-iphone-13-mini-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From iPhone 13 mini</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-8-pioneering-open-source-platforms-revolutionizing-business-calls/"><u>In 2024, 8 Pioneering Open-Source Platforms Revolutionizing Business Calls</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/jungle-beat-parrots/"><u>Jungle Beat Parrots</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-lgs-advanced-4k-visual-display/"><u>The Ultimate Guide to LG’s Advanced 4K Visual Display</u></a></li>
+</ul></div>
 

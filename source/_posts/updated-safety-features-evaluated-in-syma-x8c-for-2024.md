@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Safety Features Evaluated in Syma X8C for 2024"
-date: 2025-02-02T09:56:42.556Z
-updated: 2025-02-07T08:17:35.664Z
+date: 2025-02-09T16:04:32.348Z
+updated: 2025-02-16T16:04:21.991Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of Syma X8C
@@ -63,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
  **Verdict:**
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Complete Review
 
@@ -103,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -112,10 +108,14 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -125,7 +125,7 @@ thumbnail: https://thmb.techidaily.com/5b911fc4e119075c845447b8b1130601d398b21b1
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -153,24 +153,15 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-use-jump-cuts-in-your-vlog-for-2024/"><u>[New] How To Use Jump Cuts in Your Vlog for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-enhancing-photo-views-in-windows-11-filter-plus-music-integration/"><u>[New] In 2024, Enhancing Photo Views in Windows 11 Filter + Music Integration</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-maximizing-your-iphones-photographic-skills-in-ios-11/"><u>[New] In 2024, Maximizing Your iPhone's Photographic Skills in iOS 11</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/avigating-the-best-video-formats-for-your-youtube-channel/"><u>[New] Navigating the Best Video Formats for Your YouTube Channel</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-practical-techniques-for-downloading-youtube-srt/"><u>[New] Practical Techniques for Downloading YouTube SRT</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-step-by-step-guide-to-excellent-ipadiphone-interview-podcast-recording/"><u>[New] Step-by-Step Guide to Excellent iPad/iPhone Interview Podcast Recording</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-behind-the-screen-discovering-samsung-galaxy-s8s-4k-edge-for-2024/"><u>[Updated] Behind the Screen Discovering Samsung Galaxy S8's 4K Edge for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-brush-up-your-skills-and-inspire-creativity-top-10-freeware-for-mac/"><u>[Updated] In 2024, Brush Up Your Skills & Inspire Creativity - Top 10 Freeware for Mac</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-step-up-your-media-game-with-xps-movie-editor/"><u>[Updated] In 2024, Step Up Your Media Game with XP's Movie Editor</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-dynamics-of-collaborative-marketing-on-youtube/"><u>[Updated] In 2024, The Dynamics of Collaborative Marketing on YouTube</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-vivo-y78-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Vivo Y78 5G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/effortless-update-secure-free-qualcomm-atheros-ar938x-drivers-in-a-snap/"><u>Effortless Update: Secure Free Qualcomm Atheros AR938X Drivers in a Snap!</u></a></li>
-<li><a href="https://win-info.techidaily.com/impossible-a-trouver-correctif-urgent-pour-image-windows-re-agissez-sans-delai/"><u>Impossible À Trouver : Correctif Urgent Pour Image Windows RE - Agissez Sans Délai!</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-top-5-video-tweaking-apps-for-social-networking/"><u>In 2024, Top 5 Video Tweaking Apps for Social Networking</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/mastering-the-art-of-overcoming-full-vrchat-malfunctions/"><u>Mastering the Art of Overcoming Full VRChat Malfunctions</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/minecraft-domicile-easy-to-build-residential-plans/"><u>Minecraft Domicile Easy-To-Build Residential Plans</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/movavi-le-convertisseur-ultime-pour-transformer-des-fichiers-aac-en-mp3-sans-effort/"><u>Movavi : Le Convertisseur Ultime Pour Transformer Des Fichiers AAC en MP3 Sans Effort</u></a></li>
-<li><a href="https://fox-http.techidaily.com/significant-20-public-domain-pubg-snapshot-packs-for-2024/"><u>Significant 20 Public Domain PUBG Snapshot Packs for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/the-definitive-guide-on-preventing-and-resolving-ring-of-elysium-software-interruptions/"><u>The Definitive Guide on Preventing and Resolving 'Ring of Elysium' Software Interruptions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-the-ultimate-guide-to-panasonic-hx-a1-action-recorder/"><u>[New] 2024 Approved The Ultimate Guide to Panasonic HX-A1 Action Recorder</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-engage-enchant-excel-the-art-of-crafting-effective-titles/"><u>[New] Engage, Enchant, Excel The Art of Crafting Effective Titles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-solving-isolated-sound-issue-for-2024/"><u>[New] Solving Isolated Sound Issue for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-fists-vs-followers-choosing-the-champion/"><u>[Updated] 2024 Approved Fists vs Followers Choosing the Champion</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-capacity-of-64128gb-in-video-storage-an-overview-for-2024/"><u>[Updated] Capacity of 64/128GB in Video Storage - An Overview for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-precision-techniques-the-most-essential-8-tools-for-microphone-and-speaker-recording/"><u>2024 Approved Precision Techniques The Most Essential 8 Tools for Microphone & Speaker Recording</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/enhance-editing-precision-discover-scope-highlighting-in-the-powerful-emeditor-suite/"><u>Enhance Editing Precision - Discover Scope Highlighting in the Powerful EmEditor Suite</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/foundations-of-mixing-adobe-auditions-fade-in-technique/"><u>Foundations of Mixing Adobe Audition’s Fade In Technique</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-recording-made-simple-a-compreenasite-for-capturing-netflix-content/"><u>In 2024, Recording Made Simple A Compreenasite for Capturing Netflix Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-slow-start-technique/"><u>In 2024, Slow Start Technique</u></a></li>
 </ul></div>
 

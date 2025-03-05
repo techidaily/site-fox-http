@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  A Comprehensive Look at Yi's 4K Action Capabilities\""
-date: 2024-09-02T08:30:43.448Z
-updated: 2024-09-03T08:30:43.448Z
+date: 2025-02-12T16:00:13.946Z
+updated: 2025-02-16T16:02:51.032Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/84120ce1dd040ef96ca974489513e09e6fd38ddc4
 
 # Yi 4K + Action Camera Complete Review
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -118,16 +115,18 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -152,8 +151,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-frolics-of-fun-dissecting-the-goofy-movie-for-2024/"><u>[New] 'Frolics of Fun' - Dissecting 'The Goofy Movie' For 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-navigating-the-path-of-extensive-video-transfers-iphone-mac-interface/"><u>[New] In 2024, Navigating the Path of Extensive Video Transfers IPhone-Mac Interface</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mastering-video-top-10-camcorders-reviewed/"><u>[New] Mastering Video - Top 10 Camcorders Reviewed</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-prime-interactive-camera-spotlights/"><u>[New] Prime Interactive Camera Spotlights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unraveling-the-imovie-video-edge-policy/"><u>[New] Unraveling the iMovie Video Edge Policy</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-visual-excellence-pro-tips-for-snapchat-zoom-for-2024/"><u>[Updated] Visual Excellence Pro Tips for Snapchat Zoom for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/asus-rog-phone-8-pro-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Asus ROG Phone 8 Pro Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-canon-printer-and-scanner-drivers-for-windows-instant-download/"><u>Free Canon Printer and Scanner Drivers for Windows - Instant Download</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-mastering-tags-the-ultimate-guide-for-video-optimization/"><u>In 2024, Mastering Tags The Ultimate Guide for Video Optimization</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-swiftly-upload-to-twitter-premium-video-convertors-guide/"><u>In 2024, Swiftly Upload to Twitter Premium Video Convertors Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/master-the-shift-proven-methods-for-a-flawless-upgrade-to-the-latest-iphone-as-recommended-by-zdnet/"><u>Master the Shift: Proven Methods for a Flawless Upgrade to the Latest iPhone, as Recommended by ZDNet</u></a></li>
+</ul></div>
 
