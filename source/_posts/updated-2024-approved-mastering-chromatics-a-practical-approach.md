@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Chromatics  A Practical Approach\""
-date: 2025-02-15T16:08:50.312Z
-updated: 2025-02-16T16:09:04.678Z
+date: 2025-03-02T12:06:51.250Z
+updated: 2025-03-05T12:49:54.209Z
 tags: 
   - screen-recording
   - ai video
@@ -33,19 +33,11 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
@@ -54,10 +46,6 @@ As you can see, we have every color available in this wheel and they are arrange
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -79,15 +67,7 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,16 +103,19 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-discreetly-share-life-with-instagram-live-for-2024/"><u>[New] Discreetly Share Life with Instagram Live for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-essential-tips-for-photosvideos-in-windows-10-for-2024/"><u>[New] Essential Tips for Photos/Videos in Windows 10 for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-ghostly-pause-recorder-tutorial/"><u>[New] Ghostly Pause Recorder Tutorial</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-puns-and-plots-developing-7-funny-video-storylines/"><u>[New] In 2024, Puns & Plots Developing 7 Funny Video Storylines</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-puzzle-prints-crafting-hilarity-in-minutes/"><u>[New] In 2024, Puzzle Prints Crafting Hilarity in Minutes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/onetize-like-a-pro-how-to-use-youtube-studio-on-any-device-for-2024/"><u>[New] Monetize Like a Pro How to Use Youtube Studio on Any Device for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-get-loved-fast-essential-bio-hacks-that-work-on-every-version-of-tinder/"><u>[Updated] Get Loved, Fast Essential Bio Hacks that Work on Every Version of Tinder</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/essential-guide-to-cheap-video-conferencing-tools-for-computers-for-2024/"><u>Essential Guide to Cheap Video Conferencing Tools for Computers for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/navigating-iphone-camera-not-auto-focusing-woes/"><u>Navigating iPhone Camera Not Auto-Focusing Woes</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/step-by-step-instructions-for-opening-device-manager-in-windows-tips-from-yl-computer-experts/"><u>Step-by-Step Instructions for Opening Device Manager in Windows - Tips From YL Computer Experts</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-on-adding-soundtracks-to-insta-clips/"><u>Step-by-Step Tutorial on Adding Soundtracks to Insta Clips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-unlock-your-hero5-expert-guides-to-stunning-images-and-movies/"><u>[New] Unlock Your Hero5 Expert Guides to Stunning Images & Movies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-walking-the-digital-path-scoring-the-best-vr-exercinas/"><u>[Updated] 2024 Approved Walking the Digital Path Scoring the Best VR Exercinas</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-revolutionizing-imaging-with-quantum-hdrs-potential/"><u>[Updated] In 2024, Revolutionizing Imaging with Quantum HDR's Potential</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-streamline-your-images-in-canva-without-clutter/"><u>[Updated] In 2024, Streamline Your Images in Canva Without Clutter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-share-tweets-whatsapp-video-broadcasting-for-2024/"><u>[Updated] Share Tweets WhatsApp Video Broadcasting for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-top-picks-excellent-4k-displays-for-playing-games/"><u>[Updated] Top Picks Excellent 4K Displays for Playing Games</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-uniting-zoom-and-skype-techniques-to-maximize-video-call-quality/"><u>2024 Approved Uniting Zoom and Skype Techniques to Maximize Video Call Quality</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/canceling-app-store-subscriptions-made-simple-ios-15-iphone-instructions-the-digital-scoop/"><u>Canceling App Store Subscriptions Made Simple: IOS 15 iPhone Instructions | The Digital Scoop</u></a></li>
+<li><a href="https://win-blog.techidaily.com/conversione-libera-online-per-file-m4b-a-m4v-con-movavi-converti-senza-costi/"><u>Conversione Libera Online per File M4B a M4V Con Movavi - Converti Senza Costi</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-12-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone 12 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://discover-great.techidaily.com/secure-strategies-for-effective-crypto-asset-management-insights-from-yl-computing-experts/"><u>Secure Strategies for Effective Crypto Asset Management - Insights From YL Computing Experts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-truth-about-the-lg-k9n-is-a-5g-phone-upgrade-justified/"><u>The Truth About the LG K9n: Is a 5G Phone Upgrade Justified?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/understanding-the-power-shift-from-sdr-to-hdr-in-media/"><u>Understanding the Power Shift From SDR to HDR in Media</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-a-secret-advantage-in-your-iphone-appreciate-the-unnoticed-feature-from-apple-now/"><u>Unveiling a Secret Advantage in Your iPhone - Appreciate the Unnoticed Feature From Apple Now!</u></a></li>
 </ul></div>
 

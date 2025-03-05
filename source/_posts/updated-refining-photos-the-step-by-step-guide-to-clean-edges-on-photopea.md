@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Refining Photos  The Step-by-Step Guide to Clean Edges on Photopea\""
-date: 2025-02-10T16:06:50.623Z
-updated: 2025-02-16T16:03:39.704Z
+date: 2025-03-01T11:39:06.257Z
+updated: 2025-03-05T02:11:15.945Z
 tags: 
   - screen-recording
   - ai video
@@ -45,25 +45,13 @@ Step2 In the next step, click the **"Magic Wand"** tool from the left-side panel
 
 ![selecting the magic wand tool in photopea](https://images.wondershare.com/filmora/article-images/2023/03/selecting-the-magic-wand-tool-in-photopea.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Now, simply press the **"Delete"** button on your keyboard to remove the background. However, if the tool did not select some parts of the image's background, you need to adjust the settings. Click the **"Ctrl+Z"** key to undo the selection.
 
 ![removing the image background using magic wand in photopea](https://images.wondershare.com/filmora/article-images/2023/03/removing-the-image-background-using-magic-wand-in-photopea.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Next, find the **"Tolerance"** option in the top toolbar and increase its value until you get the appropriate number.
 
 ![adjusting the magic wand settings](https://images.wondershare.com/filmora/article-images/2023/03/adjusting-the-magic-wand-settings.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5 Alternatively, you can reduce the value to deselect the parts of your image. Once you change the value, click on the background and press the **"Delete"** button to remove it.
 
@@ -81,15 +69,7 @@ You can modify the brush size using the drop-down icon at the top-right of the w
 
 ![using magic cut to remove image background in photopea](https://images.wondershare.com/filmora/article-images/2023/03/using-magic-cut-to-remove-image-background-in-photopea.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Once satisfied with your changes, click **"OK"** to save your settings and remove the background.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Select the Subject Manually When The Image Is Detailed
 
@@ -106,10 +86,6 @@ Step2 Now, choose the selection tool you need from the drop-down menu. For this 
 Step3 In the next step, select your object as precisely as possible. Now, right-click on your selection, and click **"Inverse"** from the drop-down menu.
 
 Step4 Finally, hit the **"Delete"** button to remove the background.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A Bonus Tip: How To Add The New Background After Removing The Image's Background
 
@@ -141,17 +117,9 @@ PixCut's Artificial Intelligence-based background remover can erase the backgrou
 
 With its Image Resizer tool, you can make your image smaller or larger in size to fulfill your requirements.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Manual Background Erase and Restore options
 
 PixCut also offers the "Erase & Restore" tool to help you remove or restore certain parts of your image after removing the background using the AI-based tool.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Background Change
 
@@ -215,19 +183,18 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-writing-powerful-endings-techniques-and-real-world-examples-for-2024/"><u>[New] Writing Powerful Endings Techniques & Real-World Examples for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-5-winter-youtube-background-ideas-to-warm-up-your-videos-for-2024/"><u>[Updated] 5 Winter YouTube Background Ideas to Warm Up Your Videos for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-ideal-caption-solutions-photo-text-integration-guide-for-2024/"><u>[Updated] Ideal Caption Solutions Photo-Text Integration Guide for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-best-value-online-image-editors-leading-15-at-zero-cost/"><u>[Updated] In 2024, Best Value Online Image Editors - Leading 15 at Zero Cost</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-visualstoryteller-for-windows/"><u>[Updated] VisualStoryteller for Windows</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-critique-free2x-app-for-webcam-capture/"><u>2024 Approved Critique Free2X App for Webcam Capture</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/blowing-the-competition-away-inside-look-at-the-explosive-power-of-apples-mac-mini-with-arm-based-m1-chip/"><u>Blowing the Competition Away: Inside Look at the Explosive Power of Apple's Mac Mini with ARM-Based M1 Chip</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-installation-get-your-samsung-c460-drivers-now/"><u>Effortless Installation: Get Your Samsung C460 Drivers Now!</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/high-definition-santa-monica-pier-scenery-ultimate-collection-of-wallpapers-hd-backgrounds-and-images-provided-by-yl-computing/"><u>High-Definition Santa Monica Pier Scenery: Ultimate Collection of Wallpapers, HD Backgrounds & Images - Provided by YL Computing</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-fix-performance-lags-in-dying-light-2-for-a-smooth-pc-gaming-experience/"><u>How to Fix Performance Lags in Dying Light 2 for a Smooth PC Gaming Experience</u></a></li>
-<li><a href="https://extra-support.techidaily.com/professional-desktop-image-merging-tips-for-2024/"><u>Professional Desktop Image Merging Tips for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/raspberry-router-image-maker-for-2024/"><u>Raspberry Router Image Maker for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolved-troubleshooting-pc-crashes-in-the-witcher-3-ultimate-guide/"><u>Resolved: Troubleshooting PC Crashes in 'The Witcher 3' - Ultimate Guide</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-directly-delivering-tiktok-videos-to-twitters-feed/"><u>[New] In 2024, Directly Delivering TikTok Videos to Twitter's Feed</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-leading-6-software-for-multilingual-video-aids/"><u>[New] In 2024, Leading 6 Software for Multilingual Video Aids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-crafted-clicks-guide-to-software-and-sites-for-superior-photo-framing/"><u>[Updated] 2024 Approved Crafted Clicks Guide to Software & Sites for Superior Photo Framing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-adept-methods-for-mass-acquiring-videos-on-tiktok-app/"><u>[Updated] Adept Methods for Mass Acquiring Videos on TikTok App</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-capture-chuckles-through-adobe-media/"><u>[Updated] Capture Chuckles Through Adobe Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-directors-guide-mastering-character-driven-narratives/"><u>[Updated] In 2024, Directors' Guide Mastering Character-Driven Narratives</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-navigating-kinemasters-features-expert-tips-and-best-online-rivals/"><u>[Updated] Navigating KineMaster's Features Expert Tips & Best Online Rivals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-affordable-gopro-camera-sales/"><u>2024 Approved Top Affordable GoPro Camera Sales</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/choosing-the-perfect-television-setup-for-your-living-space/"><u>Choosing the Perfect Television Setup for Your Living Space</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-amd-graphics-drivers-on-windows-latest-versions/"><u>Download AMD Graphics Drivers on Windows: Latest Versions</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-se-drfone-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unlock-access-to-free-ai-image-learning-masterful-techniques-on-udemy-revealed-by-zdnet/"><u>Unlock Access to Free AI Image Learning: Masterful Techniques on Udemy Revealed by ZDNet</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-masterclass-crafting-engaging-openers-technique-1-and-2/"><u>YouTube Masterclass Crafting Engaging Openers (Technique 1 & 2)</u></a></li>
 </ul></div>
 

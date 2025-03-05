@@ -1,7 +1,7 @@
 ---
 title: "[New] Ultimate SD Compatibility with Sony A7S II"
-date: 2025-02-14T16:06:55.895Z
-updated: 2025-02-16T16:14:44.519Z
+date: 2025-03-03T09:16:37.700Z
+updated: 2025-03-04T21:12:46.531Z
 tags: 
   - screen-recording
   - ai video
@@ -34,10 +34,6 @@ thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef152
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to choose the right memory card for your Sony A7S II
 
@@ -75,10 +71,6 @@ thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef152
 * You will be able to minimize the risks of sudden card failures. Because when cards are not able to support higher bitrates then they often lose most of the information. It is good to choose a card that can easily record footage up to 1 or 2 hours.
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Best Memory Cards for Sony A7S II
 
@@ -120,10 +112,6 @@ thumbnail: https://thmb.techidaily.com/6cbefc5821941765c64c748053e1b0a5829fef152
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -149,19 +137,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-how-to-secure-a-library-of-premium-free-graphic-designs/"><u>[New] How to Secure a Library of Premium, Free Graphic Designs</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-enhancing-team-collaboration-with-regular-video-chats/"><u>[New] In 2024, Enhancing Team Collaboration with Regular Video Chats</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-step-by-step-strategies-to-thrive-on-reddit/"><u>[New] Step-by-Step Strategies to Thrive on Reddit</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-flight-to-perfection-assessing-gopro-karmas-capabilities/"><u>[Updated] 2024 Approved Flight to Perfection Assessing GoPro Karma's Capabilities</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unlocking-spotifys-ad-potential-a-complete-guide/"><u>[Updated] 2024 Approved Unlocking Spotify's Ad Potential A Complete Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-leading-limitless-time-tracker-apps/"><u>[Updated] Leading Limitless Time Tracker Apps</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-top-techniques-for-silent-film-capturing/"><u>2024 Approved Top Techniques for Silent Film Capturing</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/e-book-mastery-with-epubor-streamlined-editing-software-for-beginners/"><u>E-Book Mastery with EPUBOR: Streamlined Editing Software for Beginners</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-craft-your-cinematic-iphone-footage-creating-and-editing-slow-movement-sequences/"><u>In 2024, Craft Your Cinematic iPhone Footage Creating & Editing Slow Movement Sequences</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-view-gpx-files-online-and-offline-solutions-of-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to View GPX Files Online and Offline Solutions Of Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-generate-realistic-avatars-top-free-online-face-creators-for-2024/"><u>New Generate Realistic Avatars Top Free Online Face Creators for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/optimal-video-kick-offs-selecting-the-top-16-for-more-viewers-for-2024/"><u>Optimal Video Kick-Offs Selecting the Top 16 for More Viewers for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/personal-exploration-of-3d-printing-in-3dr-for-2024/"><u>Personal Exploration of 3D Printing in '3DR' For 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unleash-potential-the-finest-6-nft-creation-spaces-for-2024/"><u>Unleash Potential The Finest 6 NFT Creation Spaces for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-gopro-hero-5-black-vs-nikon-keymission-170-which-one-is-better-in-2024/"><u>[New] GoPro Hero 5 Black vs Nikon Keymission 170 Which One Is Better, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-harness-the-potential-of-iphone-burst-photography/"><u>[New] Harness the Potential of iPhone Burst Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-complete-android-auditory-guide-adding-personalized-sounds-and-ringtones/"><u>[New] In 2024, The Complete Android Auditory Guide Adding Personalized Sounds and Ringtones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-youtube-presence-with-masterful-editing-skills-for-2024/"><u>[Updated] Elevate Your YouTube Presence with Masterful Editing Skills for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-insta-tiktik-mastery-uniting-two-social-giants/"><u>[Updated] In 2024, Insta-TikTik Mastery Uniting Two Social Giants</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-step-by-step-using-inshot-software-effectively-for-2024/"><u>[Updated] Step-by-Step Using Inshot Software Effectively for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-best-practices-for-getting-high-quality-pictures-without-spending-money/"><u>2024 Approved Best Practices for Getting High Quality Pictures Without Spending Money</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-in-depth-review-of-splitcam-leading-camera-tech/"><u>2024 Approved In-Depth Review of SplitCam Leading Camera Tech?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-tecno-camon-30-pro-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Tecno Camon 30 Pro 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/can-you-unlock-iphone-14-pro-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>Can You Unlock iPhone 14 Pro After Forgetting the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-sovereigns-youtubes-number-one-tens/"><u>Cyber Sovereigns YouTube’s Number One Tens</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/zero-cost-maximum-impact-mastering-your-characters-voice-in-free-fire-gameplay/"><u>Zero Cost, Maximum Impact Mastering Your Character's Voice in Free Fire Gameplay</u></a></li>
 </ul></div>
 

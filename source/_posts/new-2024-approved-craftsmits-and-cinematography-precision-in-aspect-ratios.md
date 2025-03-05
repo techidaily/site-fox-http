@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Craftsmits and Cinematography  Precision in Aspect Ratios\""
-date: 2025-02-10T16:09:51.271Z
-updated: 2025-02-16T16:16:07.072Z
+date: 2025-02-28T23:28:15.268Z
+updated: 2025-03-04T17:09:33.524Z
 tags: 
   - screen-recording
   - ai video
@@ -41,25 +41,13 @@ There is no same aspect ratio that is used across all social media platforms. De
 
 This aspect ratio is recognized as the worldwide reference format for film, mobile devides, DSLR cameras, streaming platforms, social media platforms, and many more. It is known as landscape viewing which include 720p, 1080p HD and 4K resolution.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4:3 Standard
 
 This resolution is originally used in older television screens, which transformed into mobile use as this aspect ratio works really well for Instagram and Facebook videos, referring to the 9:16 phone resolution making a square video more pleasant to watch and to be featured in in-feed videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9:16 Vertical
 
 The 9:16 aspect ratio has become the mainstream resolution for smartphones for easier viewing of videos. This resolution allows for the vertical display of videos on tablets and phones, meaning that it allows videos to play while the device is being held in its upright position. This works ideally for Facebook, Instagram, Snapchat, YouTube Shorts, and more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 21:9 Cinematic Widescreen
 
@@ -93,10 +81,6 @@ To this day, it's safe to say that YouTube is the leading platform in the video 
 
 21:9 for cinematic videos/shortfilms
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Instagram
 
 When talking about Instagram, which is very similar to Facebook, use these aspect ratios to ensure that your quality will be the best of the best.
@@ -128,10 +112,6 @@ Before Musical.ly users were migrated to a new platform called TikTok in 2018, i
 ## 4\. How to adjust the aspect ratio of a video?
 
 A very important point we'd like to mention is that we don't recommend changing the aspect ratio after filming, because it could harm the video quality and we think it's best to choose the aspect ratio on your phone or camera before filming, besides that we have some great tips for optimizing your video for the watching experience below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Black bars
 
@@ -175,16 +155,18 @@ Having your video tested on multiple devices will allow you to see a preview of 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-high-capacity-card-for-a7s-professional-use-for-2024/"><u>[New] High-Capacity Card for A7S Professional Use for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-seamless-image-files-management-on-ios-jpegpng-to-pdf/"><u>[New] In 2024, Seamless Image Files Management on IOS JPEG/PNG to PDF</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-conquering-live-broadcast-a-comprehensive-guide-for-youtube-and-twitch/"><u>[Updated] In 2024, Conquering Live Broadcast A Comprehensive Guide for YouTube & Twitch</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-top-10-vrvirtual-reality-apps-for-iphoneandroid/"><u>[Updated] In 2024, Top 10 VR/Virtual Reality Apps for iPhone/Android</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-transform-video-quality-on-tiktok-2-ways/"><u>[Updated] Transform Video Quality on TikTok (2 Ways)</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-unlock-your-tech-potential-mastering-macs-screen-capturing-with-just-shortcuts/"><u>[Updated] Unlock Your Tech Potential Mastering Mac's Screen Capturing with Just Shortcuts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-chat-to-tune-downloader-for-fb/"><u>2024 Approved Chat to Tune Downloader for FB</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-samsung-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Samsung</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-vivo-x100-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Vivo X100 Pro Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/tech-battle-royale-how-the-iphone-15-pro-max-stacks-up-against-the-samsung-galaxy-s24-ultra/"><u>Tech Battle Royale: How the iPhone 15 Pro Max Stacks Up Against the Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-key-applications-for-superior-vtuber-audible-identity/"><u>[New] 2024 Approved Key Applications for Superior Vtuber Audible Identity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-select-and-download-exclusive-tailored-audio-templates/"><u>[Updated] 2024 Approved Select & Download Exclusive Tailored Audio Templates</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-ultimate-battle-of-digital-universes-metaverse-vs-omniverse/"><u>[Updated] 2024 Approved The Ultimate Battle of Digital Universes Metaverse Vs. Omniverse</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-the-elite-comprehensive-oculus-review-guide/"><u>[Updated] Unveiling the Elite Comprehensive Oculus Review Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-animated-wonders-a-curated-top-15-in-stop-motion/"><u>2024 Approved Animated Wonders A Curated Top 15 in Stop Motion</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-update-with-speed-comprehensive-guide-for-dell-latitude-e6eth-latitude-e6420-drivers/"><u>Download and Update with Speed: Comprehensive Guide for Dell Latitude E6([ETH]) (LATITUDE E6420) Drivers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-realme-note-50-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Realme Note 50 Pattern Lock Screen</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-beginners-guide-to-luts-and-downloading-tools/"><u>In 2024, The Beginner's Guide to LUTs and Downloading Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/printer-buying-guide-what-questions-should-you-ask/"><u>Printer Buying Guide: What Questions Should You Ask?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722874548505-unveiling-the-best-free-email-services-our-favorite-picks-revealed/"><u>Unveiling the Best Free Email Services – Our Favorite Picks Revealed!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/visionmeld-digital-artistry-at-your-fingertips/"><u>VisionMeld Digital Artistry at Your Fingertips</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Nokia C110? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/windows-media-player-guide-to-cd-ripping-and-burning-for-2024/"><u>Windows Media Player Guide to CD Ripping and Burning for 2024</u></a></li>
 </ul></div>
 

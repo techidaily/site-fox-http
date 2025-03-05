@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Photo Trickery  How Faces Decipher on Apple & Samsung Gadgets for 2024\""
-date: 2025-02-15T16:16:53.697Z
-updated: 2025-02-16T16:01:32.793Z
+date: 2025-02-27T04:15:06.631Z
+updated: 2025-03-04T18:15:47.849Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How does it work?
 
  This section will cover how the face recognition technology works for both the devices. Check out the process.
@@ -58,19 +54,11 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
 
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
 
@@ -82,10 +70,6 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
 
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -95,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1
  The Face ID by Apple in its iPhone X also makes itself proficient enough to detect the modifications in the appearances such as growing of beard or if a lady has applied makeup. Or if you have shaved your beard fully, the device takes a confirmation with the help of a passcode. What’s more, you don’t have to worry if you are wearing scarf or shades, cap, hat and even contact lenses, Face ID will work properly with the accessories too.
 
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
@@ -135,14 +115,14 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-elite-insight-parrots-second-gen-drone-20/"><u>[New] In 2024, Elite Insight Parrot's Second-Gen Drone 2.0</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-masterclass-10-secrets-to-effective-livestreaming-cricket-games/"><u>[New] In 2024, Masterclass 10 Secrets to Effective Livestreaming Cricket Games</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-obtain-high-quality-photos-without-watermarks/"><u>[Updated] Obtain High-Quality Photos Without Watermarks</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-secrets-to-maximizing-youtube-traffic-with-optimized-metadata/"><u>2024 Approved Secrets to Maximizing YouTube Traffic with Optimized Metadata</u></a></li>
-<li><a href="https://tools.techidaily.com/epubor/ebook-converter/"><u>Epubor eBook Converter</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/essential-tips-for-leveraging-azure-speech-to-text-service/"><u>Essential Tips for Leveraging Azure Speech to Text Service</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-itel-p55plus-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Itel P55+ for Streaming | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/prime-platforms-for-asmr-experience-for-2024/"><u>Prime Platforms for ASMR Experience for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-struggle-to-cultivate-freshness-in-vr-realms-for-2024/"><u>The Struggle to Cultivate Freshness in VR Realms for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-premium-net-repositories-ringtones-collection-hub/"><u>[Updated] In 2024, Premium Net Repositories Ringtones Collection Hub</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-making-your-channels-subscribe-button-pop/"><u>[Updated] Making Your Channel's Subscribe Button Pop!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-humor-synthesizer-zombified-appliances/"><u>2024 Approved Humor Synthesizer Zombified Appliances</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/a-service-installation-section-in-this-inf-is-invalid-solved/"><u>A Service Installation Section in This INF Is Invalid [SOLVED]</u></a></li>
+<li><a href="https://fox-place.techidaily.com/activate-automatic-playback-on-windows-10-a-step-by-step-guide-yl-software-solutions/"><u>Activate Automatic Playback on Windows 10: A Step-by-Step Guide - YL Software Solutions</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-lava-blaze-pro-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Lava Blaze Pro 5G Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-poco-x5-pro-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Poco X5 Pro to Mac? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-stay-focused-with-no-youtube-thumbnail-view/"><u>In 2024, Stay Focused with No YouTube Thumbnail View</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-to-smooth-audio-crossfade/"><u>The Ultimate Guide to Smooth Audio Crossfade</u></a></li>
 </ul></div>
 

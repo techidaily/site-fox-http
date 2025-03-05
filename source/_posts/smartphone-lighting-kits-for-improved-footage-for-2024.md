@@ -1,7 +1,7 @@
 ---
 title: "Smartphone Lighting Kits for Improved Footage for 2024"
-date: 2024-09-06T18:26:11.421Z
-updated: 2024-09-07T18:26:11.421Z
+date: 2025-02-26T07:03:36.875Z
+updated: 2025-03-05T01:45:48.794Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/cb70e57700d07e1f21d91f89b112cf1e7299f5606
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Ollie Mattison
 
  Mar 27, 2024• Proven solutions
@@ -36,12 +30,6 @@ A smartphone with a great camera is all you need to record great videos, but you
 
 The best smartphone accessories are lightweight and require as little setup as possible. One of the best things about making videos on your phone is that it allows you to be spontaneous and record life as it happens. A great smartphone accessory will not make it any more complicated to record on the go.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Smartphone Accessories for Making Videos
 
 Here are four of the best accessories for shooting videos on your smartphone:
@@ -50,12 +38,6 @@ Here are four of the best accessories for shooting videos on your smartphone:
 
 ![tips on lenses](https://images.wondershare.com/filmora/article-images/accessories-clip-on-lenses.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 When you use a DSLR you generally have a lot more control over your images than when you record using other kinds of cameras. Part of this is due to the variety of lenses that are available for DSLRs. Most cameras only have the one built-in lens, but DSLRs have detachable lenses you can change to create different effects. Using Clip-On Lenses you can adjust the built-in lens of your smartphone camera to create these same kinds of effects.
 
 Clip-On Lenses are tiny, which makes them convenient for carrying around. Using them is as easy as clipping them right over your smartphone camera lens. Sets of Clip-On Lenses can be found for under $50.
@@ -72,12 +54,6 @@ Smartphones mounted on Pistol Grips will record more stable footage while you wa
 
 ![selfiestick](https://images.wondershare.com/filmora/article-images/accessories-selfiestick.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Selfie Sticks are great for more than just taking selfies; using a selfie stick also helps you record more stable videos. Besides holding a selfie stick the way you normally do, with your hand on the grip, you can use your selfie stick a lot like you would a monopod. Simply place the handle on the floor, extend your selfie stick to the height you want to record at, and hold it still while you film. Your footage will be from one stable height.
 
 Selfie Sticks make it possible for you to record from a wider variety of angles, especially high angles. No smartphone videographer should be without a Selfie Stick. They cost about $40.
@@ -86,24 +62,12 @@ Selfie Sticks make it possible for you to record from a wider variety of angles,
 
 ![lav mic](https://images.wondershare.com/filmora/article-images/accessories-lav-mic.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 One of the biggest obstacles when shooting smartphone videos is capturing adequate audio. Not all videos need audio – sometimes you just want to use music – but if there is any speaking in your video then your audio becomes just as important as your visual recording. As great as most smartphone cameras are, the microphones that come with them usually lack that same quality. You can improve the quality of your audio recordings using a free program called Audacity, or you can get an external microphone.
 
 LAV Mics, also called lavalier or lapel mics, are a popular choice because they are so portable. A LAV Mic will clip right on to your shirt for maximum flexibility while recording on the go. You can get a wired LAV Mic specifically for smartphones for $50.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -127,8 +91,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-compreeved-tips-on-using-vlcs-video-tools/"><u>[New] 2024 Approved Compreeved Tips on Using VLC's Video Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-composing-captivating-cutting-edge-synopses-for-2024/"><u>[New] Composing Captivating Cutting-Edge Synopses for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-googles-guide-to-seamless-podcast-submission/"><u>[New] Google's Guide to Seamless Podcast Submission</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-capture-and-edit-like-a-pro-with-these-8-top-montage-apps/"><u>[New] In 2024, Capture and Edit Like a Pro with These 8 Top Montage Apps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-maximizing-inner-illumination-with-natures-glow/"><u>[New] Maximizing Inner Illumination with Nature's Glow</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-enhancing-engagement-with-impeccable-ppt-recordings/"><u>[Updated] 2024 Approved Enhancing Engagement with Impeccable PPT Recordings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-dive-into-android-gaming-excellence-with-kinemaster-review/"><u>[Updated] Dive Into Android Gaming Excellence with KineMaster Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-netflix-picture-in-picture-how-to-use-the-netflix-floating-window-feature-for-2024/"><u>[Updated] Netflix Picture-in-Picture - How to Use the Netflix Floating Window Feature for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-seamlessly-accessing-vids-the-top-5-free-online-video-extractors/"><u>[Updated] Seamlessly Accessing Vids The Top 5 Free Online Video Extractors</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-boosting-zoom-performance-on-chrome-devices/"><u>2024 Approved Boosting Zoom Performance on Chrome Devices</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-samsung-galaxy-s23plus-frp-bypass-by-drfone-android/"><u>About Samsung Galaxy S23+ FRP Bypass</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-itel-s23plus-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Itel S23+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/examining-youtubes-copyright-stance-versus-cc-approach-for-2024/"><u>Examining Youtube's Copyright Stance Versus CC Approach for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/galaxy-or-genius-deciding-between-samsung-galaxy-and-apple-watch-ultra-for-your-next-purchase/"><u>Galaxy or Genius: Deciding Between Samsung Galaxy and Apple Watch Ultra for Your Next Purchase</u></a></li>
+<li><a href="https://fox-http.techidaily.com/laptop-dvd-playback-hacks-top-free-tools/"><u>Laptop DVD Playback Hacks Top Free Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premium-templates-for-panzoid-introduction-for-2024/"><u>Premium Templates for Panzoid Introduction for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sculpt-satirical-gifs-via-giphy-for-2024/"><u>Sculpt Satirical Gifs via Giphy for 2024</u></a></li>
+</ul></div>
 

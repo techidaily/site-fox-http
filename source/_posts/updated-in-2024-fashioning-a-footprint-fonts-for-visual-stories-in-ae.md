@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Fashioning a Footprint  Fonts for Visual Stories in AE\""
-date: 2025-02-14T16:16:32.786Z
-updated: 2025-02-16T16:19:52.037Z
+date: 2025-03-01T00:57:44.662Z
+updated: 2025-03-05T05:07:18.047Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ After Effects is one of the most promising video editing applications available 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to add fonts to After Effects?
 
 Adding fonts to any video editor is a crucial part because texts add a story to the video projects. They have a great impact on the cinematic quality of any video. For informative videos, the style of font decides the tone in which the texts are displayed.
@@ -52,19 +48,11 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
 
@@ -73,10 +61,6 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * First, select the project video that you want to edit. Then navigate to "effects and presets" and search for the presets of the texts that you want to edit.
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
@@ -93,10 +77,6 @@ If for some reason you don't want to use After Effects on your device to edit yo
 These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
@@ -158,20 +138,19 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-mastering-instagram-the-art-of-rewinding-videos/"><u>[New] 2024 Approved Mastering Instagram The Art of Rewinding Videos</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-elite-puzzles-unlocked-discovering-best-escape-halls-for-2024/"><u>[New] Elite Puzzles Unlocked Discovering Best Escape Halls for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-acoustic-capture-secrets-to-high-end-home-recordings/"><u>[New] The Art of Acoustic Capture Secrets to High-End Home Recordings</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-voice-change-mastery-for-sony-game-systems/"><u>[New] Voice Change Mastery for Sony Game Systems</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-breakthrough-media-tools-to-complement-xsplit/"><u>[Updated] 2024 Approved Breakthrough Media Tools to Complement XSplit</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cardboard-contrast-google-to-samsung-gear-headset/"><u>[Updated] 2024 Approved Cardboard Contrast Google to Samsung Gear Headset</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-windows-desktop-snappers-guide/"><u>[Updated] 2024 Approved Windows Desktop Snappers Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-4kplus-3d-blu-ray-magic-high-end-players-guide/"><u>[Updated] 4K+ 3D Blu-Ray Magic High-End Players Guide</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-snap-edit-and-share-spectacularly-on-tiktok-with-themes-for-2024/"><u>[Updated] Snap, Edit & Share Spectacularly on TikTok with Themes for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-art-of-photo-refreshment-how-to-tidy-up-images-on-canva-for-2024/"><u>[Updated] The Art of Photo Refreshment How to Tidy Up Images on Canva for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/hewlett-packards-notebook-with-amd-is-this-budget-friendly-option-a-worthy-contender-for-productivity/"><u>Hewlett-Packard’s Notebook with AMD: Is This Budget-Friendly Option a Worthy Contender for Productivity?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-the-ultimate-guide-to-blurring-iphone-pics-at-zero-cost/"><u>In 2024, The Ultimate Guide to Blurring iPhone Pics at Zero Cost</u></a></li>
-<li><a href="https://win-latest.techidaily.com/revolutionize-your-music-library-with-these-7-strategies-for-moving-tunes-from-one-iphone-to-another/"><u>Revolutionize Your Music Library with These 7 Strategies for Moving Tunes From One iPhone to Another</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-ultimate-playbook-for-podcast-titling-success-and-50plus-name-suggestions-for-2024/"><u>The Ultimate Playbook for Podcast Titling Success & 50+ Name Suggestions for 2024</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/the-ultimate-tutorial-on-navigating-images-via-aomei-backupper-for-optimal-data-management/"><u>The Ultimate Tutorial on Navigating Images via AOMEI Backupper for Optimal Data Management</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-discovering-the-best-our-full-scrutiny-of-inshot-app-for-2024/"><u>[New] Discovering the Best - Our Full Scrutiny of InShot App for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-soundscape-storytelling-at-its-best/"><u>[New] In 2024, Soundscape Storytelling at Its Best</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-samsung-gear-360-alternatives-updated-list-2023/"><u>[New] Samsung Gear 360 Alternatives Updated List 2023</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-in-class-slideshow-maker-xi-to-x-series-iphones/"><u>[Updated] Best-in-Class Slideshow Maker XI to X Series iPhones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-how-to-get-watermark-free-stock-photos/"><u>[Updated] In 2024, How to Get Watermark-Free Stock Photos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-art-of-leading-lines-crafting-images-on-iphones/"><u>[Updated] In 2024, The Art of Leading Lines Crafting Images on iPhones</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-laughs-lab-innovator/"><u>[Updated] Laughs Lab Innovator</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-perfected-techniques-for-high-quality-webp-to-jpg-conversion-for-2024/"><u>[Updated] Perfected Techniques for High-Quality WebP to JPG Conversion for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unleashing-inspiration-ideas-for-engaging-channels/"><u>[Updated] Unleashing Inspiration Ideas for Engaging Channels</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/assessing-censorship-strategies-within-ai-chatbot-ecosystems/"><u>Assessing Censorship Strategies Within AI Chatbot Ecosystems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-poco-x6-pro-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Poco X6 Pro</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/esr-unveils-new-fast-charging-qi2-magsafe-accessories-with-cryoboost-a-heatless-solution-to-power-up-your-iphone-section-1-advanced-problem-on-piping-and-ma128/"><u>ESR Unveils New Fast-Charging Qi2 MagSafe Accessories with CryoBoost – A Heatless Solution to Power Up Your iPhone # Section 1: Advanced Problem on Piping and Material Compatibility</u></a></li>
+<li><a href="https://fox-http.techidaily.com/high-res-gopro-hero5-against-sj7-star-for-2024/"><u>High Res GoPro Hero5 Against SJ7 Star for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlock-full-potential-of-streaming-with-dual-display-on-netflix/"><u>Unlock Full Potential of Streaming with Dual Display on Netflix</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming Windows 10 Photo Viewer Challenges  Quick Fixes\""
-date: 2025-02-11T16:12:39.035Z
-updated: 2025-02-16T16:09:32.147Z
+date: 2025-03-02T09:18:44.605Z
+updated: 2025-03-04T22:36:18.578Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
 
 ### Solution 1: Use the Troubleshooter
@@ -61,10 +57,6 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -79,10 +71,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
    4. Tap ‘Restore Defaults’ from the bottom-right portion of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
@@ -107,10 +95,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -121,10 +105,6 @@ Here is how to reinstall the Windows 10 Photos App –
 1. You have to wait a while to complete the process and reboot the Windows 10 system.
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -159,17 +139,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-instagram-music-copyright-rules/"><u>[New] 2024 Approved Instagram Music Copyright Rules</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-art-of-influence-essential-marketing-expressions-explained/"><u>[New] The Art of Influence Essential Marketing Expressions Explained</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-illuminating-images-techniques-in-color-science/"><u>[Updated] Illuminating Images Techniques in Color Science</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-become-a-kinemaster-wizard-essentials-techniques-and-10-top-online-contenders/"><u>[Updated] In 2024, Become a KineMaster Wizard Essentials, Techniques & 10 Top Online Contenders</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-navigating-video-chats-zooming-in-on-xbox/"><u>[Updated] In 2024, Navigating Video Chats Zooming In on Xbox</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-unleashing-your-gaming-potential-with-win10-recordings/"><u>[Updated] In 2024, Unleashing Your Gaming Potential with Win10 Recordings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-journey-from-content-creator-to-money-maker-on-youtube-for-2024/"><u>[Updated] The Journey From Content Creator to Money-Maker on YouTube for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-xiaomi-redmi-note-12-proplus-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Xiaomi Redmi Note 12 Pro+ 5G to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/karaoki-updates-unveiled-beta-v09amo-improved-scrolling-new-features-for-djing-enthusiasts/"><u>Karaoki Updates Unveiled - Beta v0.9.amo Improved Scrolling, New Features for DJing Enthusiasts!</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/successful-steps-installing-and-opening-mov-videos-in-windows-media-player/"><u>Successful Steps: Installing and Opening .MOV Videos in Windows Media Player</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ree-software-for-turning-videos-into-files/"><u>Top Free Software for Turning Videos Into Files</u></a></li>
-<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Samsung Galaxy S24 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-bright-ideas-effective-lighting-in-vlogging/"><u>[New] 2024 Approved Bright Ideas Effective Lighting in Vlogging</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-business-slide-show-essentials-free-access-and-customization-for-2024/"><u>[New] Business Slide Show Essentials Free Access & Customization for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-stream-reversal-hacks-an-overview-of-eight-simple-steps/"><u>[New] In 2024, Stream Reversal Hacks An Overview of Eight Simple Steps</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-innovative-water-world-leading-game-experience-hits-for-2024/"><u>[New] Innovative Water World Leading Game Experience Hits for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-ultra-hd-marvel-hp-dreamcolor-z32-x-analysis/"><u>[New] Ultra HD Marvel HP DreamColor Z32 X Analysis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-leading-voice-modifying-apps-magical-calls-and-more/"><u>[Updated] In 2024, Leading Voice-Modifying Apps Magical Calls & More</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-10-affordable-iphone-apps-your-guide-to-free-photo-arrangement-and-editing-for-2024/"><u>[Updated] Top 10 Affordable iPhone Apps – Your Guide to Free Photo Arrangement & Editing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-video-enthusiasts-guide-to-the-best-photo-backdrop-swappers/"><u>[Updated] Video Enthusiasts' Guide to the Best Photo Backdrop Swappers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effective-solutions-for-fixing-constant-freezes-of-fallout-3-in-win10-environment/"><u>Effective Solutions for Fixing Constant Freezes of Fallout 3 in Win10 Environment</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-tecno-pop-7-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Tecno Pop 7 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/install-windows-movie-lab-for-creative-windows-11-users-for-2024/"><u>Install Windows Movie Lab for Creative Windows 11 Users for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/revive-your-memories-effective-techniques-for-recovering-images-from-icloud/"><u>Revive Your Memories: Effective Techniques for Recovering Images From iCloud</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionizing-distance-communication-effective-use-of-chatgpt-in-virtual-meetups/"><u>Revolutionizing Distance Communication: Effective Use of ChatGPT in Virtual Meetups</u></a></li>
+<li><a href="https://win-web.techidaily.com/the-essential-handbook-for-navigating-and-optimizing-the-apowermanager-interface/"><u>The Essential Handbook for Navigating and Optimizing the ApowerManager Interface</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tiktoks-oversight-leads-to-bambu-lab-buyers-receiving-a1-3d-printer-replacements-safety-concerned-models-included/"><u>TikTok’s Oversight Leads to Bambu Lab Buyers Receiving A1 3D Printer Replacements, Safety Concerned Models Included</u></a></li>
 </ul></div>
 

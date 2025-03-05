@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Adding Eye-Catching Text to Vids Without Costs\""
-date: 2025-02-14T16:14:36.528Z
-updated: 2025-02-16T16:02:39.887Z
+date: 2025-03-02T07:26:17.007Z
+updated: 2025-03-05T01:18:00.820Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,6 @@ Create a new video project by signing into Kapwing first. To do both at once, cl
 
 ![add media kapwing](https://images.wondershare.com/filmora/article-images/2022/09/add-media-kapwing.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **2\. Add Texts to Your Video**
 
 Words. Aren't they fantastic? There are practically millions of options available. With the Kapwing app, you may include as many as you like in your movie. Enter your message in the text field on the canvas by typing. Interested in adding extra text fields? If you want to add more, click the addition sign (+) next to the text area.
@@ -54,10 +50,6 @@ Words. Aren't they fantastic? There are practically millions of options availabl
 #### **3\. Animate and personalize your video text**
 
 The fun part is about to begin. You may drag your text to any location by clicking on it. By modifying the color, size, and alignment of your words, you may completely alter the appearance of your text. Well, almost anything can be customized.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Add Free Animation to Video on PC
 
@@ -103,19 +95,11 @@ On your Mac, iMovie should already be installed; if not, go to the app store and
 
 ![launch imove application](https://images.wondershare.com/filmora/article-images/2022/09/launch-imove-application.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step2 Import Videos
 
 The next step is to import your video, Download the picture, open it in any photo editor, remove the black borders around it, and then add whatever text you choose. To choose a clip instead, pick the import footage option.
 
 ![import video into imovie](https://images.wondershare.com/filmora/article-images/2022/09/import-video-into-imovie.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step3 Add and Edit Text
 
@@ -128,10 +112,6 @@ The title in the preview may be clicked to alter the text. Additionally, you may
 Now choose the appropriate title under the Titles menu. You may get a brief live preview of the titles by moving your cursor over them. Drag the one you prefer into your timeline after you've discovered it. Type whatever text you like in the text box by selecting the Text icon at the top of the interface, and then choose the Animate button to give it an animated effect.
 
 ![include animation to text imovie](https://images.wondershare.com/filmora/article-images/2022/09/include-animation-to-text-imovie.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step5 Export the Project
 
@@ -163,10 +143,6 @@ From the list of templates in both Fonts and Colors tab, select the best suited 
 
 ![select text color textro](https://images.wondershare.com/filmora/article-images/2022/09/select-text-color-textro.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4 Save the Project
 
 Finally, after the necessary customizations, may be saved to your phone or immediately shared on Instagram. The project may also be downloaded on your phone or immediately shared on other social media sites.
@@ -184,10 +160,6 @@ After all, during the last several years, videos have been one of the most popul
 Right after installing the program, you need to launch the Video editor and the first step is to import your content into "Project Media," which is on the left side of the screen. Once imported, drag the material into the blank canvas.
 
 ![add media to software](https://images.wondershare.com/filmora/guide/startup-window-01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step2 Add Texts to Videos
 
@@ -219,10 +191,6 @@ On your Mac, iMovie should already be installed; if not, go to the app store and
 
 ![launch imove application](https://images.wondershare.com/filmora/article-images/2022/09/launch-imove-application.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step2 Import Videos
 
 The next step is to import your video, Download the picture, open it in any photo editor, remove the black borders around it, and then add whatever text you choose. To choose a clip instead, pick the import footage option.
@@ -271,19 +239,11 @@ From the list of templates in both Fonts and Colors tab, select the best suited 
 
 ![select text color textro](https://images.wondershare.com/filmora/article-images/2022/09/select-text-color-textro.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4 Save the Project
 
 Finally, after the necessary customizations, may be saved to your phone or immediately shared on Instagram. The project may also be downloaded on your phone or immediately shared on other social media sites.
 
 ![save project textro](https://images.wondershare.com/filmora/article-images/2022/09/save-project-textro.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -313,18 +273,24 @@ After all, during the last several years, videos have been one of the most popul
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-a-step-by-step-guide-to-maximizing-spotifys-ad-space/"><u>[New] 2024 Approved A Step-by-Step Guide to Maximizing Spotify's Ad Space</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-elevating-your-content-game-with-these-top-20-tiktok-captions-for-2024/"><u>[New] Elevating Your Content Game with These Top 20 TikTok Captions for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-prime-10-converters-free-apps-for-efficient-srt-file-transformations/"><u>[New] In 2024, Prime 10 Converters FREE Apps for Efficient SRT File Transformations</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-masterclass-conquering-one-device-livestream-challenges-for-2024/"><u>[New] Masterclass Conquering One-Device Livestream Challenges for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-speaking-with-flair-empowering-vocal-expression-with-no-cost-software/"><u>[New] Speaking with Flair Empowering Vocal Expression with No-Cost Software</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-talent-release-form-for-filming-and-video-to-free-download-for-2024/"><u>[New] Talent Release Form for Filming and Video to Free Download for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-light-and-color-interplay-for-images/"><u>[Updated] 2024 Approved Light & Color Interplay for Images</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-palette-proficiency-expertise-through-experience/"><u>[Updated] 2024 Approved Palette Proficiency Expertise Through Experience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-pop-culture-with-a-click-using-kinemaster/"><u>[Updated] In 2024, Pop Culture with a Click Using KineMaster</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-steps-to-enhance-your-ability-as-an-effective-interviewer-for-2024/"><u>[Updated] Steps to Enhance Your Ability as an Effective Interviewer for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, Reasons why Pokémon GPS does not Work On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/video-counts-and-quantities-within-64128gb/"><u>Video Counts & Quantities Within 64/128GB</u></a></li>
-<li><a href="https://blog-min.techidaily.com/windows-10-11-dvd-rohlinge-komplettkopie-verfahren/"><u>Windows 10 / 11 用 DVD-Rohlinge Komplettkopie Verfahren</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-art-of-podcast-blurbs-techniques-and-illustrations/"><u>[New] 2024 Approved The Art of Podcast Blurbs Techniques and Illustrations</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-unlocking-the-door-to-seamless-zoom-sessions/"><u>[New] 2024 Approved Unlocking the Door to Seamless Zoom Sessions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/veryones-guide-to-youtube-success-10-straightforward-video-tips/"><u>[New] Everyone's Guide to YouTube Success 10 Straightforward Video Tips</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-directing-attention-how-to-eradicate-background-from-your-virtual-conferences/"><u>[New] In 2024, Directing Attention How to Eradicate Background From Your Virtual Conferences</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-top-10-innovative-podcast-microphone-picks/"><u>[New] In 2024, Top 10 Innovative Podcast Microphone Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-transform-your-shots-into-art-with-top-10-grids/"><u>[New] In 2024, Transform Your Shots Into Art with Top 10 Grids</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-streamlined-strategy-for-igtv-and-instagram-story-integration/"><u>[New] Streamlined Strategy for IGTV & Instagram Story Integration</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-upscaling-your-youtube-visuals-for-2024/"><u>[New] Upscaling Your YouTube Visuals for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-easy-laughter-the-art-of-creating-funny-memes/"><u>[Updated] 2024 Approved Easy Laughter The Art of Creating Funny Memes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-breaking-boundaries-custom-font-use-in-after-effects-for-2024/"><u>[Updated] Breaking Boundaries Custom Font Use in After Effects for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-funny-carousel-image-builder-for-2024/"><u>[Updated] Funny Carousel Image Builder for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-progressive-audio-softening-methods/"><u>[Updated] Progressive Audio Softening Methods</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-comparative-study-twitch-and-youtube-in-streaming-land/"><u>2024 Approved Comparative Study Twitch & YouTube in Streaming Land</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/echoing-futures-next-generation-of-ai-talks/"><u>Echoing Futures: Next Generation of AI Talks</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/immediate-fixes-for-skypes-audio-problems-step-by-step-guide/"><u>Immediate Fixes for Skype's Audio Problems – Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-infinix-hot-40i-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Infinix Hot 40i Device SIM</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-savory-scenes-mastering-the-art-of-eating-focused-filmography/"><u>In 2024, Savory Scenes Mastering the Art of Eating-Focused Filmography</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-streamline-your-content-with-these-4-instagram-looping-hacks/"><u>In 2024, Streamline Your Content with These 4 Instagram Looping Hacks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-unlimited-hd-videostreaming-on-your-device/"><u>In 2024, Unlimited HD Videostreaming on Your Device</u></a></li>
 </ul></div>
 

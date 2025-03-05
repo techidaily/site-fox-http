@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Initial Steps Towards Perfect Transitional Sound Levels"
-date: 2025-02-12T16:19:00.775Z
-updated: 2025-02-16T16:09:03.940Z
+date: 2025-03-02T11:11:02.384Z
+updated: 2025-03-04T17:52:19.550Z
 tags: 
   - screen-recording
   - ai video
@@ -35,10 +35,6 @@ Consider adjusting the level of a clip to create it more audible. In audio trans
 
 ![start adobe audition audio edit](https://images.wondershare.com/filmora/article-images/2022/08/start-adobe-audition-audio-edit_.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you have audio that starts quite abruptly and you'd like to add a fade, Audition makes this very easy. Here are some steps to follow:
 
 * First, you have to do successful installation completion of Adobe Audition software.
@@ -61,10 +57,6 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 * If you go back into your effects, go back into Amplitude and Compression and this time, Choose Gain envelope. Now, you will get the yellow line flowing right the way through the audio.
 
 ![gain envelop adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/gain-envelop-adobe-audition.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Now exactly, in the same way, you can go in and begin to make adjustments. Now, when you make a selection here, Audition compresses your adjustments into that selected region. You will need to be a little careful about that when working with these effects. So, you can add fades very easily at any time by clicking on the handles at the top right and left of Waveform Display, or you can use dedicated effects for the purpose.
 
@@ -89,15 +81,7 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
@@ -132,15 +116,7 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
@@ -153,10 +129,6 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -190,24 +162,22 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-diving-deep-into-whatsapps-vocal-messaging-experience/"><u>[New] 2024 Approved Diving Deep Into WhatsApp's Vocal Messaging Experience</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-full-scrutiny-the-dji-inspire-1-experience/"><u>[New] 2024 Approved Full Scrutiny The DJI Inspire 1 Experience</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-clearshot-video-amplifier-cross-device-compatible-for-2024/"><u>[New] ClearShot Video Amplifier - Cross-Device Compatible for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-enhancing-flight-experience-selecting-premium-fpv-drone-propellers/"><u>[New] In 2024, Enhancing Flight Experience Selecting Premium FPV Drone Propellers</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-live-stream-audio-effective-recording-methods-for-the-digital-age/"><u>[New] Live Stream Audio Effective Recording Methods for the Digital Age</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-elite-6-platforms-paving-the-way-for-biz-success/"><u>[Updated] 2024 Approved Elite 6 Platforms Paving the Way for Biz Success</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-elite-uploader-mp4-files-directly-for-fb/"><u>[Updated] Elite Uploader MP4 Files Directly for FB</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-exploring-magix-media-editor/"><u>[Updated] Exploring MAGIX Media Editor</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-propel-innovative-expression-ultimate-guide-to-best-android-drawing-tools/"><u>[Updated] Propel Innovative Expression Ultimate Guide to Best Android Drawing Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unveiling-the-top-free-accurate-online-srt-translators-for-2024/"><u>[Updated] Unveiling the Top Free, Accurate Online SRT Translators for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-x-treme-selfies-vintage-iphone-x-pics-for-2024/"><u>[Updated] X-Treme Selfies Vintage iPhone X Pics for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-the-ultimate-guide-to-capturing-pc-moments-with-apowersoft/"><u>2024 Approved The Ultimate Guide to Capturing PC Moments with Apowersoft</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-unveiling-the-secrets-of-powerful-titles/"><u>2024 Approved Unveiling the Secrets of Powerful Titles</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Vivo Y100 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elite-film-preview-spectacles/"><u>Elite Film Preview Spectacles</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s23-ultra-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Samsung Galaxy S23 Ultra Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-historys-high-fliers-the-most-upvoted-threads-on-reddit/"><u>In 2024, History’s High-Fliers The Most Upvoted Threads on Reddit</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-unlock-ultimate-clarity-choosing-the-perfect-4k-screen/"><u>In 2024, Unlock Ultimate Clarity Choosing the Perfect 4K Screen</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-winning-strategies-for-youtube-seo-titles-and-descriptions/"><u>In 2024, Winning Strategies for YouTube SEO Titles & Descriptions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-navigating-pip-functionality-in-microsoft-edge/"><u>[New] In 2024, Navigating PIP Functionality in Microsoft Edge</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-optimizing-your-youtube-stream-with-wirecast/"><u>[New] In 2024, Optimizing Your YouTube Stream with WireCast</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-photographers-guide-mobile-for-high-angle-views/"><u>[New] The Photographer's Guide Mobile for High-Angle Views</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-android-mobas-a-decade-of-favorite-titles-top-10/"><u>[Updated] 2024 Approved Android MOBAs A Decade of Favorite Titles - Top 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-noskyshadowtool-premium-bg-elimination-software/"><u>[Updated] 2024 Approved NoSkyShadowTool Premium BG Elimination Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-advanced-srt-modification-strategies-for-pc-and-macos-for-2024/"><u>[Updated] Advanced SRT Modification Strategies for PC and macOS for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-free-to-paid-subscriber-count-surpasses-500/"><u>[Updated] In 2024, From Free to Paid Subscriber Count Surpasses 500</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-step-into-3d-designing-layered-textured-texts-psx/"><u>[Updated] Step Into 3D Designing Layered, Textured Texts PSX</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-perfect-precision-the-best-39-video-trimming-tools-from-google-play/"><u>2024 Approved Perfect Precision The Best 39 Video-Trimming Tools From Google Play</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-ultimate-guide-top-10-photography-frame-tools/"><u>2024 Approved Ultimate Guide Top 10 Photography Frame Tools</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/comparing-intelligence-why-choose-claude-ai-instead-of-chategpt-4-reasons/"><u>Comparing Intelligence: Why Choose Claude AI Instead of ChateGPT (4 Reasons)</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/effortless-ways-to-move-mobi-books-onto-your-kindle-or-kindle-fire-tablet/"><u>Effortless Ways to Move Mobi Books Onto Your Kindle or Kindle Fire Tablet</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-htc-u23-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, HTC U23 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/mov-video-rotator-top-5-free-downloads-for-2024/"><u>MOV Video Rotator Top 5 Free Downloads for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionize-remote-employment-six-innovative-ways-to-integrate-chatgpt-into-your-freelance-career/"><u>Revolutionize Remote Employment: Six Innovative Ways to Integrate ChatGPT Into Your Freelance Career</u></a></li>
+<li><a href="https://fox-http.techidaily.com/sleepy-screenplays-for-nights-end-for-2024/"><u>Sleepy Screenplays for Night's End for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/ultimate-strategy-for-bio-linking-on-tiktok/"><u>Ultimate Strategy for Bio Linking on TikTok</u></a></li>
 </ul></div>
 
